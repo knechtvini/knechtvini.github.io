@@ -1,11 +1,11 @@
-title: oquintaninha
-email: your-email@example.com
-description: oquintaninha poemas - por vinícius knecht
+title: VINÍCIUS KNECHT
+email: vknecht@gmail.com
+description: poet.
 domain: "oquintaninha.github.io"
 url: "https://oquintaninha.github.io"
 baseurl: ""
-instagram_username: oquintaninha
-# github_username:  jekyll
+instagram_username: @oquintaninha
+# github_username:  oquintaninha
 
 # Build settings
 theme: minima
