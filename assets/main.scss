@@ -1,0 +1,35 @@
+---
+# Only the main Sass file needs front matter (the dashes are enough)
+---
+
+@import "minima";
+
+body {
+  font-family: Georgia, serif
+}
+
+.wrapper {
+  max-width: calc(600px - (30px * 2));
+}
+
+.site-header {
+  border-bottom: none;
+}
+
+.post-link {
+  color: rgb(61, 61, 61);
+}
+.post-link:visited {
+  color: grey;
+}
+
+.social-media-list {
+  display: flex;
+  margin-bottom: 5px;
+  margin-right: 5px;
+  justify-content: end;
+  opacity: 30%;
+  a {
+    color: grey
+  }
+}
