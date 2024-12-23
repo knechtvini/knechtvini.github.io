@@ -7,7 +7,7 @@ Blog usando Jekyll e GitHub Pages.
 1. Criar um arquivo markdown na pasta `_posts` com o seguinte formato de nome: `YYYY-MM-DD-titulo-do-post.md`
 
 
-## Como rodar localmente
+## Como rodar localmente (opcional)
 
 1. Instalar o Jekyll: https://jekyllrb.com/docs/installation/
 
