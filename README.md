@@ -4,7 +4,7 @@ Blog usando Jekyll e GitHub Pages.
 
 ## Para incluir um novo post
 
-1. Criar um arquivo markdown na pasta `_posts` com o seguinte formato de nome: `YYYY-MM-DD-titulo-do-post.md`
+1. Criar um arquivo markdown na pasta `_posts` com o seguinte formato de nome: `YYYY-MM-DD-nome.md`
 
 
 ## Como rodar localmente (opcional)
