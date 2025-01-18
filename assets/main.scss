@@ -9,18 +9,34 @@ body {
 }
 
 .wrapper {
-  max-width: calc(600px - (30px * 2));
+  max-width: calc(800px - (30px * 2));
 }
 
 .site-header {
-  border-bottom: none;
+  border: none;
 }
 
-.post-link {
-  color: rgb(61, 61, 61);
-}
-.post-link:visited {
-  color: grey;
+.home-header {
+  display: flex;
+  flex-wrap: wrap;
+  align-items: center;
+  justify-content: center;
+  margin-bottom: 6rem;
+  gap: 1rem;
+  h1 {
+    text-align: center;
+    width: 20rem;
+    font-size: 25px;
+    line-height: 30px;
+    span {
+      font-size: 1.9rem;
+    }
+  }
+
+  img {
+    width: 9rem;
+    height: 9rem;
+  }
 }
 
 .social-media-list {
@@ -32,4 +48,23 @@ body {
   a {
     color: grey
   }
+}
+
+.poem-list {
+  display: flex;
+  flex-wrap: wrap;
+  gap: 6em;
+  justify-content: center;
+}
+
+.poem p {
+  margin-bottom: 0;
+}
+
+.text-right {
+  text-align: right;
+}
+
+.red {
+  color: rgb(185, 14, 14);
 }
