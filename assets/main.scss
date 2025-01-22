@@ -5,7 +5,7 @@
 @import "minima";
 
 body {
-  font-family: "Philosopher", serif;
+
 }
 
 .wrapper {
@@ -17,6 +17,7 @@ body {
 }
 
 .home-header {
+  font-family: "Philosopher", serif;
   display: flex;
   flex-wrap: wrap;
   align-items: center;
