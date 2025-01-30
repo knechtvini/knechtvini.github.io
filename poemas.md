@@ -1,6 +1,30 @@
 ---
 layout: default
 ---
+se ao menos escreveu
+ao menos cogitou 
+sentir
+---
+como pegar mulher?
+pra começar não 
+usando esse 
+termo
+---
+dança lírica
+ela toda balé 
+e aqui jazz 
+o Vinícius
+---
+dance a nossa língua
+---
+quando estou escrevendo
+eu demoro mais para
+gozar
+---
+a poesia cheia de louça para
+lavar este vício de 
+deter gente
+---
 Chandler Muriel Bing
 1.	The one with the Friends’ soul
 Matty, I can’t write this script...
