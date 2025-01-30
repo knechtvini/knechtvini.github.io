@@ -4,7 +4,7 @@ Blog usando Jekyll e GitHub Pages.
 
 ## Para incluir um novo post
 
-1. Criar um arquivo markdown na pasta `_posts` com o seguinte formato de nome: `YYYY-MM-DD-nome.md`
+1. Editar o arquivo [poemas.md](https://github.com/oquintaninha/oquintaninha.github.io/blob/main/poemas.md)
 
 
 ## Como rodar localmente (opcional)
