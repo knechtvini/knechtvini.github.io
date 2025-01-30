@@ -1,6 +1,21 @@
 ---
 layout: default
 ---
+ah vai ler um Mário!
+destratou
+Mario não tem acento
+corrigiu
+---
+a grama do vizinho 
+é ver-de-mais
+---
+alguém já lhe disse 
+você é suficiente
+olhando nos seus olhos? 
+eu imaginei
+---
+você é tão feita
+---
 Santos Dumont tinha que ser feriado
 nacional então fale com os franceses
 de frente para a Torre Eiffel eu fica
