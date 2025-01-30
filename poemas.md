@@ -1,6 +1,58 @@
 ---
 layout: default
 ---
+Santos Dumont tinha que ser feriado
+nacional então fale com os franceses
+de frente para a Torre Eiffel eu fica
+ria olhando apenas para o seu cabelo
+anoitecido
+---
+então contei minhas dores Schopenhauer
+zerou uma gargalhada sinistra eu quase
+pulei da nuvem de medo desde o início
+que comecei a discorrer Schopenhauer
+sorria para todos os caminhos que você
+não possa imaginar
+---
+risível se opor ao humor 
+chorável se rir da 
+delinquência
+---
+Selfiend
+coloque na câmera
+córtex pré-
+frontal
+---
+no canto mais intimismo do
+seu ser só sabia escrever
+---
+vocês estão juntos?
+somos só morados
+---
+sou um assombro ou
+isto é só ser 
+artista?
+---
+deste lado da história te
+mando agora o meu 
+final
+---
+medeixaqui...
+todo limitadinho
+escrevendo meus...
+todos quietinhos
+---
+há muitos torcendo pelo seu
+fracasso outros estão 
+lutando por eles
+---
+precisamos de uma boa de uma
+diagnosticada para descansar
+todos os sorrisos
+---
+abre-se espaço para
+uma garrafa de vini
+---
 quando suportaria na única ocasião da 
 sua vida por mim sentir-se atraída 
 estava excepcionalmente naquela 
