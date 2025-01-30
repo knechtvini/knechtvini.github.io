@@ -1,6 +1,53 @@
 ---
 layout: default
 ---
+acho que agora que ele
+morreu a gente já pode
+ler o que ele escreveu
+---
+por favor alguém me explica
+neste negócio todo de amor
+nos tempos de capitalismo
+---
+amores em modo
+avião pousando...
+---
+anjos e demônios
+aceito uma asa quebrada
+para ficar pouquinho mais
+sua presença endiabrada
+---
+artes da mesma espécie
+que se farejam mas não
+se reconhecem
+---
+artistas locais
+os únicos artistas locais
+reconhecidos nas pequenas
+cidades do interior são
+os turistas
+---
+sobre o atual 
+estado da literatura
+você gosta de prosa?
+prozac?
+---
+barriga para fora:
+liberdade ou 
+solidão?
+---
+poesia acrílica
+então assista
+agora o que
+andei pens
+ando
+---
+um grande louco me disse que
+haviam câmeras escondidas ali 
+eu logo o acalmei contando que 
+elas não estavam nos filmando
+naquele momento
+---
 ah vai ler um Mário!
 destratou
 Mario não tem acento
