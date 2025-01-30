@@ -1,6 +1,10 @@
 ---
 layout: default
 ---
+as pessoas não são infinitas masas 
+suas almas se expandem o tempo 
+todo
+---
 Desistir de Tudo em Todo o Lugar ao Mesmo Tempo
 fantasia/ficção científica
 ---
