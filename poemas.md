@@ -1,6 +1,48 @@
 ---
 layout: default
 ---
+e o final todos nós sabemos
+um novo começo... se não
+para nós... para os outros...
+---
+é vício ou é só exagero?
+---
+Thom Yorke, have you ever heard of Yoñlu?
+---
+a previsão era chuva de pedra
+e um asteroide cai na alma
+---
+minha vida não passou 
+de um plágio mal feito
+---
+o acaso me revelou um tesouro
+escondido na pacata região
+das páginas 29, 30 e 31
+---
+então Vinícius hoje eu vou pedir
+que você faça um novo exame
+qual doutor?
+uma autópsia
+---
+Vincent
+tive um quadro
+e não o tratei
+---
+você é fã da banda?
+é claro que eu sou fã
+então cite três músicas
+da banda acusadas de
+plágio
+---
+você é fã do jogador?
+é óbvio ele é craque
+então cite três casos de
+violência sexual que
+ele cometeu
+---
+se comparassem nossas artes
+você teria ampla paisagem
+---
 eu vou contar os meus sonhos em
 forma de piada para você não
 achar tão engraçado
