@@ -1,6 +1,31 @@
 ---
 layout: default
 ---
+como não deixar para depois se
+o capitalismo não deixa fazer
+agora?
+---
+preferi outro caminho peguei
+um desvio de conduta
+---
+Elon Musk poderia ser o Batman
+e preferiu ser o Hitler
+---
+bebendo uma guinness eu consigo
+escrever dez poemas em trinta
+segundos
+---
+está na caras que o hype não vale a pena
+---
+as palavras que o senhor 
+candidato escreveu estão 
+ilegíveis
+o que? pensei que o correto 
+era i-ne-le-gí-vel
+---
+não depende de nós
+depende dos laços
+---
 o sucesso estava tão bom
 que eu não vi o tenho
 passar
