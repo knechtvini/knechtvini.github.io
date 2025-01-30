@@ -1,6 +1,12 @@
 ---
 layout: default
 ---
+eu vou contar os meus sonhos em
+forma de piada para você não
+achar tão engraçado
+---
+perdida no barzinho pedido
+---
 sobre a minha passagem meu
 pai sempre me deu pistas de
 danças dos anos 80
