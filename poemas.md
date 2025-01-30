@@ -1,7 +1,9 @@
 ---
 layout: default
 ---
-
+Desistir de Tudo em Todo o Lugar ao Mesmo Tempo
+fantasia/ficção científica
+---
 “noticiário informa tragédia sorrindo”
 ---
 a melhor terapia é a terapia
