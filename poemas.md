@@ -1,6 +1,56 @@
 ---
 layout: default
 ---
+civilização de deprimidos que
+sofrendo da inanição poética
+violentam violetas
+---
+entrevista de emprego
+“mas verdadeira até
+uma cobra-coral é”
+---
+com licença poética...
+com todo o respeito
+eu não respeito você
+---
+ouça bem: você é melhor que
+o solo de Comfortably Numb
+---
+poeminho da elegância
+da academia eu 
+saí de fininho
+---
+da solitude
+saudade de pôr um
+fim num amor
+---
+da sucessão
+ele parou no tenho
+---
+dando o redondo contra
+o quadradismo do
+mundo
+---
+tempo um abs trato com o espaço
+o sol vai engolir a terra e eu 
+terei o meu dinossauro de 
+estimação
+---
+distraídos escreveremos
+---
+do clubista
+quando você fala dos
+seus recordes você
+está falando dos
+seus limites
+---
+do noticiário esportivo
+in forma de circo
+---
+às vezes me lembram quem
+eu nunca fui e eu me
+esqueço
+---
 e o final todos nós sabemos
 um novo começo... se não
 para nós... para os outros...
