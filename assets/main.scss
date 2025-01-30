@@ -12,11 +12,20 @@ body {
   max-width: calc(800px - (30px * 2));
 }
 
+.top-nav {
+  margin: 10px;
+  float: right;
+  a {
+    color: rgb(98, 98, 98)
+  }
+}
+
 .site-header {
   border: none;
 }
 
 .home-header {
+  margin-top: 80px;
   font-family: "Philosopher", serif;
   display: flex;
   flex-wrap: wrap;
@@ -24,6 +33,11 @@ body {
   justify-content: center;
   margin-bottom: 6rem;
   gap: 1rem;
+
+  // remove link style
+  text-decoration: none !important;
+  color: inherit !important;     
+
   h1 {
     text-align: center;
     width: 20rem;
@@ -49,6 +63,10 @@ body {
   a {
     color: grey
   }
+}
+
+.page-content {
+  padding: 10px 0;
 }
 
 .poem-list {
