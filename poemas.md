@@ -1,6 +1,51 @@
 ---
 layout: default
 ---
+pedra madeira ou osso
+a arte jamais começou
+---
+a campainha lhe tocava
+mais que a companhia
+---
+poema do dia
+a noite está
+poesia
+---
+seguem abaixo as 
+orientações médicas:
+a sua depressão está 
+apenas começando 
+sucesso na sua
+trajetória
+---
+eu sei que a vozinha que o
+meu vôzinho faz para o
+seu cachorro é a razão
+da sua existência
+para José Roque Wendt
+---
+estou me sentindo numa
+série da É fitness
+---
+a advogada distraída pois
+a ficha não caiu ainda:
+“calma eu estou processando”
+---
+poeminho à deriva
+um jantar à luz de
+veleiro em alto-mar
+---
+poeminho dos poeminhos
+das sínteses na escola
+nasceram os poeminhos
+---
+polaroid
+sorri com os mundo e sem
+piscar os mundos os olhos
+disfarçáveis que ao ver de
+perto revelam girassóis
+de Van Gogh
+---
 o café preto sem açúcar que
 mantém a poesia eufó rica
 a cor dada e não mata a
