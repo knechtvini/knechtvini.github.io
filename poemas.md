@@ -1,6 +1,23 @@
 ---
 layout: default
 ---
+o poema está perfeito 
+e no mais... 
+...insignificante
+---
+estou completamente lúcido por você
+---
+fazendo malabarismo com
+palavras pegando fogo
+---
+privilégio cósmico de não 
+existir neste meio 
+artístico
+---
+vocês não sabem com 
+que livros estão 
+lidando
+---
 conseguimos ver cada átomo
 do seu corpo através do seu
 perfil no Instagram
