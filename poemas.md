@@ -1,6 +1,13 @@
 ---
 layout: default
 ---
+Chandler Muriel Bing
+1.	The one with the Friends’ soul
+Matty, I can’t write this script...
+Sorry
+
+para Matthew Perry
+---
 cardápio-humano
 ele recebia um não de cara
 mas sempre um sim de 
