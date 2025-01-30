@@ -1,6 +1,51 @@
 ---
 layout: default
 ---
+sobre a minha passagem meu
+pai sempre me deu pistas de
+danças dos anos 80
+---
+esperando-o se confessar mais fraco
+---
+uma vida com vários protagonistas
+---
+amor ou histeria?
+---
+é mais a sua cara ir num
+cemitério encher a cara
+---
+você tão-só prefere o irreal que
+o real o que convenhamos é
+bem mais autêntico
+---
+como poeta sou um menor 
+desacompanhado
+---
+artistas têm mais x por cento de 
+insalubridade e x por cento de 
+periculosidade
+---
+o psicanalista vai ajudar você
+a contar todos os motivos que
+te fazem sofrer sem motivo
+200 conto
+---
+nossa história se bem contada
+dá milhões de outras versões
+---
+escreva tudo para fora!
+---
+estimular a fama para excitar a arte
+---
+fazem de tudo para 
+não me fazer nada
+---
+não procuro atender as expectativas
+das outras pessoas até porquê estou
+sempre silencioso
+---
+psicanalista cobra por explicações suas
+---
 como não deixar para depois se
 o capitalismo não deixa fazer
 agora?
