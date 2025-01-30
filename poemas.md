@@ -2,9 +2,8 @@
 layout: default
 ---
 conseguimos ver cada átomo
-do seu corpo através do 
-seu perfil no 
-Instagram
+do seu corpo através do seu
+perfil no Instagram
 ---
 nunca é só um poema
 ---
