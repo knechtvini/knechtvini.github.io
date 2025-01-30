@@ -1,6 +1,39 @@
 ---
 layout: default
 ---
+quando suportaria na única ocasião da 
+sua vida por mim sentir-se atraída 
+estava excepcionalmente naquela 
+noite tão mas tão distraída
+---
+a poesia não costuma fazer 
+pose para mim e eu 
+imagino
+---
+por que diabos 
+pretensioso é 
+crítica?
+---
+eu sou o profeta do passado
+---
+o humor paciente não funciona
+tão bem na psicanálise
+---
+e 99% dos poemas que eu
+escrevi eu já nem me lembro
+mais qual era a pergunta mesmo?
+---
+quê missão cara ~
+aleluias aleatórias
+---
+Quintanem-se, Marietas!
+---
+regresso
+foi a gota d’fogo
+---
+saí da festa para trazer
+-me de volta a mim mesmo
+---
 pedra madeira ou osso
 a arte jamais começou
 ---
