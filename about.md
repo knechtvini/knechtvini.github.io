@@ -14,5 +14,5 @@ Autor dos livros No mínimo rir, no máximo chorar (2019) e Tristeza que dá inv
 <br>
 <br>
 ### Contato  
-📧 Email: vknecht@email.com  
+📧 Email: vknecht@gmail.com  
 📸 Instagram: [@vaogogo](https://instagram.com/vaogogo)  
