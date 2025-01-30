@@ -1,6 +1,33 @@
 ---
 layout: default
 ---
+conseguimos ver cada átomo
+do seu corpo através do 
+seu perfil no 
+Instagram
+---
+nunca é só um poema
+---
+ódiododiadia...
+---
+por que pisar em uma 
+peça de ego dói tanto?
+---
+sem sombra de dívidas
+---
+o louco inventa um carro voando
+o gênio cria um carro que voa
+---
+a natureza humana provê condições
+de trabalho visando sempre o verde
+---
+Leonardo DiCaprio
+“o sim você já tem”
+---
+porque agora acabou para você
+e eu para o adeus final não
+*para o adeus inicial
+---
 as pessoas não são infinitas masas 
 suas almas se expandem o tempo 
 todo
