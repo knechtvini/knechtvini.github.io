@@ -1,6 +1,48 @@
 ---
 layout: default
 ---
+o sucesso estava tão bom
+que eu não vi o tenho
+passar
+---
+você sempre foi a 
+minha pioridade
+---
+o pó criticando a fumaça
+---
+ele poeta tanto que ele
+acaba acreditando na
+própria poesia
+---
+antigamente no polo sul da
+lua hoje em dia no polo
+dance
+---
+você fala comigo com mais
+pontos do que vírgulas,
+---
+tenho pouco tempo de morte
+---
+problemas com as drogas?
+não se preocupe nós podemos
+ajudar com um preço muito
+melhor
+---
+por que as relações abertas 
+estão cada vez mais abertas?
+---
+eu andei pensando melhor no que
+você disse e eu acho que realmente...
+...eu tenho toda a razão
+---
+aqui só sobrou a carcaça da poesia
+---
+sob perspectivas religiosas filosóficas
+e científicas a morte é a mesma:
+o in-provável
+---
+a vida é tão by now
+---
 então quer dizer que daqui há
 cento e cinquenta anos todo
 mundo que hoje está vivo na
