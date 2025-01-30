@@ -1,6 +1,54 @@
 ---
 layout: default
 ---
+o café preto sem açúcar que
+mantém a poesia eufó rica
+a cor dada e não mata a
+sede de um l imitado
+poeta
+---
+insuportável a facilidade 
+com que você não me ama
+---
+a poesia não botas
+ninguém para
+correr
+---
+a revolução dos bichos
+eu me dou melhor com os
+bichos do que com os
+animais
+---
+cenas de um casamento
+sinto a sua falta de ar
+---
+a voada amou
+---
+a voz veio das nuvens
+fim da linha poeta____
+e então subi disfarçado
+ainda assim desconfiado
+---
+aindo
+alguns só continuam ainda
+porque algumas coisas
+ainda são de graça
+---
+até um bicho lida com a arte
+---
+atraverso as tuas
+---
+dá para sentir daqui o seu 
+bafo de ligação para ex
+---
+band-aid
+bandos noturnos atrás
+de bares bandas e
+bundas
+---
+breve o bastante 
+para ser bravo!
+---
 civilização de deprimidos que
 sofrendo da inanição poética
 violentam violetas
