@@ -10,15 +10,15 @@ layout: default
 
   {{ content }}
 
-  {%- if site.posts.size > 0 -%}
-    <div class="poem-list">
-      {%- for post in site.posts -%}
+  {% assign poems = site.pages | where: "name", "poemas.md" | first %}
+  {% assign poem_list = poems.content | split: "---" %}
+  
+  <div class="poem-list">
+    {% for poem in poem_list %}
       <div class="poem">
-        {{post.content}}
+        {{ poem | strip | newline_to_br }}
       </div>
-      {%- endfor -%}
-    </div>
-
-  {%- endif -%}
-
+    {% endfor %}
+  </div>
+  
 </div>
