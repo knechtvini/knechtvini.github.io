@@ -1,6 +1,26 @@
 ---
 layout: default
 ---
+cardápio-humano
+ele recebia um não de cara
+mas sempre um sim de 
+alma
+---
+carta aberta saudades só 
+matam quando elas 
+as assinam
+---
+por que todo o amor que
+me aparece se parece 
+com o cavalo de 
+troia?
+---
+céu dublado
+---
+poesia é a verdadeira natureza
+do tempo com legenda
+sincronizada
+---
 acho que agora que ele
 morreu a gente já pode
 ler o que ele escreveu
