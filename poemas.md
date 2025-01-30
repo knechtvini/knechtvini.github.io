@@ -1,6 +1,59 @@
 ---
 layout: default
 ---
+então quer dizer que daqui há
+cento e cinquenta anos todo
+mundo que hoje está vivo na
+terra vai estar morto e eu só
+vou te encontrar num dia 
+numa saída de um bar?
+---
+já está na hora de você trocar
+a fechadura dos seus olhos
+---
+eu não amo mais você mas
+algumas noites vou até a
+janela checar a altura
+da lua
+---
+alguém por favor faça cócegas
+nos meus poemas mais tristes
+---
+conforme o confirmado 
+se conformar
+---
+tome cuidado para 
+não se apaixonar
+alguma dica?
+essa
+---
+mas não se preocupe não é só
+choro de tristeza é choro de
+realidades
+---
+um artista que consegue Criar e
+trabalhar com o seu próprio **ego
+nunca vai se sentir *****pregado
+---
+ela tomou conta dos meus sentidos
+e meses depois encontrado
+inconsciente
+---
+na cama ela dava ares 
+de especialista em 
+meteorologia
+---
+espírito espirrando na hora
+de um filme de terror
+---
+senhor Vinícius favor comparecer
+ao IML da cidade de Porto Alegre
+para reconhecer o seu corpo
+---
+como informariam o fim do
+mundo sem um grande
+roteiro?
+---
 o poema está perfeito 
 e no mais... 
 ...insignificante
