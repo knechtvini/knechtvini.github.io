@@ -1,6 +1,18 @@
 ---
 layout: default
 ---
+parecia que viria um poema
+mas era só a vizinha Iracema
+---
+Kurt Cobain desrespeitava todos
+os homofóbicos e vocês nunca
+fizeram nada
+---
+m&u amor
+---
+mãos cruzadas o chão
+encanta tanto amada?
+---
 AM
 tente o equilíbrio
 com seis cordas
