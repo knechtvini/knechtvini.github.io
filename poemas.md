@@ -1,6 +1,29 @@
 ---
 layout: default
 ---
+time
+de tempo em tempo
+de mim a mim
+por alguns anos
+os tantos e tantos
+mins...
+---
+já estou mobiliando 
+o fundo do meu poço
+---
+Vinícius já está morto na Austrália
+---
+não são lágrimas se 
+você está na chuva
+---
+o poeta não fugirá do seu
+destino histórico mas o
+que não é histórico hj
+em dia?
+---
+choro mais acessível
+ver preços pesquisar
+---
 menos informações em breve!
 ---
 se ao menos escreveu
