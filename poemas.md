@@ -1,6 +1,8 @@
 ---
 layout: default
 ---
+menos informações em breve!
+---
 se ao menos escreveu
 ao menos cogitou 
 sentir
