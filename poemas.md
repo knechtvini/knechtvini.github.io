@@ -1,6 +1,17 @@
 ---
 layout: default
 ---
+AM
+tente o equilíbrio
+com seis cordas
+---
+esperma mais um pouco?
+---
+ainda não sei o estado que
+vou estar depois de morto
+---
+eu me Ode e eu quero mor
+---
 tô com depressão
 me anima depressa
 ---
