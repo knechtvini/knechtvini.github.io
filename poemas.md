@@ -1,6 +1,19 @@
 ---
 layout: default
 ---
+tô com depressão
+me anima depressa
+---
+quero me livrar dessa vida 
+mas não quero me livrar 
+desta história
+---
+meio Woody Allen
+eu estou no controle mas 
+ele está desconectado do 
+videogame é assim que 
+eu vejo a vida
+---
 time
 de tempo em tempo
 de mim a mim
