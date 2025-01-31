@@ -1,6 +1,41 @@
 ---
 layout: default
 ---
+Quer publicar o seu livro?
+
+Todos os direitos desta edição
+retirados do autor
+---
+por que você fala comigo desse jeito?
+que jeito?
+como se estivesse
+
+Escrevendo,
+---
+amores modernos
+para ser sincero é
+preciso ser 
+vidente
+---
+um Ser criando respostas
+mentirosas para pergunt
+as inventadas
+---
+também não faço a menor 
+falta na minha poesia 
+outro poeta a 
+escreveria
+---
+você já chorou ouvindo uma multa?
+---
+ah poesia digital até abrir 
+um documento já se foi 
+o pensamento
+---
+um poeta pode ser extremamente
+perigoso nas – suas – últimas
+semanas
+---
 parecia que viria um poema
 mas era só a vizinha Iracema
 ---
