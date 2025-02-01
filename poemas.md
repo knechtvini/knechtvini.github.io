@@ -2,7 +2,6 @@
 layout: default
 ---
 Quer publicar o seu livro?
-
 Todos os direitos desta edição
 retirados do autor
 ---
@@ -13,7 +12,8 @@ como se estivesse
 Escrevendo,
 ---
 amores modernos
-para ser sincero é
+
+pra ser sincero é
 preciso ser 
 vidente
 ---
@@ -30,15 +30,14 @@ você já chorou ouvindo uma multa?
 ---
 ah poesia digital até abrir 
 um documento já se foi 
-todo o pensamento
+aquele pensamento
 ---
 um poeta pode ser extremamente
-perigoso nas – suas – últimas
+perigoso nas suas últimas
 semanas
 ---
 parecia que viria um poema
-mas era só a vizinha 
-Iracema
+era só a vizinha Iracema
 ---
 Kurt Cobain desrespeitava todos
 os homofóbicos e vocês nunca
@@ -52,7 +51,7 @@ encanta tanto amada?
 AM
 
 tente o equilíbrio
-com seis cordas
+em seis cordas
 ---
 esperma mais um pouco?
 ---
@@ -66,7 +65,7 @@ me anima depressa
 ---
 quero me livrar dessa vida 
 mas não quero me livrar 
-desta história
+dessa história
 ---
 meio Woody Allen
 
@@ -99,7 +98,7 @@ em dia?
 choro mais acessível
 ver preços pesquisar
 ---
-menos informações em breve!
+menos informações em breve
 ---
 se ao menos escreveu
 ao menos cogitou 
@@ -107,8 +106,8 @@ sentir
 ---
 como pegar mulher?
 pra começar não 
-usando esse 
-termo
+usando esses
+termos
 ---
 dança lírica
 
@@ -116,7 +115,7 @@ ela toda balé
 e aqui jazz 
 Vinícius
 ---
-dance a nossa língua
+agora dance a nossa língua
 ---
 quando estou escrevendo
 demoro mais para gozar
@@ -132,13 +131,7 @@ Chandler Muriel Bing
 Matty, I can’t write this script...
 Sorry
 
-para Matthew Perry
----
-cardápio-humano
-
-ele recebia um não de cara
-mas nem sempre um sim de 
-alma
+em memória de Matthew Perry
 ---
 carta aberta 
 
@@ -147,8 +140,8 @@ elas as a assinam
 ---
 por que todo o amor que
 me aparece se parece 
-com o cavalo de 
-troia?
+com o Cavalo de 
+Troia?
 ---
 céu dublado
 ---
@@ -167,11 +160,7 @@ nos tempos de capitalismo
 amores em modo
 avião pousando
 ---
-anjos e demônios
-
-aceito uma asa quebrada para
-para ficar pouquinho mais
-na presença endiabrada
+aceito uma asa quebrada
 ---
 artes da mesma espécie
 que se farejam mas não
@@ -184,10 +173,10 @@ reconhecidos nas pequenas
 cidades do interior são
 os turistas
 ---
-sobre o atual estado da literatura
+atual estado da literatura
 
 você gosta de prosa?
-Prozac???
+Prozac?
 ---
 barriga para fora:
 liberdade ou 
@@ -241,6 +230,7 @@ chorável se rir da
 delinquência
 ---
 Selfiend
+
 coloque na câmera
 córtex pré-
 frontal
@@ -297,8 +287,6 @@ escrevi eu já nem me
 lembro mais qual era 
 a pergunta mesmo?
 ---
-quê missão
-
 aleluias 
 aleatórias
 ---
@@ -306,7 +294,8 @@ Quintanem-se, Marietas!
 ---
 regresso
 
-foi a gota d’fogo
+foi a gota 
+d’fogo
 ---
 saí da festa para trazer
 -me de volta a mim 
@@ -324,7 +313,7 @@ a noite está
 poesia
 ---
 seguem abaixo as 
-orientações médicas:
+orientações médicas
 
 a sua depressão está 
 apenas começando 
@@ -338,11 +327,8 @@ da sua existência
 
 para José Roque Wendt
 ---
-estou me sentindo numa
-série da É fitness
----
 a advogada distraída pois
-a ficha não caiu ainda:
+a ficha não caiu ainda
 
 “calma eu ainda estou 
 processando”
@@ -372,7 +358,7 @@ a cor dada e não mata a
 sede de um l imitado
 poeta
 ---
-insuportável a facilidade 
+é insuportável a facilidade 
 com que você não me ama
 ---
 a poesia não botas
@@ -403,7 +389,7 @@ aindo
 alguns só continuam ainda
 porque algumas coisas
 - ainda - são de
-- graça
+graça
 ---
 até um bicho lida com a arte
 ---
@@ -472,6 +458,7 @@ está falando dos
 seus limites
 ---
 do noticiário esportivo
+
 in forma de circo
 ---
 às vezes me lembram quem
@@ -563,7 +550,8 @@ dá milhões de outras versões
 ---
 escreva tudo para fora!
 ---
-estimular a fama para excitar a arte
+estimular a fama para 
+excitar a arte
 ---
 fazem de tudo para 
 não fazer nada
@@ -869,7 +857,6 @@ escreve nu
 plano odontológico ticket alimentação
 refeição na empresa auxílio educação
 participação de lucros ou transporte?
-
 precisa escolher um desses
 ---
 não pretendo ser bissexual
@@ -951,6 +938,7 @@ saudade é quando tudo
 finalmente em caixa
 ---
 uma escuridão no fim do túnel
+
 ter tempo com algumas certas 
 dores não é ter tempo
 ---
