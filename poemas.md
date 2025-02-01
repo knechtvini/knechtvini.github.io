@@ -23,32 +23,34 @@ as inventadas
 ---
 também não faço a menor 
 falta na minha poesia 
-outro poeta a 
+outro poeta melhor a 
 escreveria
 ---
 você já chorou ouvindo uma multa?
 ---
 ah poesia digital até abrir 
 um documento já se foi 
-o pensamento
+todo o pensamento
 ---
 um poeta pode ser extremamente
 perigoso nas – suas – últimas
 semanas
 ---
 parecia que viria um poema
-mas era só a vizinha Iracema
+mas era só a vizinha 
+Iracema
 ---
 Kurt Cobain desrespeitava todos
 os homofóbicos e vocês nunca
 fizeram nada
 ---
-m&u amor
+m&u @mor
 ---
 mãos cruzadas o chão
 encanta tanto amada?
 ---
 AM
+
 tente o equilíbrio
 com seis cordas
 ---
@@ -59,7 +61,7 @@ vou estar depois de morto
 ---
 eu me Ode e eu quero mor
 ---
-tô com depressão
+tô com depressão me
 me anima depressa
 ---
 quero me livrar dessa vida 
@@ -67,20 +69,22 @@ mas não quero me livrar
 desta história
 ---
 meio Woody Allen
+
 eu estou no controle mas 
 ele está desconectado do 
 videogame é assim que 
 eu vejo a vida
 ---
 time
+
 de tempo em tempo
 de mim a mim
 por alguns anos
 os tantos e tantos
 mins...
 ---
-já estou mobiliando 
-o fundo do meu poço
+estou mobiliando o
+fundo do meu poço
 ---
 Vinícius já está morto na Austrália
 ---
@@ -107,35 +111,39 @@ usando esse
 termo
 ---
 dança lírica
+
 ela toda balé 
 e aqui jazz 
-o Vinícius
+Vinícius
 ---
 dance a nossa língua
 ---
 quando estou escrevendo
-eu demoro mais para
-gozar
+demoro mais para gozar
 ---
 a poesia cheia de louça para
-lavar este vício de 
-deter gente
+lavar este vício de...
+de deter gente
 ---
 Chandler Muriel Bing
+
 1.	The one with the Friends’ soul
+   
 Matty, I can’t write this script...
 Sorry
 
 para Matthew Perry
 ---
 cardápio-humano
+
 ele recebia um não de cara
-mas sempre um sim de 
+mas nem sempre um sim de 
 alma
 ---
-carta aberta saudades só 
-matam quando elas 
-as assinam
+carta aberta 
+
+saudades só matam quando 
+elas as a assinam
 ---
 por que todo o amor que
 me aparece se parece 
@@ -157,56 +165,61 @@ neste negócio todo de amor
 nos tempos de capitalismo
 ---
 amores em modo
-avião pousando...
+avião pousando
 ---
 anjos e demônios
-aceito uma asa quebrada
+
+aceito uma asa quebrada para
 para ficar pouquinho mais
-sua presença endiabrada
+na presença endiabrada
 ---
 artes da mesma espécie
 que se farejam mas não
 se reconhecem
 ---
 artistas locais
+
 os únicos artistas locais
 reconhecidos nas pequenas
 cidades do interior são
 os turistas
 ---
-sobre o atual 
-estado da literatura
+sobre o atual estado da literatura
+
 você gosta de prosa?
-prozac?
+Prozac???
 ---
 barriga para fora:
 liberdade ou 
 solidão?
 ---
 poesia acrílica
+
 então assista
 agora o que
 andei pens
 ando
 ---
 um grande louco me disse que
-haviam câmeras escondidas ali 
-eu logo o acalmei contando que 
-elas não estavam nos filmando
-naquele momento
+haviam câmeras escondidas 
+ali eu logo o acalmei con
+tando que elas não estavam 
+nos filmando naquele 
+momento
 ---
 ah vai ler um Mário!
-destratou
+ela destratou
 Mario não tem acento
-corrigiu
+ele corrigiu
 ---
 a grama do vizinho 
 é ver-de-mais
 ---
 alguém já lhe disse 
 você é suficiente
-olhando nos seus olhos? 
-eu imaginei
+olhando nos seus 
+olhos? eu 
+imaginei
 ---
 você é tão feita
 ---
@@ -214,7 +227,7 @@ Santos Dumont tinha que ser feriado
 nacional então fale com os franceses
 de frente para a Torre Eiffel eu fica
 ria olhando apenas para o seu cabelo
-anoitecido
+todo anoitecido
 ---
 então contei minhas dores Schopenhauer
 zerou uma gargalhada sinistra eu quase
@@ -243,8 +256,7 @@ isto é só ser
 artista?
 ---
 deste lado da história te
-mando agora o meu 
-final
+mando agora o meu final
 ---
 medeixaqui...
 todo limitadinho
@@ -253,7 +265,7 @@ todos quietinhos
 ---
 há muitos torcendo pelo seu
 fracasso outros estão 
-lutando por eles
+lutando por ele
 ---
 precisamos de uma boa de uma
 diagnosticada para descansar
@@ -265,11 +277,11 @@ uma garrafa de vini
 quando suportaria na única ocasião da 
 sua vida por mim sentir-se atraída 
 estava excepcionalmente naquela 
-noite tão mas tão distraída
+noite tão mas tão tão 
+distraída
 ---
 a poesia não costuma fazer 
-pose para mim e eu 
-imagino
+pose para mim eu imagino
 ---
 por que diabos 
 pretensioso é 
@@ -278,22 +290,27 @@ crítica?
 eu sou o profeta do passado
 ---
 o humor paciente não funciona
-tão bem na psicanálise
+muito bem na psicanálise
 ---
-e 99% dos poemas que eu
-escrevi eu já nem me lembro
-mais qual era a pergunta mesmo?
+99% dos poemas que eu
+escrevi eu já nem me 
+lembro mais qual era 
+a pergunta mesmo?
 ---
-quê missão cara ~
-aleluias aleatórias
+quê missão
+
+aleluias 
+aleatórias
 ---
 Quintanem-se, Marietas!
 ---
 regresso
+
 foi a gota d’fogo
 ---
 saí da festa para trazer
--me de volta a mim mesmo
+-me de volta a mim 
+mesmo
 ---
 pedra madeira ou osso
 a arte jamais começou
@@ -302,11 +319,13 @@ a campainha lhe tocava
 mais que a companhia
 ---
 poema do dia
+
 a noite está
 poesia
 ---
 seguem abaixo as 
 orientações médicas:
+
 a sua depressão está 
 apenas começando 
 sucesso na sua
@@ -316,6 +335,7 @@ eu sei que a vozinha que o
 meu vôzinho faz para o
 seu cachorro é a razão
 da sua existência
+
 para José Roque Wendt
 ---
 estou me sentindo numa
@@ -323,22 +343,28 @@ série da É fitness
 ---
 a advogada distraída pois
 a ficha não caiu ainda:
-“calma eu estou processando”
+
+“calma eu ainda estou 
+processando”
 ---
 poeminho à deriva
+
 um jantar à luz de
-veleiro em alto-mar
+veleiro em alto
+-mar
 ---
 poeminho dos poeminhos
+
 das sínteses na escola
 nasceram os poeminhos
 ---
 polaroid
+
 sorri com os mundo e sem
 piscar os mundos os olhos
-disfarçáveis que ao ver de
-perto revelam girassóis
-de Van Gogh
+disfarçáveis que ao ver 
+de perto revelam giras
+sóis de Van Gogh
 ---
 o café preto sem açúcar que
 mantém a poesia eufó rica
@@ -350,37 +376,44 @@ insuportável a facilidade
 com que você não me ama
 ---
 a poesia não botas
-ninguém para
+ninguém mais para
 correr
 ---
 a revolução dos bichos
+
 eu me dou melhor com os
 bichos do que com os
 animais
 ---
 cenas de um casamento
-sinto a sua falta de ar
+
+sinto a sua 
+falta de ar
 ---
 a voada amou
 ---
 a voz veio das nuvens
 fim da linha poeta____
 e então subi disfarçado
+
 ainda assim desconfiado
 ---
 aindo
+
 alguns só continuam ainda
 porque algumas coisas
-ainda são de graça
+- ainda - são de
+- graça
 ---
 até um bicho lida com a arte
 ---
-atraverso as tuas
+atraversando as tuas
 ---
 dá para sentir daqui o seu 
 bafo de ligação para ex
 ---
 band-aid
+
 bandos noturnos atrás
 de bares bandas e
 bundas
@@ -393,25 +426,31 @@ sofrendo da inanição poética
 violentam violetas
 ---
 entrevista de emprego
+
 “mas verdadeira até
 uma cobra-coral é”
 ---
 com licença poética...
+
 com todo o respeito
-eu não respeito você
+eu não respeito 
+você
 ---
 ouça bem: você é melhor que
 o solo de Comfortably Numb
 ---
 poeminho da elegância
+
 da academia eu 
 saí de fininho
 ---
 da solitude
+
 saudade de pôr um
 fim num amor
 ---
 da sucessão
+
 ele parou no tenho
 ---
 dando o redondo contra
@@ -426,6 +465,7 @@ estimação
 distraídos escreveremos
 ---
 do clubista
+
 quando você fala dos
 seus recordes você
 está falando dos
@@ -440,17 +480,19 @@ esqueço
 ---
 e o final todos nós sabemos
 um novo começo... se não
-para nós... para os outros...
+para nós... para os 
+outros...
 ---
 é vício ou é só exagero?
 ---
 Thom Yorke, have you ever heard of Yoñlu?
 ---
-a previsão era chuva de pedra
-e um asteroide cai na alma
+na previsão era chuva de pedra
+um asteroide cai na alma
 ---
 minha vida não passou 
-de um plágio mal feito
+de um plágio mal 
+feito
 ---
 o acaso me revelou um tesouro
 escondido na pacata região
@@ -462,6 +504,7 @@ qual doutor?
 uma autópsia
 ---
 Vincent
+
 tive um quadro
 e não o tratei
 ---
@@ -473,9 +516,9 @@ plágio
 ---
 você é fã do jogador?
 é óbvio ele é craque
-então cite três casos de
-violência sexual que
-ele cometeu
+então cite três casos 
+de violência sexual 
+que ele cometeu
 ---
 se comparassem nossas artes
 você teria ampla paisagem
@@ -487,10 +530,10 @@ achar tão engraçado
 perdida no barzinho pedido
 ---
 sobre a minha passagem meu
-pai sempre me deu pistas de
-danças dos anos 80
+pai sempre me deu pistas 
+de danças dos anos 80
 ---
-esperando-o se confessar mais fraco
+esperando-a se confessar mais fraca
 ---
 uma vida com vários protagonistas
 ---
@@ -523,11 +566,11 @@ escreva tudo para fora!
 estimular a fama para excitar a arte
 ---
 fazem de tudo para 
-não me fazer nada
+não fazer nada
 ---
 não procuro atender as expectativas
-das outras pessoas até porquê estou
-sempre silencioso
+das outras pessoas até porquê 
+estou sempre silencioso
 ---
 psicanalista cobra por explicações suas
 ---
@@ -579,16 +622,19 @@ pontos do que vírgulas,
 tenho pouco tempo de morte
 ---
 problemas com as drogas?
+
 não se preocupe nós podemos
 ajudar com um preço muito
 melhor
 ---
 por que as relações abertas 
-estão cada vez mais abertas?
+estão cada vez mais 
+abertas?
 ---
 eu andei pensando melhor no que
-você disse e eu acho que realmente...
-...eu tenho toda a razão
+você disse e eu acho que 
+realmente... eu tenho 
+toda a razão
 ---
 aqui só sobrou a carcaça da poesia
 ---
@@ -596,7 +642,7 @@ sob perspectivas religiosas filosóficas
 e científicas a morte é a mesma:
 o in-provável
 ---
-a vida é tão by now
+a vida é tão by now...
 ---
 então quer dizer que daqui há
 cento e cinquenta anos todo
@@ -677,7 +723,8 @@ nunca é só um poema
 ódiododiadia...
 ---
 por que pisar em uma 
-peça de ego dói tanto?
+peça de ego dói 
+tanto?
 ---
 sem sombra de dívidas
 ---
@@ -685,13 +732,16 @@ o louco inventa um carro voando
 o gênio cria um carro que voa
 ---
 a natureza humana provê condições
-de trabalho visando sempre o verde
+de trabalho visando sempre o 
+verde
 ---
 Leonardo DiCaprio
+
 “o sim você já tem”
 ---
 porque agora acabou para você
 e eu para o adeus final não
+
 *para o adeus inicial
 ---
 as pessoas não são infinitas masas 
@@ -699,6 +749,7 @@ suas almas se expandem o tempo
 todo
 ---
 Desistir de Tudo em Todo o Lugar ao Mesmo Tempo
+
 fantasia/ficção científica
 ---
 “noticiário informa tragédia sorrindo”
@@ -727,6 +778,7 @@ e por fim estiveram mais perto
 um do outro
 ---
 Van Gogh em preto e branco
+
 talvez algum dia desses
 você me encontre por aí
 nos olhos de outro homem
@@ -743,19 +795,22 @@ mais do amor ou fala mais
 da fila do amor?
 ---
 a dor estrelada
+
 Van Gogh encontrava-se em
 saint-rémy-provence curando
 enfermeiros e tratando as
 estrelas
 ---
 términos
+
 me livro de você me
 sinto mais preso
 ---
 preto o halls da fama
 ---
 o amor oscila entre 
-o desejo e a oscilação
+o desejo e a oscil
+ação
 ---
 poesia nada mais é
 que menos não ser
@@ -773,15 +828,17 @@ para que não seja mais volta
 não confio em gente que não mente
 ---
 as pessoas não têm medo
-de se relacionar elas têm
-fobia
+de se relacionar elas 
+têm fobia
 ---
 filmes de terror modernos
+
 “Eu Sei O Que Vocês Fizeram No Amor Passado”
 ---
 escritor é aquele brincando de eus
 ---
 diferença do mas e mais
+
 eu te amo mas eu 
 não te amo mais
 ---
@@ -789,6 +846,7 @@ já imaginou seus próprios olhos
 descobrindo a poesia já imaginou
 suas próprias mãos descobrindo
 o poema
+
 para Airton Engster dos Santos
 ---
 daí eu escrevi uma poesia...
@@ -811,6 +869,7 @@ escreve nu
 plano odontológico ticket alimentação
 refeição na empresa auxílio educação
 participação de lucros ou transporte?
+
 precisa escolher um desses
 ---
 não pretendo ser bissexual
@@ -844,6 +903,7 @@ especialmente como artista
 tá gravando?
 ---
 o último poema de Vinícius Knecht
+
 e de vez em quando eu vou
 aparecer como anjo e você
 vai me ver como um fantasma
@@ -873,6 +933,7 @@ artes
 amor dispensa curiosos
 ---
 “amor”
+
 paixão é amor entre
 aspas e beijos
 ---
@@ -881,8 +942,11 @@ idade não faziam sentido aos
 trinta passaram a fazer
 ---
 depressão é um cacto que
-sente os próprios espinhos
+sente os próprios 
+espinhos
 ---
+cenas de um casamento 
+
 saudade é quando tudo
 finalmente em caixa
 ---
@@ -891,6 +955,7 @@ ter tempo com algumas certas
 dores não é ter tempo
 ---
 esquerda e direita
+
 não olha mas tem um cara sentado numa
 mesa à nossa direita falando sozinho
 (...)
@@ -923,20 +988,23 @@ na verdade foi você fazendo
 o papel dela
 ---
 no amor você se machuca 
-fácil vestindo armaduras
+fácil vestindo arma
+duras
 ---
 casal fitness fazia levantamento de
 peso para ver quem levantava mais
 a voz
 ---
 desconhecidos íntimos
+
 já faz tanto tempo
 parece que foi
 outrem
 ---
 você é uma daquelas poesias
-que eu leio e penso eu queria
-ter escrito isso
+que eu leio e penso eu 
+queria ter escrito 
+isso
 ---
 eu só acredito que é amor
 quando eu não estou acre
@@ -956,6 +1024,7 @@ eu só sinto você dizer
 eu te amo entre aspas
 ---
 Lars Von Trier Doce Lars
+
 ele parecia estar sempre
 se despedindo daquele 
 mundo e isso o encan
@@ -978,6 +1047,7 @@ com uma banda melhor que
 Beatles meu filho
 ---
 artistas
+
 pagando bem eu 
 faço até de 
 graça
@@ -996,11 +1066,13 @@ minha dores e depois sofrer elas
 como se fosse... a primeira vez
 ---
 meu trote universitário
+
 ligaram para dizer que passei
 no vestibular depois disseram
 que era um trote
 ---
 Yoñlu
+
 olhei para o céu para sofrer
 caiu a pena de um anjo acho
 que a gente sofre parecido
@@ -1019,6 +1091,7 @@ a melhor comida do mundo é
 a sua e eu posso provar
 ---
 a violência que mora em mim
+
 é tanto gatilho que
 possuo um arsenal
 ---
@@ -1059,6 +1132,7 @@ aposto que a gente vai dar
 certo os apostos se atraem
 ---
 apaixonados pela madrugada
+
 que horas parece agora?
 ---
 fique longe de quem
@@ -1078,6 +1152,7 @@ dores não quiseram receber
 o prêmio
 ---
 tarja poeta
+
 escrevo para 
 cicatrizar
 ---
@@ -1116,15 +1191,19 @@ teve uma crise de ansiedade
 logo tratei de acalmá-lo
 ---
 sonhos de valsa
+
 éramos garotos se perguntando
 como chegar nas garotas hoje
 apenas homens vendendo as
 suas velhas guitarras
 ---
 poeminho do tapete
-não prepare a bagunça
+
+não prepare 
+a bagunça
 ---
 poeminho da travessia
+
 sinto dentro de mim um
 bando à nado abandonado
 ---
@@ -1151,6 +1230,7 @@ não me conheço por
 gente
 ---
 amores modernos
+
 foi perfeito mas
 eu esperava mais
 ---
@@ -1170,14 +1250,15 @@ esse tempo todo em cima
 da cama
 ---
 é como se o olho mágico
-fosse de fora para dentro
+fosse de fora para 
+dentro
 ---
 amor é a minha 
 palavra pré 
 ferida
 ---
 acordei ao som de passarinhos
-cantando wonderwall
+cantando Wonderwall
 ---
 morte escreve poesia à lápide
 ---
@@ -1186,6 +1267,7 @@ odeio na vida é me sentir
 superior a alguém
 ---
 sensível
+
 eu não saberia sequer
 entrar num ringue
 ---
@@ -1210,6 +1292,7 @@ aceita uma carona?
 não
 ---
 pais e filhos
+
 nossos velhos só querem
 aproveitar a juventude
 ---
@@ -1222,6 +1305,7 @@ do parto parti para
 a parte que parte
 ---
 poeminho do suicídio
+
 se tudo isso passar saiba
 saiba que eu me precipitei
 ---
@@ -1231,11 +1315,14 @@ quero virar poeira
 de dr em relacionamento já sou doutor
 ---
 cinema
+
 eu era o dublê da
 minha namorada
 ---
 Kurt Cobain
-depressão: evitar gatilhos
+
+depressão: 
+evitar gatilhos
 ---
 meu gato miando em cima da
 pia sorte dele a minha 
@@ -1285,6 +1372,7 @@ vontade de trocar de psicólogo
 respondeu o paciente
 ---
 a.B e d.B
+
 antes de Beatles
 depois de Beatles
 para John Lennon
@@ -1297,20 +1385,24 @@ acaba ficando com o amor
 que estiver mais perto
 ---
 antes do amanhecer
+
 num encontro romântico as
 perguntas despidas são mais
 importantes que as respostas
 vestidas para impressionar
 ---
 as virtudes do interesse próprio
+
 o que faz uma pessoa parecer
 sexualmente atraente segundo
 a ciência? ser cientista
 ---
 sobre um beijo do gordo
+
 Jô Soares não querendo
 interromper a sua morte
 mas já interrompendo...
+
 em memória de José Eugênio Soares
 ---
 antigamente as pessoas criticavam
@@ -1330,6 +1422,7 @@ corrigir um amor?
 de date p/ hate
 ---
 deu um branco
+
 suspeito por andar embriagado em
 sua bicicleta é preso nos EUA nesta
 terça-feira polícia alega que o su
@@ -1337,10 +1430,12 @@ jeito pego em flagrante era
 preto
 ---
 direitos autorais
+
 pode plagiar meu corpo em suas
 fantasias mas devolva o direito de
 meu prazer inserido em seus mo
 vimentos
+
 por Norton de Souza Soares e Vinícius Knecht
 ---
 não sou um paciente diagnosticado
@@ -1355,11 +1450,13 @@ segredo da vida e a vida
 me punir
 ---
 Edgar Allan Poe
+
 tudo o que amei amei com
 milhões de outras pessoas
 amando
 ---
 previsão para o funeral
+
 nas conversas vai chover
 ele era tão ele era tão 
 ele era tão
@@ -1368,10 +1465,12 @@ especialistas analisam em que
 situação ainda é indicado amar
 ---
 quintando-se
+
 eu que nem saí do meu quarto
 já sei que o dia está lindo
 ---
 Vincent van Gogh
+
 se a vista da janela for assustadora
 faça de conta que ela é um quadro
 ---
@@ -1382,11 +1481,13 @@ gosto que desafina porque
 daí sinto que é ao vivo
 ---
 Jim & Pam
+
 entre quatro paredes
 quebrando a quarta
 parede
 ---
 Julia Dream
+
 trocamos olhares 
 agora tenho olhos 
 azuis
@@ -1404,6 +1505,7 @@ mais cedo para a minha vida
 em memória de José Eugênio Soares
 ---
 mãos ocupadas
+
 amei a companhia de vocês
 a meia companhia de vocês...
 ---
@@ -1432,6 +1534,7 @@ janela o mais importante é o
 que está dentro de você
 ---
 Titanic
+
 para saber o rumo que vou tomar
 preciso saber o rumo de outras
 pessoas
@@ -1440,6 +1543,7 @@ e de repente percebi que os meus
 objetivos não eram os meus sonhos
 ---
 um poeminho para Manoel de Barros
+
 eu me mato
 eu me floresto*
 ---
@@ -1449,6 +1553,7 @@ mortas que nunca foram
 veladas
 ---
 prisão
+
 então assista um filme de prisão em
 memória ao meu nome isso não é nada
 que você queira ouvir mas se você ler
@@ -1466,6 +1571,7 @@ algo como se nós já nos conhecêssemos
 talvez a melhor coisa que eu tenha
 descoberto no fim é que eu sempre
 fui o mesmo
+
 por Yoñlu e Vinícius Knecht
 ---
 transforme traumas em alívio
@@ -1497,6 +1603,7 @@ vai conseguir e eu vou
 deixa-las lroucas
 ---
 intimidade
+
 você pode ficar lá fora um pouco?
 eu não gostaria que você me visse
 tomando os meus medicamentos
@@ -1505,6 +1612,7 @@ Abujamra o que é... a... morte...?
 em memória de Antônio Abujamra
 ---
 anjos na guitarra
+
 você chegou no solo antes que eu
 ---
 nunca trate como biblioteca
@@ -1520,6 +1628,7 @@ me senti herói de guerra
 Under Pressure!
 ---
 El Chavo Del Olcho
+
 Seu Madruga:
 Chavinho você acredita que exista
 vida inteligente fora da terra?
@@ -1527,6 +1636,7 @@ Chaves:
 mas nem na terra existe ué
 Seu Madruga:
 tens razão Chavinho! tens razão!
+
 em memória de Ramón Valdés
 ---
 ao elogiar a minha poesia ela
