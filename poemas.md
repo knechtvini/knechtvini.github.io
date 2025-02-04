@@ -1,6 +1,17 @@
 ---
 layout: default
 ---
+os animais estão comentando
+---
+acadêmico
+estudioso
+dedicado
+visitou dezenas
+de clínicas
+psiquiátricas
+todas elas
+paciente
+---
 quando o próximo passo é
 o tropeço quando o próximo
 tropeço é a queda
