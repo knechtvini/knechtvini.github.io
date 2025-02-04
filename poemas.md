@@ -1,6 +1,25 @@
 ---
 layout: default
 ---
+espero 
+que consegui
+porventura 
+finalmente
+descobrir
+que de maneira
+não definitiva
+eu não sei o
+que quero
+---
+eu sempre tive tudo na
+vida comida roupa teto
+brinquedo depressão
+---
+sabe aquele comediante que
+escondia uma depressão?
+então... eu sequer fui
+comediante
+---
 eu vou do inferno ao seu
 ---
 DSM-5 edição de bolso
