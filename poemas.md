@@ -1,6 +1,53 @@
 ---
 layout: default
 ---
+poeta tem a
+mesmíssima
+respons-
+habilidade
+dos passarinhos
+---
+ela me encolheu
+virei o seu afeto
+---
+traição quatro rodas
+---
+sempre perdi ajuda
+nos momentos de
+grandes crises
+---
+eu sinto muito a sua fala
+---
+a sua morte foi uma
+surpresa com alarmes
+tocando No Surprises
+---
+relacionamento CTRL+C
+CTRL+V relacionamento
+---
+você vive repetindo
+coisas diferentes
+---
+RD
+
+parão
+à’d/e/mite
+ser um
+idiota
+---
+ambiguidade
+
+não há tantos
+inimigos assim
+---
+amor líquido sem álcool
+---
+asar no amor
+---
+a manhã em que ela nunca voltou
+---
+a vaga foi pro bêjo
+---
 é impressionante como você é bom
 nisso que você faz quando estuda
 muito e trabalha duro todos os
