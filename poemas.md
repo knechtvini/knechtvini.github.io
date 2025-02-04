@@ -1,6 +1,26 @@
 ---
 layout: default
 ---
+fantasma só vai te assustar
+quando você for um deles
+---
+se você não cria logo 
+logo alguém vai e 
+copia
+---
+me diz o que será da humanidade
+no dia em que não haverá mais
+madeiras para bater três vezes
+---
+mais biblio
+mas menos
+bíblia
+---
+depressão
+
+mais goteiras dentro
+do que chuva lá fora
+---
 qual foi a última 
 mente que você 
 leu?
