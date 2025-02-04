@@ -1,6 +1,15 @@
 ---
 layout: default
 ---
+está pronta deixei a nave ligada
+consegue ser um pouquinho 
+mais rápida você está per
+feita está bem o preto 
+então
+---
+deve haver alguma espécie
+de dignidade no Instagram
+---
 vamos F5 no amor?
 ---
 felicidade pós-renascimento
