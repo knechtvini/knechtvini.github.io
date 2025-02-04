@@ -1,6 +1,24 @@
 ---
 layout: default
 ---
+quando o próximo passo é
+o tropeço quando o próximo
+tropeço é a queda
+---
+o que a NASA tanto comemora
+que vive soltando foguetes?
+---
+Deus sabe o que Diabos
+tinha na cabeça
+---
+evite o que não mexe
+com você emocional
+mente
+---
+alguma placa no ventre
+escrito “obrigatório
+conformar-se”
+---
 no futuro você vai rir das
 minhas piadas porque vai
 descobrir que eu estava o
