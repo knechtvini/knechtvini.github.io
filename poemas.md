@@ -1,6 +1,19 @@
 ---
 layout: default
 ---
+morador do bairro Planalto
+idoso cai em golpe de
+karatê e perde outro
+ente
+---
+Hans Zimmer tic-toc-
+ando no seu mundinho
+---
+hilário insuficiente
+o meu vocabulário
+---
+live de velório
+---
 todo o esgotamento de um artista 
 está no sintoma de que uma espécie 
 de entidade precisa dizer você é 
