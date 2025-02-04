@@ -1,6 +1,26 @@
 ---
 layout: default
 ---
+no futuro você vai rir das
+minhas piadas porque vai
+descobrir que eu estava o
+tempo todo falando sério
+---
+o amigo agora é outro
+---
+evite descanso repouso sono
+e terapia o capitalismo 
+precisa de você
+---
+o importante é dar o último passo
+---
+o mais importante não é
+vencer a depressão o mais
+importante é competir
+---
+súbitas ondas de ódio
+o mar é tão gentil...
+---
 depressão mata ansiedade mata
 não inventei nenhuma carta
 ---
