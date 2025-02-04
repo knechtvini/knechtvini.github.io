@@ -1,6 +1,71 @@
 ---
 layout: default
 ---
+“penso que nos adaptamos muito
+bem ao sistema capitalista até
+economizamos um pouquinho
+de saúde mental”
+---
+você pode ser uma boa pessoa
+e só você achar isso você pode
+ser a melhor pessoa do mundo
+e só você achar isso
+---
+nunca se viu tanta gente
+fazendo tanta mas tanta
+- força - para amar
+---
+ao menos morreu vivendo
+---
+arte é a forma ilimitada de
+sermos outros mesmos
+---
+rir pra não RIP
+---
+rock ‘n’ roll é salvo por populares
+---
+não necessariamente um ser
+inteligente mas um ser pro
+fundo sem ser entediante
+---
+antigamente amor podia cair
+de penhasco e era socorrido
+com vida
+---
+amor toca a companhia 
+e sai correndo
+---
+a-mor-te-ce tê-las
+que me arranham
+---
+a vida é uma piada
+por isso vale a 
+pena
+---
+acolham flores amores
+sobre-tudo encolhidos
+---
+justiça com as próprias mães
+
+ah se o mar fosse no feminino...
+---
+amar sem anestesia geral
+---
+a caça
+
+não tinha a menor ideia
+de qual olhar ainda mais
+o que aquele olhar lhe
+ameaçava mas instintiva
+mente cismava se 
+defender
+---
+a necessidade da escrita a
+necessidade de ser artista
+dizer algo como se fosse
+o primeiro e o último 
+ser humano
+---
 causa
 
 eu vou lutar para que o
