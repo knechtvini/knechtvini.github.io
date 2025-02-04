@@ -1,6 +1,15 @@
 ---
 layout: default
 ---
+qual foi a última 
+mente que você 
+leu?
+---
+quando não estou 
+morrendo escrevo
+
+para Clarice Lispector
+---
 redes sociais
 
 a minha única preocupação é
