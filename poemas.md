@@ -1,6 +1,25 @@
 ---
 layout: default
 ---
+poetisa que tanto te
+resprido ôxe gênia
+mas é Clar...
+---
+Matty
+
+por que fizeram eu
+me sentir especial
+- deste - jeito?
+---
+me corrija se eu estiver
+certo da sua maneira
+---
+quando eu começava a com
+prender o mundo estranho
+e louco mundo dos artist
+as já era hora de morrer 
+de novo
+---
 fantasma só vai te assustar
 quando você for um deles
 ---
