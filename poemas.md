@@ -1,6 +1,75 @@
 ---
 layout: default
 ---
+é impressionante como você é bom
+nisso que você faz quando estuda
+muito e trabalha duro todos os
+dias mas me conta qual é o
+segredo
+
+100% Jesus
+---
+então me diga que me
+ama dentro das 
+normas ABNT
+---
+achei que viria um amor
+meu time foi campeão
+do mundoachei que 
+finalmente viria um amor 
+e ganhei na mega-sena
+---
+Adolfo você está com
+os séculos contados
+Adolfo...
+---
+por favor alguém não tenha
+escrito isso antes eu 
+imploro
+---
+Alho e óleo sobre a tela
+
+Nome: Pedra
+Data: No meu caminho
+
+Estudo
+---
+se você está lendo isso eu já estou vivo
+se você está lendo isso eu já estou vivo
+se você está lendo isso eu já estou vivo
+se você está lendo isso eu já estou vivo
+se você está lendo isso eu já estou vivo
+---
+segund
+amo logo
+cedinho
+---
+tédio e sexo ruim só
+depois do casamento
+---
+tenho errado passos que
+não costumo acertar
+---
+tu tropeças teatrais
+---
+amor você acha que se 
+eu soltar um pum aqui 
+o fedor chega até aí?
+---
+tem coisa mais linda
+que uma palavra usan
+do um vestido todo 
+vermelho?
+---
+você é a primeira vez
+que eu escrevo isso
+---
+você e feito especial
+---
+é claro que eu te amo querida
+mas eu vou fazer o meu feijão
+com arroz
+---
 os animais estão comentando
 ---
 acadêmico
