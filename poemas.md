@@ -1,6 +1,24 @@
 ---
 layout: default
 ---
+vamos F5 no amor?
+---
+felicidade pós-renascimento
+---
+ficou para a história
+
+o rico da família que na verdade
+era milionário foi o único que
+literalmente brigou com os
+seus irmãos pela herança
+e este vai ser o roteiro
+do meu próximo 
+filme
+---
+tropeçamos na vida deitamos
+no chão fizemos amor para
+disfarçar
+---
 espero 
 que consegui
 porventura 
