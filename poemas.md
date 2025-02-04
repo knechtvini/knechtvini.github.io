@@ -47,9 +47,10 @@ eu era muinto mais feliz
 ---
 vinte e quatro anos de análise descobri 
 ao lado do meu analista é claro que a 
-grande causa do meu complexo de rejeição 
-se deve ao fato de que eu fui rejeitado 
-a vida toda faz a conta
+grande causa do meu complexo de 
+rejeição se deve ao fato de 
+que eu fui rejeitado a vida 
+toda faz a conta
 ---
 continho
 
