@@ -1,6 +1,19 @@
 ---
 layout: default
 ---
+silêncio Ludving van
+Beethoven eu não quero
+ouvir mais um piano
+---
+Beto fá anal si senhô
+---
+nos bloqueios criativos ele 
+escreve sobre bloqueios 
+criativos
+---
+Capítulo 1
+0 final
+---
 você está vencida eles
 dizem ou pior eles
 pensam
