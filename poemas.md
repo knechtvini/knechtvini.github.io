@@ -1,6 +1,28 @@
 ---
 layout: default
 ---
+redes sociais
+
+a minha única preocupação é
+o número de curtidas no post
+que vai anunciar a minha
+morte
+---
+prega mais por
+pregos do que...
+---
+a carta do descobrimento
+
+meu deus eu já
+plagiei Pero Vaz
+de Caminha
+---
+os olhos como diz algum
+provérbio são a janela 
+da alma poetas pre
+ferem que sejam 
+portas
+---
 melhores amigos com
 participação especial
 de amor
