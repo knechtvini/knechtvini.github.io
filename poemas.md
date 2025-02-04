@@ -1,8 +1,14 @@
 ---
 layout: default
 ---
+depressão mata ansiedade mata
+não inventei nenhuma carta
+---
+há lilás não quero
+te verde novo
+---
 poetisa que tanto te
-resprido ôxe gênia
+respira ôxe gênia
 mas é Clar...
 ---
 Matty
