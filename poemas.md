@@ -1,6 +1,44 @@
 ---
 layout: default
 ---
+os fascistinhas carinhosos
+
+só ouço os vizinhos cochicharem tanto
+porque na verdade eles estão gritando
+---
+não há nada mais solitário
+na história que um dente
+de ouro
+---
+você com alguma sombra de dúvidas
+é uma das melhores pessoas que eu
+não conheci em toda a minha vida
+---
+vermelhos
+
+deves tocas um corpo
+imperceptivelmente
+avermelhor todas 
+as suas nuanças
+---
+Mario disse que um cachorro
+serve para a gente falar so
+zinho não seria mais fácil 
+ser louco sem ter um 
+cachorro em casa?
+---
+tinder
+
+suas fotos é
+conversa para
+oi dormir
+---
+the yoñlu
+
+o Pipoca estourou no
+mundo todo e só não
+ouve quem não quer
+---
 “penso que nos adaptamos muito
 bem ao sistema capitalista até
 economizamos um pouquinho
