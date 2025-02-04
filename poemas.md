@@ -1,6 +1,60 @@
 ---
 layout: default
 ---
+causa
+
+eu vou lutar para que o
+poeta contemporâneo
+seja chamado de
+doutor
+---
+doutorado em poeta
+---
+poema de tiozão
+
+eu nunca vou me perdoar por
+ter dado margem ao rio num
+poema tão sério de tio
+---
+em t o d o s romances ela
+colocava os mesmos versos
+mas de músicas diferentes
+---
+o leitor na obrigação de despertar
+insiste em ler dormindo
+---
+abundantemente ltda.
+---
+o que você faz com os olhos?
+lentes fotográficas
+---
+tenho medo de inventar
+algo que não me
+reinvente
+---
+quando olho minhas fot. 
+de quando eu era criança
+engraçado que parece 
+que eu era mais 
+velho
+---
+um fantasma do seu lado
+enquanto você assiste
+Ghost
+---
+qual o tamanho do seu
+documento no world?
+---
+pela aliança notou que ela
+apresentava péssimo gosto
+então investiu
+---
+eu passei por um passarinho ca
+minhando enquanto chovia que 
+me parou para perguntar se eles 
+sempre passarão bom apenas 
+respondi com licença e voei
+---
 Quer publicar o seu livro?
 Todos os direitos desta edição
 retirados do autor
