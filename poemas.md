@@ -9,7 +9,7 @@ Matty
 
 por que fizeram eu
 me sentir especial
-- deste - jeito?
+"deste" jeito?
 ---
 me corrija se eu estiver
 certo da sua maneira
