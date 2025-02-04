@@ -1,6 +1,23 @@
 ---
 layout: default
 ---
+melhores amigos com
+participação especial
+de amor
+---
+seu animal político
+é apenas um 
+animal
+---
+pirei parei na Pinel
+---
+não existe poesia
+do seu tamanho
+a ideia é nunca
+existir
+---
+decidi pôr um fio
+---
 morador do bairro Planalto
 idoso cai em golpe de
 karatê e perde outro
