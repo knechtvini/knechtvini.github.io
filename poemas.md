@@ -1,6 +1,12 @@
 ---
 layout: default
 ---
+todo o esgotamento de um artista 
+está no sintoma de que uma espécie 
+de entidade precisa dizer você é 
+artista para que ele então se sinta 
+um
+---
 está pronta deixei a nave ligada
 consegue ser um pouquinho 
 mais rápida você está per
