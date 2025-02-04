@@ -1,6 +1,31 @@
 ---
 layout: default
 ---
+eu vou do inferno ao seu
+---
+DSM-5 edição de bolso
+---
+opinião pública
+(atualizado 2025)
+
+“eu não acho Einstein tudo isso”
+---
+elogios contemporâneos
+
+“ela é tão artista”
+---
+história de um romance moderno
+
+erra uma vez fim
+---
+conto “o mistério da matemática”
+
+eu conto ou vocês contam
+---
+infância
+
+eu era muinto mais feliz
+---
 vinte e quatro anos de análise descobri 
 ao lado do meu analista é claro que a 
 grande causa do meu complexo de rejeição 
