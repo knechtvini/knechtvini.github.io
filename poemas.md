@@ -1,6 +1,14 @@
 ---
 layout: default
 ---
+você está vencida eles
+dizem ou pior eles
+pensam
+---
+lamento você fala comigo
+com sintoma não com
+sentimento
+---
 os fascistinhas carinhosos
 
 só ouço os vizinhos cochicharem tanto
