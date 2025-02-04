@@ -1,6 +1,29 @@
 ---
 layout: default
 ---
+vinte e quatro anos de análise descobri 
+ao lado do meu analista é claro que a 
+grande causa do meu complexo de rejeição 
+se deve ao fato de que eu fui rejeitado 
+a vida toda faz a conta
+---
+continho
+
+junto ao corpo suicida no bolso 
+da sua calça rasgada depararam
+-se com um bilhete premiado da
+loteria do dia que já havia cor
+rido ele já estava bem-decidido
+---
+é crédito ou plágio?
+---
+estou em ruínas há mais de
+trinta anos alma mutilada
+mente não restaurada con
+servado em ruínas para que
+ninguém possa culpar-me de 
+não ter sofrido o bastante
+---
 silêncio Ludving van
 Beethoven eu não quero
 ouvir mais um piano
