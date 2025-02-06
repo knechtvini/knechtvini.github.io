@@ -1,6 +1,61 @@
 ---
 layout: default
 ---
+uma lápide é marcada 
+com um logotipo
+---
+políticos deixando
+cada vez mais le
+gados
+---
+leia um livro
+agora
+senão você
+vai morrer
+---
+6.
+
+decidi que o meu sangue de
+inocência aos sorrisos dos olhos
+virão no dia do meu aniversário
+estou velho demais para impedir
+anseio pelo descanso e que não
+chegue no meio da noite então
+lamente duas vezes no mesmo
+dia
+---
+posso decidir não sorrir mais
+sem ser interrogado por isso
+o meu personagem morre no
+final já é o final
+---
+halls preto não faz 
+a porra de porra
+nenhuma 
+---
+Inteligência Artificial
+se quer entende uma
+piada
+---
+eu te amo certo
+certo entendi e quais 
+as novidades do 
+novo iPhone?
+não vem amor
+---
+fiz um café ridículo e não
+escrevi nada que preste
+pelo menos estou aqui
+prestando contas
+---
+não lembro se escrevi
+não lembro se senti
+está tudo tão rá
+---
+eu não posso te ouvir 
+se você continuar
+gritando
+---
 a lua pisou no amor pela primeira
 vez no dia __/__/__ mas foi tudo 
 inventado e o Stanley Kubrick 
