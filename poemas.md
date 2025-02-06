@@ -1,6 +1,20 @@
 ---
 layout: default
 ---
+quantas vezes eu já me
+despedi da vida em
+sonho e é tão bom
+acordar...
+---
+ela jurou que me amava
+você não sabe que hoje
+em dia os efeitos espe
+ciais estão cada vez
+melhores?
+---
+brincando de esconde-
+esconde em poesia
+---
 diz ti nada
 ---
 é hora de bater o ponto
