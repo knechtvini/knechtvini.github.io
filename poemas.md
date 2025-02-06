@@ -1,6 +1,20 @@
 ---
 layout: default
 ---
+pobre e honesto e vendo
+vaga na fila
+---
+você está me escondendo
+alguma coisa eu sei...
+é só uma aliança amor
+---
+qui QI mais baixinho!
+---
+toda a rodoviária de
+veria vender flores
+e os meus versos
+tãobém
+---
 a dor está no ar
 ---
 a minha sorte é que eu não
