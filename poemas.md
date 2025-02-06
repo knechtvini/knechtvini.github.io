@@ -1,6 +1,30 @@
 ---
 layout: default
 ---
+chefe o senhor poderia me
+dar trabalho em dobro a
+manhã é que a minha vida
+pessoal está uma merda
+---
+os pobres morrem de fome em massas
+---
+eu te amo mas
+não leve para
+o lado pessoal
+---
+a natureza é bonita por natureza
+---
+lembranças da infância
+lambanças na velhice
+escrevo apenas o 
+que nunca disse
+---
+com relação às relações
+me corrija se eu 
+estiver correto
+---
+meu perfume no céu
+---
 uma lápide é marcada 
 com um logotipo
 ---
