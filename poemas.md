@@ -1,6 +1,24 @@
 ---
 layout: default
 ---
+será que eu vou assistir o seu
+show ou será que vou aprender 
+a não dançar no final?
+---
+desculpa a palavra eu
+achei que era só
+poesia
+---
+"Deus é tudo o que eu tenho na vida"
+"Grêmio é tudo o que eu tenho na vida"
+"Bolsonaro é tudo o que eu tenho na vida"
+---
+nosso dia verde e azul
+---
+eu te quero dos pés ao pescoço
+---
+e pôr fim.
+---
 você parece tão
 cansada e feliz
 tão cicatrizada
