@@ -1,6 +1,18 @@
 ---
 layout: default
 ---
+condecorado
+
+o conselho nacional da saúde lhe 
+dará uma medalha por você ter 
+sobrevivido mais de doze 
+anos neste estado
+---
+levando em consideração todas as
+variáveis e dificuldades conhece
+mos mais do espaço e do oceano
+do que da poesia
+---
 e você a ama?
 meu bem até o jeito 
 que ela lava a louça 
