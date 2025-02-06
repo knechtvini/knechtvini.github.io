@@ -1,6 +1,25 @@
 ---
 layout: default
 ---
+em um
+bar
+co
+em algum
+verso nos
+en
+contra
+remos
+---
+amor líquido sem álcool
+---
+ontem você salivava na minha
+boca e hoje nós nos transfor
+mamos na letra da música
+Somebody That I Used 
+To Know
+---
+eu sou uma bicha no mato
+---
 você está me escondendo
 alguma coisa
 é só uma aliança amor
