@@ -1,6 +1,22 @@
 ---
 layout: default
 ---
+diz ti nada
+---
+é hora de bater o ponto
+é hora de ir para casa
+é hora de bater as asas
+o céu espera a coragem
+---
+escrevo para mim
+e nunca respondo
+---
+e qual é a sua história?
+hum você tem tempo?
+todo
+então vá aproveita-lo
+porque eu não tenho
+---
 você emprestou-se de corpo
 e alma agora eu daria 
 minhas mãos para 
