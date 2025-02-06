@@ -1,6 +1,20 @@
 ---
 layout: default
 ---
+veículos
+
+artista rebaixado 
+por veículos de 
+imprensa
+---
+me aposentar e 
+vender a minha 
+praia
+---
+você está meio normal
+aconteceu alguma
+coisa?
+---
 mas se eu seguir o meu caminho
 eu teria que escrever 
 por você?
