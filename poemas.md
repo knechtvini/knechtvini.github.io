@@ -1,6 +1,22 @@
 ---
 layout: default
 ---
+felicidade não traz dinheiro
+---
+somos artistas Vinícius nós não
+passamos por borboletas como
+se fôssemos formiguinhas e 
+nós jamais ofenderíamos 
+as formigas
+---
+folhear árvores e árvores e
+---
+Inteligência Artificial é réu primária
+---
+delinquente cai em golpe das
+fake news e acaba espalhan
+do notícia verdadeira
+---
 corrigi tanto o meu romance
 que virou autobiografia
 ---
