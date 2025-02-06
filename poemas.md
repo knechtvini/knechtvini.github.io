@@ -1,6 +1,13 @@
 ---
 layout: default
 ---
+se eu não dormir agora
+eu perco o bônus
+amanhã
+---
+busco conexões desconectado
+você está recebendo?
+---
 está cada vez mais
 difícil te fazer ler
 ---
