@@ -1,6 +1,43 @@
 ---
 layout: default
 ---
+como a natureza ousa
+invadir os humanos?
+---
+oi tudo bem como estava
+o funeral do Vinícius?
+não tinha sinal wi-fi
+você acredita nisso?
+---
+um morto senta na praça
+afinal de contos não dá
+para lhe seguir o tempo
+todo
+---
+costurar papinho furado
+---
+sou amador em tudo o 
+que faço mas cumpro
+todos os meus 
+horários
+---
+depender de dom e de
+vocação pode ser mui
+to perigoso
+---
+ego sujo e mundo
+---
+ele é um bom poeta
+ele é incrível mas
+aposto que ele já
+matou alguém
+---
+apagaram-me completamente o
+meu amor verdadeiro da minh
+a mente porque assim o quis 
+o encontrei e me apaixonei
+nova mente
+---
 preciso sair daqui
 mas não posso es
 quecer de mim
