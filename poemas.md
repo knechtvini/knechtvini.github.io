@@ -1,6 +1,16 @@
 ---
 layout: default
 ---
+vejo as suas asas 
+nos seus olhos
+---
+benzedeira ou Benzetacil
+ver preços pesquisar
+---
+do xadrez para
+choque mata
+quê pena
+---
 condecorado
 
 o conselho nacional da saúde lhe 
