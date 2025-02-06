@@ -1,6 +1,21 @@
 ---
 layout: default
 ---
+líquido
+
+parece que eu conheço
+um dia todo
+---
+seria clichê demais
+terminar mal no
+final
+---
+um pai morre no parto
+---
+eles tiveram medo de
+ser um velho esquisi
+to como eu
+---
 às vezes só quem é idiota
 sabe o que é passar por
 isso
