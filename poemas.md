@@ -1,6 +1,29 @@
 ---
 layout: default
 ---
+a lua pisou no amor pela primeira
+vez no dia __/__/__ mas foi tudo 
+inventado e o Stanley Kubrick 
+que fez aquelas filmagens
+---
+me candidatei
+a ver a dor
+---
+além de amor eu
+não sinto nada
+por você
+---
+cenas de um casamento
+
+amor como foi o trabalho?
+bem eu te traí com o meu
+chefe lá no escritório...
+tudo bem você recebeu
+aumento ou foi promo
+vida?
+não...
+tudo bem
+---
 vejo as suas asas 
 nos seus olhos
 ---
