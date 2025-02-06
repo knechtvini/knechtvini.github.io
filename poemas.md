@@ -1,6 +1,24 @@
 ---
 layout: default
 ---
+às vezes só quem é idiota
+sabe o que é passar por
+isso
+---
+agora eu vou escrever
+só, sobre amor
+---
+solidão é solta após
+pagar aliança de
+quinze mil 
+reais
+---
+foi tão bom que
+eu nem escrevi
+---
+uma tatuadora autoral
+assina as tatuagens
+---
 sem se despedir de ninguém
 porque há mais de vinte 
 anos que vive ali sente
