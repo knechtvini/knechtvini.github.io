@@ -1,6 +1,105 @@
 ---
 layout: default
 ---
+louco não medicado 
+tem a droga da 
+razão
+---
+me dê uma razão para ser homem mil 
+flores poderiam desabrochar é a 
+vez que isso me acontece abra
+caminho nos dê menos espaço
+me dê uma razão para me 
+amar não adianta mais 
+chorar
+---
+me enfrento todos os
+dias costumo perder
+---
+me tiro na cabeça
+---
+meu amor foi uma febre
+---
+não quero o meu
+nome vinculado
+a mim
+---
+meus amores foram
+minhas maiores
+criações
+---
+minha poesia foi uma febre
+---
+monó logo
+
+para quem não
+sabe o Vini 
+foi
+---
+morrendo fazendo aquilo
+que mais gosta: viver
+---
+foram criados juntos na
+Alemanha do interior
+do Rio Grande do
+Sul
+---
+não fazia ideia do
+quanto eu existia
+---
+reparação histórica?
+não repara mundo...
+---
+humor
+
+do alto de uma bela
+sacada avistou que
+...não temos mais
+clima para isso...
+---
+não tenha medo de
+envelhecer tenha
+pavor e pânico
+---
+oi nós nos conhecemos?
+oi não mas eu te sigo
+nas ruas
+---
+o meu ser oscila entre 
+o não existir e a 
+ficção
+---
+“oportunidade de ouro
+para você ficar mais
+pobre!”
+---
+síndrome do pânico
+
+meu medo dirigiu-se
+às vias respirató
+rias
+---
+Maria dizia eu te amo para 
+Pedro que respondia para 
+Paulo
+---
+aconteceu um sinistro no
+quintal mal ensombrado
+---
+se bobear eu sou criança
+---
+numa História não se
+cobra ingresso se
+cobra passagem
+---
+se você não estiver
+muito detento você
+pode cair
+---
+só mamãe me acha indo
+---
+tenho sobrado pra cachorro
+---
 felicidade não traz dinheiro
 ---
 somos artistas Vinícius nós não
