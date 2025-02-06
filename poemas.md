@@ -1,6 +1,27 @@
 ---
 layout: default
 ---
+eu sei muito bem
+o meu tamanho
+infelizmente...
+---
+você costuma a se questionar por
+que ela tem o olhar de amiga
+quando na verdade você
+sente que ela é o seu
+amor
+---
+tão tentador quanto teclas de
+um piano ancião intocável tão
+intocável canção livros no es
+tonteante olhar sem armação
+---
+opiniões públicas
+atualizado 2025
+
+“eu não acho William 
+Shakespeare tudo isso”
+---
 então é isso nos
 vemos em algu
 ma página
