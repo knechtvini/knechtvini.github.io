@@ -1,6 +1,22 @@
 ---
 layout: default
 ---
+ela faz de tudo para
+se tornar eterna
+mente futuro
+---
+ela põe a minha música
+preferida para tocar e
+eu danço que lhe
+amo
+---
+chefe o senhor poderia me
+liberar mais tarde hoje 
+é que eu não tenho o 
+que fazer em casa
+e ficarei depri
+mida
+---
 será que eu vou assistir o seu
 show ou será que vou aprender 
 a não dançar no final?
