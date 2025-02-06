@@ -1,6 +1,22 @@
 ---
 layout: default
 ---
+o fim de um novo começo
+o começo de um novo fim
+---
+flores de marshmallow
+bem-vinda ao interior
+do meu fígado
+---
+fo tô na academia
+---
+insegurança
+
+assim que entrei pensei te
+ver saindo ao sair imaginei
+você voltando não havia
+segurança no bar
+---
 eu não lembro abso
 lutamente nada que
 eu li ou escrevi por 
