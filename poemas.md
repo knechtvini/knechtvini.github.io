@@ -1,6 +1,21 @@
 ---
 layout: default
 ---
+você parece tão
+cansada e feliz
+tão cicatrizada
+quanto ferida
+---
+estar só sendo
+cinematogra
+ficamente
+amado
+---
+você tem asas
+comcores di
+feren
+tes
+---
 &u e &u
 ---
 afinal de contas você
