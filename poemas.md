@@ -1,6 +1,35 @@
 ---
 layout: default
 ---
+você está me escondendo
+alguma coisa
+é só uma aliança amor
+você vai me pedir em
+casamento é sério
+uma aliança com o partido
+comunista amor
+---
+amiga eu tenho uma
+poesia para te contar
+meu deus não vai me
+dizer que vocês...
+escreveram
+sim!
+me conta me conta
+tudo como foi foi
+bom? doeu?
+ah só no início
+---
+não tenho nada de bom para
+escrever neste momento não
+há como vencer palavras em
+silêncio
+---
+se comparado a abraçar um
+cacto por exemplo você 
+não me machucou 
+tanto
+---
 líquido
 
 parece que eu conheço
