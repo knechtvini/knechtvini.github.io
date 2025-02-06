@@ -1,6 +1,33 @@
 ---
 layout: default
 ---
+eu não lembro abso
+lutamente nada que
+eu li ou escrevi por 
+trás de seus olhos
+não sou do tipo que
+escreve por trás dos
+olhos das pessoas
+---
+ontem ele me mandou
+flores no trabalho...
+vocês combinam...
+mas eles não é muito
+atencioso nem
+carinhoso...
+estou falando das
+flores...
+---
+bem lá no interior trans
+formam estrelas em 
+estrelenses
+---
+eu vou escrever cada vez
+melhor mesmo você não
+querendo e você nunca
+vai me amar mesmo
+você querendo
+---
 quantas vezes eu já me
 despedi da vida em
 sonho e é tão bom
