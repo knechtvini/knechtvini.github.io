@@ -1,6 +1,21 @@
 ---
 layout: default
 ---
+&u e &u
+---
+afinal de contas você
+errou o cálculo e eu
+perdi uma amiga
+---
+às vezes a arte tem o
+dever de errar a natu
+reza, e, nem sabe o
+que é isso
+---
+você me pegou de
+surpresa a gente
+se pega bem
+---
 agora eu vou escrever
 para gente grande: os
 mortos e as crianças
