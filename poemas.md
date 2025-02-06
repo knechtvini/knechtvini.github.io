@@ -1,6 +1,27 @@
 ---
 layout: default
 ---
+você emprestou-se de corpo
+e alma agora eu daria 
+minhas mãos para 
+estar de volta
+---
+se eu não tenho certeza
+que é você eu decido
+que é você
+---
+esse poeta não me passa
+uma energia muito boa
+é muita gente deve ter
+morrido ali dentro
+---
+você é um disco de
+vini arranhado
+---
+divagar com o amor...
+divagar com o amor...
+divagar com o amor...
+---
 se eu não dormir agora
 eu perco o bônus
 amanhã
