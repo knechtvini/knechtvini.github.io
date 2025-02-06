@@ -1,6 +1,23 @@
 ---
 layout: default
 ---
+NO cinema
+
+ele não a
+cena de vol.
+ta para mim
+---
+e me conta eles ficam
+juntos no final?
+no final todo mundo
+morrre meu amor
+---
+capitalismo o que você
+costuma fazer no seu
+templo livre?
+---
+nós somos a kg
+---
 chefe o senhor poderia me
 dar trabalho em dobro a
 manhã é que a minha vida
