@@ -1,6 +1,19 @@
 ---
 layout: default
 ---
+mas se eu seguir o meu caminho
+eu teria que escrever 
+por você?
+---
+os fêmeos e as machas
+---
+tudo o que você faz se
+parece com algumas
+artes
+---
+alimentar ilusão de pobre
+um direita para todos
+---
 ela faz de tudo para
 se tornar eterna
 mente futuro
