@@ -1,6 +1,26 @@
 ---
 layout: default
 ---
+está cada vez mais
+difícil te fazer ler
+---
+café é a minha cerveja
+---
+capitalismo te massacrando de felicidade
+---
+cessar-poesia
+---
+eu não sou céu a mar
+---
+charme
+
+prefiro que você
+esteja errada
+sob mim
+---
+ChatGPT melhore o poema:
+EU TE ODEIO!!!!!!!
+---
 em um
 bar
 co
