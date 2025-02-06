@@ -1,6 +1,9 @@
 ---
 layout: default
 ---
+inspirado em você
+mas não para você
+---
 o fim de um novo começo
 o começo de um novo fim
 ---
