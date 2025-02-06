@@ -1,6 +1,16 @@
 ---
 layout: default
 ---
+e você a ama?
+meu bem até o jeito 
+que ela lava a louça 
+é diferente sabe
+---
+espero que a minha história
+faça sentido para você por
+que não faz sentido para
+mim
+---
 veículos
 
 artista rebaixado 
