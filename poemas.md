@@ -1,6 +1,18 @@
 ---
 layout: default
 ---
+então é isso nos
+vemos em algu
+ma página
+---
+sozinho nova mente
+sozinho nova mente
+sozinho nova mente
+---
+o louco diz que é um viajante
+do tempo o gênio é aquele que
+cria uma máquina do tempo
+---
 NO cinema
 
 ele não a
