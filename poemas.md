@@ -1,6 +1,24 @@
 ---
 layout: default
 ---
+sem se despedir de ninguém
+porque há mais de vinte 
+anos que vive ali sente
+-se sozinho
+---
+sequer sinto
+mais a minha
+arte a carta
+dizia
+---
+desperdicei tudo o que viria
+pela frente só para ver eu
+partir levo o que eu poderia
+ter amado eu acho que eu
+simplesmente amo as artes
+demais tanto que chego a
+me sentir mal
+---
 pobre e honesto e vendo
 vaga na fila
 ---
