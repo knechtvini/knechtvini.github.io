@@ -1,6 +1,31 @@
 ---
 layout: default
 ---
+a dor está no ar
+---
+a minha sorte é que eu não
+alcanço o teto e não dou
+corda para cadeiras
+---
+a pior despedida nem sempre
+é aquela que acontece a pior
+despedida nem sempre é aqu
+ela que acontece
+---
+a fé tá
+---
+espere até o amanhã ser
+---
+participe da palestra
+
+“Como viver menos? –
+Uma palestra de um serial killer em ação”
+
+e descubra na prática o
+último dia da sua vida
+---
+a atenção só quer chamar você
+---
 eu sei muito bem
 o meu tamanho
 infelizmente...
