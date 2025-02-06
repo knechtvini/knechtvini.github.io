@@ -1,6 +1,49 @@
 ---
 layout: default
 ---
+preciso sair daqui
+mas não posso es
+quecer de mim
+---
+querido oi como você está
+eu esqueci completamente
+da sua existência
+---
+estão nos textando
+---
+por que você não apare
+ceu na festa?
+ah eu ainda estava vol
+tando da guerra
+---
+me acusam de excessos poéticos
+me acusam formalmente mas
+com tanta gentis
+lezas
+---
+a senhora no banco
+tirando extrato de
+tomate
+---
+proclamar a independência alcoólica
+---
+você tem dom vocação
+e muito muito talento
+hum e você está sendo
+injusta com o meu
+sofrimento
+---
+como foi exatamente o seu 
+processo criativo estou 
+cogitando lhe 
+processar
+---
+Deputado Vinícius Knecht
+cria projeto de lei 
+“Lei A.”
+---
+leia poetas vivos
+---
 poeta tem a
 mesmíssima
 respons-
