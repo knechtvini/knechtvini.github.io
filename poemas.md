@@ -1,6 +1,18 @@
 ---
 layout: default
 ---
+agora eu vou escrever
+para gente grande: os
+mortos e as crianças
+---
+vida é aquilo que você faz
+enquanto aceita que não é
+o Leonardo DiCaprio
+---
+linguística
+
+a Terre é plane
+---
 louco não medicado 
 tem a droga da 
 razão
