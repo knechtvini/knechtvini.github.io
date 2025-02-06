@@ -1,6 +1,11 @@
 ---
 layout: default
 ---
+corrigi tanto o meu romance
+que virou autobiografia
+---
+chip im plantado na aorta
+---
 como a natureza ousa
 invadir os humanos?
 ---
