@@ -1,6 +1,73 @@
 ---
 layout: default
 ---
+Suicid Poem
+
+consigo ser outro ser dentro dos ****braços
+reinvaginado de volta para o futuro 1985 sem ciência
+solidão ajuda a entender a dor tamanho júpiter-júpiter
+veja nessas folhas de poesias de merda o que sobrou
+
+escrever não parece mais ajudar a arte que falhou
+minha arte não ganha nada comigo
+é a ***** falta que eu quero sentir
+é muito triste se você não me perguntar
+porque logo não estarei por perto para
+ver o *** rosto novamente
+
+nunca precisei de análise porque eu já
+estava na minha pró-cura e sabia precisamente
+o que não fazer mas mesmo assim decidiram
+que eu deveria fazer em nome do meu
+amor pelo mistério
+
+um lugar um lugar onde
+ninguém consiga chegar com a sua espaçonave
+e eu possa escrever com **** que
+writing doesn’t seem to help...
+---
+Quintando-se
+
+eu que nem saí do meu
+quarto já sei que o 
+dia está lindo 
+lá fora
+---
+Pipoca
+
+imenso tabuh
+rápido limpo e indolor
+poesia no papel de vítima
+entretom naturalista antientretenimento
+puro observador sensível e sombrio
+talento precoçando gargantas
+morbidez ou poesia?
+ombro descolado da realidade
+louco excesso de lucidez
+hipersensibilidade ao mundo
+um abraço de despedida
+de monóxido de carbono
+
+em memória de Vinicius Gageiro Marques (Yoñlu)
+---
+a melhor terapia é a terapia
+---
+amar não é decoreba
+---
+amores modernos
+
+foi perfeito mas
+eu esperava mais
+---
+tenho que anunciar a gravidez da
+velha poesia tenho que anunciar
+a insônia do sol o bocejo da chu
+va a sombra do mosquito um amor
+de castigo a idade da solidão e
+todas as solidões sem sentido
+minha infância teve a voz dos
+meus olhos
+---
 supervisão pelo inconsciente
 
 encontrava-me numa espécie de depósito
