@@ -1,6 +1,17 @@
 ---
 layout: default
 ---
+opiniões públicas
+atualizado 2025
+
+“Dostoiévski é superestimado”
+---
+palavras azuis
+
+página dos suicídios do dia
+anterior página dos assassi
+natos do dia seguinte
+---
 juntos compomos um soninho
 até o nascer do sol eu sab
 ia que estava só te sonhan...
