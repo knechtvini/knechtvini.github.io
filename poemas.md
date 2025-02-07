@@ -1,6 +1,18 @@
 ---
 layout: default
 ---
+a terra pia
+---
+abandonou a página
+abandonou todo o
+passado
+---
+amor acidental feito música
+
+nosso amor era como melodia
+onde você se perdia numa
+batida
+---
 Chaplin
 
 no meu próximo filme mudo
