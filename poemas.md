@@ -1,6 +1,26 @@
 ---
 layout: default
 ---
+Chaplin
+
+no meu próximo filme mudo
+---
+já estou cheio de amor e livros
+---
+estarei chorando mas
+saiba que isso será
+o máximo
+---
+a medida de um QI raramente
+se assemelha ao diâmetro
+da alma
+
+com Matilde Campilho
+---
+não invente de dar muita
+corda para músicos
+ouviu
+---
 amores modernos
 
 eu amei te conhecer es
