@@ -1,6 +1,10 @@
 ---
 layout: default
 ---
+crítica construtiva
+
+“belo concreto”
+---
 arte contemporânea
 
 ASMR | Exame dos Nervos Cranianos
