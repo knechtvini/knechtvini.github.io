@@ -1,6 +1,19 @@
 ---
 layout: default
 ---
+sei exatamente quando está
+internado naquele seu
+quarto
+---
+você é muito talentoso
+obrigado acho que é a
+minha invocação
+---
+eu sinto muito já
+escreveram isso...
+mas do mesmo jeito 
+que eu senti?
+---
 Amarelando Blue
 
 eu gostaria de escrever para o pássaro
