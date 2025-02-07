@@ -1,6 +1,23 @@
 ---
 layout: default
 ---
+o pasarinho é o melhor 
+amigo do homem
+---
+eu quebrei o pé caminhando 
+isso diz tudo sobre um 
+ossinho do meu pé 
+direito
+
+pensou que eu faria 
+alguma analogia?
+
+para Matilde Campilho
+---
+perdemos
+contatos
+físicos
+---
 Para Com Isso, Continua Com Poesia
 
 fizemos planos agora
