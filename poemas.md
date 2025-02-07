@@ -1,6 +1,25 @@
 ---
 layout: default
 ---
+juntos compomos um soninho
+até o nascer do sol eu sab
+ia que estava só te sonhan...
+escreven...*
+---
+poeta nutella
+---
+por que me existiram?
+---
+as pessoas andam comentando
+que as minhas qualidades 
+são os meus maiores de
+feitos você acredita
+---
+percebo detalhes que nem 
+são mais detalhes assim
+---
+todo poeta é cego de poesia
+---
 inspirado em você
 mas não para 
 você
