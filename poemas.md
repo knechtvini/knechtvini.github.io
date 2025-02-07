@@ -1,6 +1,81 @@
 ---
 layout: default
 ---
+TDAH
+
+eu por exemplo de um tempo para cá 
+não consigo ficar mexendo no celular 
+por muito tempo sem pegar o livro que 
+está ao lado e ver se recebi novas no
+vidades na história e expansões no 
+cérebro
+---
+SÓ UMA LEMBRANCINHA
+
+CORTA PARA:
+INTERIOR. APARTAMENTO DE LINDA – NOITE
+
+LINDA.   Precisamos conversar. Eu tenho algo.
+VINÍCIUS.   O que houve?
+LINDA.   Acabou, Vini... eu quero terminar.
+VINÍCIUS.   Mas aconteceu alguma coisa?
+Sério. Não precisava disso.
+LINDA.   É só uma lembrancinha...
+---
+OS FASCISTINHAS CARINHOSOS
+
+CORTA PARA:
+INTERIOR. APARTAMENTO DE ASSASSINO – NOITE
+
+ASSASSINO.   Não somos tão terríveis quanto
+as assassinas pensavam.
+---
+MEMÓRIA
+
+CORTA PARA:
+INTERIOR. APARTAMENTO DE AMADA – NOITE
+
+AMADA.   Estamos no ar!
+AMOR.   Tá gravando?
+SAUDADE.   E se eu corresse sorrindo direto
+para os seus braços... veriam então o que eu
+vejo agora?
+---
+HOMENS
+
+CORTA PARA:
+INTERIOR. ESCRITÓRIO DE UM HOMEM – DIA
+
+UM HOMEM.   Você está se sentindo desconfortável
+com a minha presença? Digo... por eu ser homem.
+Eu posso chamar outros cinco para você se sentir
+mais segura.
+---
+CORTA PARA:
+EXTERIOR. HOMEM PISA NA LUA – DIA OU NOITE
+
+HOMEM.   Estamos no ar!
+---
+HABEAS CORPUS.
+INTERNAÇÃO PSIQUIÁTRICA.
+
+“a inspiração divina do poeta estrelense de 25 
+anos de idade nasceu de suas lesões mentais 
+de maneira especial dentro da clínica
+psiquiátrica Pinel cidade de Porto 
+Alegre.”
+
+PEDIDO DE DESINTERNAÇÃO.
+DESCABIMENTO.
+---
+Eu acho que a gente podia
+
+CORTA PARA
+INTERIOR. VOZ DELA – NOITE
+
+VOZ DELA   Eu só consigo te ver
+como amigo...
+---
 eu precisava de ajuda então
 subi na primeirárvore então
 pedi ajuda ao primeiro pas
