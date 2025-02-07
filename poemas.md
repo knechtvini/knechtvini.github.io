@@ -1,6 +1,23 @@
 ---
 layout: default
 ---
+eu não escrevi até aqui
+pra desistir agora
+
+para Humberto Gessinger
+---
+conforme flores com forma
+de flores em flores para 
+que eu consiga apanhar 
+sozinho e com mais 
+facilidade eu te 
+amei tanto 
+sério
+---
+no meu aniversário ela
+me deu um passado de
+presente
+---
 o pasarinho é o melhor 
 amigo do homem
 ---
