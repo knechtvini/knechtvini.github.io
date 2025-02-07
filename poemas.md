@@ -1,6 +1,17 @@
 ---
 layout: default
 ---
+arte contemporânea
+
+ASMR | Exame dos Nervos Cranianos
+---
+atiro a última flor
+e erro o alvo
+---
+nenhum ser humano possui
+o autoconhecimento de
+uma pomba
+---
 a terra pia
 ---
 abandonou a página
