@@ -1,6 +1,33 @@
 ---
 layout: default
 ---
+não se chora pelo amanhã só se 
+salga a carne morta não se chora 
+pela manhã só se tempera dia morto
+a dor do parto é também a dor de 
+quem nasce a dor de quem nasce é 
+também a dor de quem faz de espelho
+a morte que traz a cons ciência
+prefiro a minha poesia do que a 
+minha essência você pode não 
+perceber aquele que não lê aquele 
+que só chora pela mão
+
+Bartolomeu Campos de Queirós e Vinícius Knecht
+---
+eu preciso construir um cemitério
+para passarinhos que não seja no
+chão
+eu não entendo isso não faz o
+menor sentido Vinícius...
+você não entende mamãe eu
+preciso encontrar 
+Matilde Campilho
+e esta é a única maneira 
+que eu encontrei
+
+poesia
+---
 sinto tanto a sua falta
 principalmente nos dias 
 mais felizes quando o sol 
