@@ -1,6 +1,21 @@
 ---
 layout: default
 ---
+Vinícius Knecht é eleito o
+mais poeta do ano de acor
+do com alguma revista
+---
+você entendeu mais do
+que era para entender
+---
+Enxada de Assis
+---
+você é a favor da escala ao Everest?
+---
+o que você está fazendo?
+esperando a poesia 
+e você
+---
 vou abanar o meu 
 corpo pois estou 
 toda sua
