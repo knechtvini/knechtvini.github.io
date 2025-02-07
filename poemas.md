@@ -1,6 +1,23 @@
 ---
 layout: default
 ---
+Ela Não Dirige Em Cidade Pequena
+
+estou salvo nas nu
+vens do seu drive
+---
+o poder da palavra
+(e da ambiguidade)
+
+“o psicólogo não
+me trata bem...”
+---
+o quadro
+
+como você decora
+tudo o que você
+sente?
+---
 não monogamia
 
 não foi a melhor traição
