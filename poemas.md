@@ -1,6 +1,65 @@
 ---
 layout: default
 ---
+acordo entre multidão e
+silêncio durmo com o
+Mick Jagger
+---
+tua boca tuas pernas teu
+cabelo teu sexo meus
+olhos minha poesia
+
+líquida minha poesia
+mais lúcida que nós
+---
+minha mãe me penteou
+minha poesia me
+enterrou
+---
+mau hálito
+
+dizem que tenho um 
+péssimo gosto
+---
+você me deixa inspirado
+quando você me deixa
+sem palavras
+---
+sua vida é uma mentira
+contada uma vez que
+você acreditou nela
+---
+e ela tem um carrão
+com aquele seu Ka
+belo
+---
+Las Poesías
+
+e vocês sabem o que
+acontece em Poesía
+não fica só em
+Poesía
+---
+amor eu confesso que usei 
+Inteligência Artificial
+para amar você
+---
+seus inimigos por
+sorte sobrevi
+veram
+---
+papai me conta uma
+história para que 
+eu acorde
+---
+um homofóbico acredita mais
+nas fadas que nos machos
+---
+você é a favor de humanizar
+as pessoas?
+desculpe eu não estudei
+economia
+---
 Suicid Poem
 
 consigo ser outro ser dentro dos ****braços
