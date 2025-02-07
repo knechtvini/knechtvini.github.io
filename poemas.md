@@ -262,9 +262,9 @@ belo
 Las Poesías
 
 e vocês sabem o que
-acontece em Poesía
+acontece em Poesías
 não fica só em
-Poesía
+Poesías
 ---
 amor eu confesso que usei 
 Inteligência Artificial
