@@ -1,6 +1,103 @@
 ---
 layout: default
 ---
+POESIA CAUSA CÂNCER DE PULMÃO
+POESIA SOFRE
+POESIA ENVELHECE
+POESIA ADOECE
+POESIA INFARTA
+POESIA BROCHA
+POESIA MATA
+---
+não sabe quanto amor aquele
+amor tem mas sabe que pode
+morar sozinho
+---
+somos ums
+---
+tenho sido o seu tecido
+---
+tinta & purgatório
+
+antes adiavam um pouco
+as penas dos poetas
+---
+poesia de cada dia que
+nos dai o amanhã
+---
+pombos abandonados
+
+vou focar na obs
+dos pombinhos
+---
+por que você ainda
+escreve poesia?
+acredito que é minha
+maneira diária de me
+despedir
+---
+pouca perna para meus
+olhos pouca mão para
+meus olhos que tanto
+tanto questionam
+---
+você é uma pessoa boa 
+demais para mim...
+então o que eu posso
+fazer para me tornar
+pior?
+---
+olha eu sei que as coisas não têm
+sido fáceis entre a gente por isso
+decidi fazer algo diferente e...
+comprei duas passagens para
+Paris!
+eu não sei onde você quer chegar
+com isso Vinícius
+PARIS!
+---
+com amor, Van Gogh
+
+as janelas cumprirão apenas
+um papel decorativo na
+casa
+---
+sentava na frente para me sentir 
+o piloto hoje sento na frente 
+para ser o primeiro a 
+ir embora
+---
+o acordar de um homem ridículo
+
+olhei-me no espelho e o reflexo disse
+você é um homem ridículo então pensei 
+o que importa é o talento e ao 
+refletir o espelho refletiu 
+você é um homem ridículo
+---
+pais e filhos
+
+você não pensou em nós
+antes de ter depressão?
+---
+nos chamam de loucos mas 
+o que esses normais 
+estão fazendo que 
+preste?
+---
+então nos vemos no próximo livro
+---
+natureza humana se trata na terra
+natureza humana se trata na Terra
+---
+sábado
+
+amanhã é Neosa-feira
+---
+modéstia parte fizemos
+grandes inimigos temos
+que reconhecer
+---
 acordo entre multidão e
 silêncio durmo com o
 Mick Jagger
