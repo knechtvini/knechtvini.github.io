@@ -1,6 +1,15 @@
 ---
 layout: default
 ---
+no labirinto da memória
+labirintite e então 
+estou fugindo do 
+Jack Nicholson
+---
+para onde vocês estão 
+levando o corpo 
+dela?
+---
 sei exatamente quando está
 internado naquele seu
 quarto
