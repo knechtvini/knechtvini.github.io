@@ -1,6 +1,16 @@
 ---
 layout: default
 ---
+amores modernos
+
+eu amei te conhecer es
+tava pensando poderí
+amos dar um tempo
+---
+defunto faz piada com o corpo
+---
+olha que depressivo lindo
+---
 Vinícius Knecht é eleito o
 mais poeta do ano de acor
 do com alguma revista
