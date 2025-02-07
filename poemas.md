@@ -1,6 +1,22 @@
 ---
 layout: default
 ---
+supervisão pelo inconsciente
+
+encontrava-me numa espécie de depósito
+tremenda escuridão tremendo medo apelava
+para a lanterna pelado como se a lanterna
+apanhasse a minha mão não focava apenas
+a minha luz mas admitia tudo mais claro tudo
+mais vivo de repente todas as luzes do depósito
+se acenderam curioso: ainda que com as luzes
+acesas a lanterna permanecia apanhando a
+minha mão acesa e mais claro 
+inesperadamente agarrando a minha 
+
+mãe
+
+---
 não se chora pelo amanhã só se 
 salga a carne morta não se chora 
 pela manhã só se tempera dia morto
