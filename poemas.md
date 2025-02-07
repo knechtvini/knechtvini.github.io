@@ -1,6 +1,17 @@
 ---
 layout: default
 ---
+Amarelando Blue
+
+eu gostaria de escrever para o pássaro
+azul que está se sentindo o pássaro
+mais solitário do mundo neste momen
+to eu diria fique aí eu vou mostrar o
+mundo olhe este velho novo mundo
+que não merece ver você
+
+em memória de Charles Bukowski
+---
 eu não escrevi até aqui
 pra desistir agora
 
