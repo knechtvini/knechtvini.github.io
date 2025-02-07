@@ -1,6 +1,22 @@
 ---
 layout: default
 ---
+não monogamia
+
+não foi a melhor traição
+que você já sofreu???
+SIM!!!
+---
+pelo menos aqui eu 
+posso não ser eu 
+mesmo
+---
+nós sempre vamos sair no auge
+nós sempre vamos sair no auge
+nós sempre vamos sair no auge
+
+para Airton Engster dos Santos
+---
 Manchado de Assins
 
 a morte acordou comigo e
