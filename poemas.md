@@ -1,6 +1,135 @@
 ---
 layout: default
 ---
+o que vocês esperam de mim?
+eu já não escrevi o 
+insuficiente?
+---
+REFERÊNCIAS / RASCUNHO / REPERTÓRIO
+---
+escrevo como parto
+---
+na escuridão do atempo
+
+por que é escuro à noite
+os minutos finais da juventude
+a eternidade
+os minutos finais da coragem
+o medo
+os minutos finais dos pensamentos
+as lembranças
+os minutos finais das lembranças
+última visão
+os minutos finais do amor
+o cinema
+os minutos finais do silêncio
+os pensamentos
+os minutos finais da história
+o tempo
+os minutos finais do medo
+a coragem
+os minutos finais da eternidade
+a juventude
+os minutos finais do cinema
+o amor
+última visão noite
+ele diz noite ela
+diz noite eles dizem
+por que é tão escuro durante o dia
+
+a morte
+---
+a serenidade e a paz de um
+olhar livre de maldade e a
+consciência de que poderia
+ser melhor
+---
+fazendo uma ponte 
+entre o rio e o 
+choro
+---
+estou escrevendo contra o e vento
+---
+não se preocupe ninguém
+vai ler não por segurança
+mas por falta de interesse
+---
+você entendeu tudo errado...
+mas você dizia o tempo todo que
+queria morar comigo ter filhos
+comigo que me amava e que
+queria ficar comigo para
+sempre!
+mas não literalmente... você 
+confundiu as coisas...
+---
+descubra você 
+você mesmo
+---
+dos meus melhores
+arrependimentos 
+ter entrado em 
+você
+---
+um homofóbico sofre de TOQ
+e toda a semana visita seu
+urologista
+---
+eu tenho uma vida literária
+bastante ativa sabe então
+eu me pretejo para que
+não nasça um autoajuda
+não planejado
+---
+azar na vida
+sorte na 
+poesia
+---
+superrar
+---
+tatuagens
+
+nas mãos
+ao pé da
+letra
+
+ARTE
+POETA
+---
+e respondi com muita
+propriedade sem hect
+ares
+---
+você mostrou a sua cidade
+eu mostrei o meu mundo e
+eu sempre vou me perdoar
+por isso
+---
+é a sua sétima esposa mas
+talvez o seu grande amor
+---
+mas é claro o
+seu pedido é
+uma dúvida
+---
+a tarde talvez fosse
+mais amarela se 
+não fosse o 
+blue
+---
+aquele segundo após
+um século de amor
+---
+amor nos rios do Pantanal
+[remake]
+
+corpo em balsa amado
+---
+rima não é solução
+mas eu detestaria
+ter que dizer
+não
+---
 POESIA CAUSA CÂNCER DE PULMÃO
 POESIA SOFRE
 POESIA ENVELHECE
