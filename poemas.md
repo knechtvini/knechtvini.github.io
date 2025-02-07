@@ -2,10 +2,12 @@
 layout: default
 ---
 inspirado em você
-mas não para você
+mas não para 
+você
 ---
 o fim de um novo começo
-o começo de um novo fim
+o começo de um novo 
+fim
 ---
 flores de marshmallow
 bem-vinda ao interior
@@ -16,83 +18,87 @@ fo tô na academia
 insegurança
 
 assim que entrei pensei te
-ver saindo ao sair imaginei
-você voltando não havia
-segurança no bar
+ver saindo ao sair imagin
+ei você voltando não hav
+ia segurança no bar
 ---
-eu não lembro abso
+não lembro abso
 lutamente nada que
-eu li ou escrevi por 
+li ou escrevi por 
 trás de seus olhos
 não sou do tipo que
-escreve por trás dos
-olhos das pessoas
+escreve por trás 
+dos olhos das 
+pessoas
 ---
 ontem ele me mandou
 flores no trabalho...
-vocês combinam...
+olha vocês combinam...
 mas eles não é muito
 atencioso nem
 carinhoso...
-estou falando das
-flores...
+eu estou falando 
+das flores...
 ---
 bem lá no interior trans
 formam estrelas em 
 estrelenses
 ---
-eu vou escrever cada vez
-melhor mesmo você não
-querendo e você nunca
-vai me amar mesmo
-você querendo
+eu vou escrever cada 
+vez melhor mesmo você 
+não querendo e você 
+nunca vai me amar 
+mesmo você querendo
 ---
-quantas vezes eu já me
-despedi da vida em
-sonho e é tão bom
-acordar...
+quantas vezes eu já 
+me despedi da vida 
+em sonho e é tão 
+bom acordar
 ---
-ela jurou que me amava
+ela jurou que me amava!
 você não sabe que hoje
 em dia os efeitos espe
 ciais estão cada vez
 melhores?
 ---
 brincando de esconde-
-esconde em poesia
+esconde em    poesia
 ---
 diz ti nada
 ---
-é hora de bater o ponto
-é hora de ir para casa
-é hora de bater as asas
-o céu espera a coragem
+hora de bater o ponto
+hora de ir para casa
+hora de bater as asas
+o céu espera a 
+coragem
 ---
 escrevo para mim
-e nunca respondo
+quase nunca res
+pondo
 ---
 e qual é a sua história?
 hum você tem tempo?
-todo
+todo!
 então vá aproveita-lo
 porque eu não tenho
 ---
 você emprestou-se de corpo
-e alma agora eu daria 
-minhas mãos para 
-estar de volta
+e alma e agora eu daria 
+minhas mãos para estar
+de volta
 ---
 se eu não tenho certeza
-que é você eu decido
+que é você então decido
 que é você
 ---
 esse poeta não me passa
-uma energia muito boa
+uma energia muito boa...
 é muita gente deve ter
-morrido ali dentro
+morrido ali dentro...
 ---
-você é um disco de
-vini arranhado
+você é um disco 
+de vini arra
+nhado
 ---
 divagar com o amor...
 divagar com o amor...
@@ -102,17 +108,19 @@ se eu não dormir agora
 eu perco o bônus
 amanhã
 ---
-busco conexões desconectado
-você está recebendo?
+então busco conexões 
+desconectado... você 
+está recebendo?
 ---
 está cada vez mais
-difícil te fazer ler
+difícil te fazer 
+ler
 ---
 café é a minha cerveja
 ---
-capitalismo te massacrando de felicidade
+o capitalismo te massacrando de felicidade
 ---
-cessar-poesia
+cessar-poesia!
 ---
 eu não sou céu a mar
 ---
@@ -135,7 +143,7 @@ contra
 remos
 ---
 amor líquido sem álcool
----
+
 ontem você salivava na minha
 boca e hoje nós nos transfor
 mamos na letra da música
@@ -145,15 +153,15 @@ To Know
 eu sou uma bicha no mato
 ---
 você está me escondendo
-alguma coisa
-é só uma aliança amor
+alguma coisa!
+é só uma aliança amor...
 você vai me pedir em
-casamento é sério
+casamento é sério?
 uma aliança com o partido
-comunista amor
+comunista amor...
 ---
 amiga eu tenho uma
-poesia para te contar
+poesia para te contar...
 meu deus não vai me
 dizer que vocês...
 escreveram
@@ -161,22 +169,22 @@ sim!
 me conta me conta
 tudo como foi foi
 bom? doeu?
-ah só no início
+ah só no começo
 ---
 não tenho nada de bom para
 escrever neste momento não
-há como vencer palavras em
-silêncio
+há como vencer palavras 
+em silêncio
 ---
 se comparado a abraçar um
 cacto por exemplo você 
 não me machucou 
-tanto
+tanto não
 ---
 líquido
 
 parece que eu conheço
-um dia todo
+você um dia todo
 ---
 seria clichê demais
 terminar mal no
@@ -193,45 +201,38 @@ sabe o que é passar por
 isso
 ---
 agora eu vou escrever
-só, sobre amor
+só, sobre amor...
 ---
 solidão é solta após
 pagar aliança de
 quinze mil 
 reais
 ---
-foi tão bom que
-eu nem escrevi
+foi tão bom tão
+bom que eu nem 
+escrevi
 ---
 uma tatuadora autoral
-assina as tatuagens
----
-sem se despedir de ninguém
-porque há mais de vinte 
-anos que vive ali sente
--se sozinho
+assina suas tatuagens
 ---
 sequer sinto
 mais a minha
-arte a carta
-dizia
+arte dizia
+a carta
 ---
-desperdicei tudo o que viria
-pela frente só para ver eu
-partir levo o que eu poderia
-ter amado eu acho que eu
-simplesmente amo as artes
-demais tanto que chego a
-me sentir mal
+acho que eu
+simplesmente 
+amo as artes
+demais tanto 
+que chego a
+me sentir 
+mal
 ---
-pobre e honesto e vendo
-vaga na fila
+pobre e honesto e 
+vendo vaga na 
+fila
 ---
-você está me escondendo
-alguma coisa eu sei...
-é só uma aliança amor
----
-qui QI mais baixinho!
+qui QI mais baixinho
 ---
 toda a rodoviária de
 veria vender flores
@@ -245,9 +246,10 @@ alcanço o teto e não dou
 corda para cadeiras
 ---
 a pior despedida nem sempre
-é aquela que acontece a pior
-despedida nem sempre é aqu
-ela que acontece
+é aquela que acontece a 
+pior despedida nem 
+sempre é aquela 
+que acontece
 ---
 a fé tá
 ---
@@ -265,18 +267,19 @@ a atenção só quer chamar você
 ---
 eu sei muito bem
 o meu tamanho
-infelizmente...
+infelizmente
 ---
-você costuma a se questionar por
+você costuma se questionar por
 que ela tem o olhar de amiga
-quando na verdade você
-sente que ela é o seu
-amor
+quando na verdade você sente 
+que ela é o seu amor
 ---
 tão tentador quanto teclas de
 um piano ancião intocável tão
 intocável canção livros no es
-tonteante olhar sem armação
+tonteante 
+
+olhar sem armação
 ---
 opiniões públicas
 atualizado 2025
@@ -293,8 +296,9 @@ sozinho nova mente
 sozinho nova mente
 ---
 o louco diz que é um viajante
-do tempo o gênio é aquele que
-cria uma máquina do tempo
+do tempo o gênio é aquele 
+que cria uma máquina 
+do tempo
 ---
 NO cinema
 
@@ -320,20 +324,20 @@ pessoal está uma merda
 ---
 os pobres morrem de fome em massas
 ---
-eu te amo mas
-não leve para
-o lado pessoal
+eu te amo mas não 
+leve para o lado 
+pessoal
 ---
 a natureza é bonita por natureza
 ---
 lembranças da infância
 lambanças na velhice
-escrevo apenas o 
-que nunca disse
+escrevo elas que 
+nunca disse
 ---
-com relação às relações
-me corrija se eu 
-estiver correto
+com relação às relações me 
+corrija se eu estiver 
+correto
 ---
 meu perfume no céu
 ---
@@ -347,30 +351,31 @@ gados
 leia um livro
 agora
 senão você
-vai morrer
+vai MORRER
 ---
 6.
 
-decidi que o meu sangue de
-inocência aos sorrisos dos olhos
-virão no dia do meu aniversário
-estou velho demais para impedir
-anseio pelo descanso e que não
-chegue no meio da noite então
-lamente duas vezes no mesmo
-dia
+decidi que o meu sangue de inocência 
+aos sorrisos dos olhos virão no dia 
+do meu aniversário estou velho demais 
+para impedir anseio pelo descanso e 
+que não chegue no meio da noite então
+
+lamente duas vezes no mesmo dia
 ---
 posso decidir não sorrir mais
 sem ser interrogado por isso
 o meu personagem morre no
-final já é o final
+final 
+
+já é o final
 ---
 halls preto não faz 
 a porra de porra
 nenhuma 
 ---
 Inteligência Artificial
-se quer entende uma
+sequer entende uma
 piada
 ---
 eu te amo certo
@@ -381,8 +386,6 @@ não vem amor
 ---
 fiz um café ridículo e não
 escrevi nada que preste
-pelo menos estou aqui
-prestando contas
 ---
 não lembro se escrevi
 não lembro se senti
@@ -394,8 +397,8 @@ gritando
 ---
 a lua pisou no amor pela primeira
 vez no dia __/__/__ mas foi tudo 
-inventado e o Stanley Kubrick 
-que fez aquelas filmagens
+inventado o Stanley Kubrick que 
+fez as filmagens
 ---
 me candidatei
 a ver a dor
@@ -423,7 +426,7 @@ ver preços pesquisar
 ---
 do xadrez para
 choque mata
-quê pena
+que pena
 ---
 condecorado
 
@@ -438,8 +441,8 @@ mos mais do espaço e do oceano
 do que da poesia
 ---
 e você a ama?
-meu bem até o jeito 
-que ela lava a louça 
+até o jeito que 
+ela lava a louça 
 é diferente sabe
 ---
 espero que a minha história
@@ -450,7 +453,7 @@ mim
 veículos
 
 artista rebaixado 
-por veículos de 
+por veículo de 
 imprensa
 ---
 me aposentar e 
@@ -461,15 +464,16 @@ você está meio normal
 aconteceu alguma
 coisa?
 ---
-mas se eu seguir o meu caminho
-eu teria que escrever 
-por você?
+se eu seguir o meu caminho
+eu teria que escrever por 
+você?
 ---
-os fêmeos e as machas
+os fêmeos
+as machas
 ---
 tudo o que você faz se
-parece com algumas
-artes
+parece com alguma
+arte
 ---
 alimentar ilusão de pobre
 um direita para todos
@@ -479,8 +483,8 @@ se tornar eterna
 mente futuro
 ---
 ela põe a minha música
-preferida para tocar e
-eu danço que lhe
+preferida para tocar 
+e eu danço que lhe
 amo
 ---
 chefe o senhor poderia me
@@ -502,7 +506,7 @@ poesia
 "Grêmio é tudo o que eu tenho na vida"
 "Bolsonaro é tudo o que eu tenho na vida"
 ---
-nosso dia verde e azul
+o nosso dia verde e azul
 ---
 eu te quero dos pés ao pescoço
 ---
