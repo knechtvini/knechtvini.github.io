@@ -1,6 +1,17 @@
 ---
 layout: default
 ---
+Para Com Isso, Continua Com Poesia
+
+fizemos planos agora
+penso em planos para
+partir para outro 
+plano
+---
+mamãe um dia entenderá
+que eu poderia ter par
+tido muito antes
+---
 opiniões públicas
 atualizado 2025
 
