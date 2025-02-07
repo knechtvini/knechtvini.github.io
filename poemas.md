@@ -1,6 +1,38 @@
 ---
 layout: default
 ---
+Manchado de Assins
+
+a morte acordou comigo e
+fomos passear no último
+passeio de domingo eu
+já desconfiava e isso
+ninguém ficou
+sabendo
+---
+as pessoas não têm mais
+medo de amar elas têm
+fobia
+---
+meu negócio é poesia
+e eu não ganho nada
+com isso
+---
+todas estão vestindo a sua
+máscara e isso reflete 
+profundamente a moda 
+contemporânea
+---
+nada vivo sem você
+---
+se eu escrever não
+chore não é só
+poesia
+---
+você me preparou um belo
+café mas não me preparou
+para terminar
+---
 no labirinto da memória
 labirintite e então 
 estou fugindo do 
