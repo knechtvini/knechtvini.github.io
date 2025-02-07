@@ -1,6 +1,40 @@
 ---
 layout: default
 ---
+vou abanar o meu 
+corpo pois estou 
+toda sua
+---
+eu sabia que você não existia
+eu sabia que você não existia
+eu sabia que você não existia
+---
+você precisa tratar o seu
+gato com um psiquiatra
+melhor
+---
+candidato confirma turnô
+veja datas locais e
+horrores
+---
+sabia que a cada vinte min
+um poeta é espancado?
+---
+vendo minha alma
+reparei como é
+bela
+---
+confesse que você 
+chorou com outro 
+ontem
+---
+de vem em quando atéu
+sinto a sua falta por 
+ex nas novas despedidas 
+e atuais rejeições ou 
+humihações você costu
+mava estar lá
+---
 Ela Não Dirige Em Cidade Pequena
 
 estou salvo nas nu
