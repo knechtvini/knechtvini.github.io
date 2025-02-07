@@ -1,6 +1,23 @@
 ---
 layout: default
 ---
+blue
+
+deixando a terra pintada 
+de sangue derramou o 
+azul
+---
+Direito
+
+ela é muito melhor do que
+eu então agora eu vou lhe
+ensinar como é que é ser
+pior
+---
+Vinícius Knecht dispensa apresen
+tações pois ninguém se importa 
+em conhece-lo
+---
 crítica construtiva
 
 “belo concreto”
