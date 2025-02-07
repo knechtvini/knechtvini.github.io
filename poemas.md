@@ -1,6 +1,22 @@
 ---
 layout: default
 ---
+Conversando Com Você
+Enquanto Faço A Minha
+Fake-Up
+
+“psicóloga narcisista explica
+como identificar um narcisista”
+---
+um fantasma que não 
+aguenta mais o que 
+vê
+---
+amores feijão com maionese
+---
+você é a tradusol
+do que é o luar
+---
 blue
 
 deixando a terra pintada 
