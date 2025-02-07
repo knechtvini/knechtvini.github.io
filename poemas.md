@@ -1,12 +1,32 @@
 ---
 layout: default
 ---
+eu precisava de ajuda então
+subi na primeirárvore então
+pedi ajuda ao primeiro pas
+sarinho e ele quebrou o
+meu galho
+---
+eu prefiro quando você
+escreve sobre o amor
+porque assim eu rio
+do seu jeito de
+sentir dor
+---
+bom caminhar ao seu lado
+porque você faz pausas e
+me ensina o que é correr
+a favor do tempo
+
+para Airton Engster dos Santos
+---
 Conversando Com Você
 Enquanto Faço A Minha
 Fake-Up
 
 “psicóloga narcisista explica
-como identificar um narcisista”
+como identificar um narci
+sista”
 ---
 um fantasma que não 
 aguenta mais o que 
