@@ -1,6 +1,76 @@
 ---
 layout: default
 ---
+sinto tanto a sua falta
+principalmente nos dias 
+mais felizes quando o sol 
+esconde as suas pernas a 
+saudade inconsequente
+sinto tanto a sua falta
+principalmente nos dias 
+mais felizes você realmente 
+não poderia estar aqui?
+---
+Vinícius você já declarou que
+busca o reconhecimento e que
+sempre se sentiu invisível no
+meio artístico da sua região
+mas o que você faz para 
+mudar isso?
+recentemente eu aumentei o
+tamanho da minha letra
+---
+preliminares:
+promessa de prazer
+não quero ouvir um arrepio
+uma chama mais que as outras
+sussurra num embriagado
+amarrado desvendado
+
+agora começa:
+a baca dela... e a voz dela...
+e o que entra nela...
+e o que sai dela...
+
+uma poesia.
+---
+bom o que eu posso dizer e
+acredite poucas vezes você
+vai ouvir isto de um artista
+talvez por sorte suicídio
+não vai ser a causa da
+minha morte
+---
+amigos e seguidores eu vou me afastar 
+um pouco das redes sociais para cuidar 
+da minha saúde mental agradeço pelas 
+mensagens de apoio espero a compreensão 
+de todos e daqui a quinze minutos eu 
+estou de volta
+---
+dor e sofrimento
+
+eu juro pela minha gatinha
+(havia testemunha) era segunda
+era mais uma segunda-feira
+destino minha rotina de trabalho
+então atravessou um carro ao
+som de Hurt aquela versão do
+Johnny Cash o som estava alto
+tão alto quanto aqueles que
+passam com uma música
+insuportável eu juro pela
+minha gatinha
+
+Estrela, 11 de março de 2024
+---
+então Vinícius sinceramente não
+compreendemos o seu diagnóstico
+mas vamos lhe oferecer dois tipos
+de tratamentos para o seu caso o
+primeiro é o tratamento de choque
+e o segundo o de exorcismo
+---
 TDAH
 
 eu por exemplo de um tempo para cá 
