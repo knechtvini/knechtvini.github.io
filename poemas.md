@@ -51,10 +51,9 @@ meu negócio é poesia
 e eu não ganho nada
 com isso
 ---
-todas estão vestindo a sua
-máscara e isso reflete 
-profundamente a moda 
-contemporânea
+todas estão vestindo a sua máscara 
+e isso reflete profundamente a 
+moda contemporânea
 ---
 nada vivo sem você
 ---
