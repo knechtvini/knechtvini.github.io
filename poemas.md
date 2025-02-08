@@ -1,9 +1,8 @@
 ---
 layout: default
 ---
-o que vocês esperam de mim?
-eu já não escrevi o 
-insuficiente?
+o que vocês esperam de mim? eu 
+já não escrevi o insuficiente?
 ---
 REFERÊNCIAS / RASCUNHO / REPERTÓRIO
 ---
