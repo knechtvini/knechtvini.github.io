@@ -16,7 +16,7 @@ body {
   margin: 10px;
   float: right;
   a {
-    color: rgb(98, 98, 98)
+    color: rgb(162, 162, 162)
   }
 }
 
@@ -86,4 +86,10 @@ body {
 
 .red {
   color: rgb(185, 14, 14);
+}
+
+.mosaico {
+  display: grid;
+  grid-template-columns: repeat(auto-fill, minmax(300px, 1fr));
+  gap: 1rem;
 }
