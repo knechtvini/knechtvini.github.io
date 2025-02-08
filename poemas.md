@@ -1,7 +1,7 @@
 ---
 layout: default
 ---
-o que vocês esperam de mim? eu 
+o que vocês esperam de mim?
 já não escrevi o insuficiente?
 ---
 REFERÊNCIAS
