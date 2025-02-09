@@ -2,7 +2,7 @@
 layout: default
 ---
 o que vocês esperam de mim?
-já não escrevi o insuficiente?
+eu já não escrevi o insuficiente?
 ---
 REFERÊNCIAS
 RASCUNHOS
