@@ -11,7 +11,6 @@ REPERTÓRIO
 escrevo como parto
 ---
 na escuridão do atempo
-
 por que é escuro à noite
 os minutos finais da juventude
 a eternidade
@@ -37,7 +36,6 @@ o amor
 ele diz noite ela
 diz noite eles dizem
 por que é tão escuro durante o dia
-
 a morte
 ---
 a serenidade e a paz de um
