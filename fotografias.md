@@ -8,6 +8,7 @@ photos:
   - url: https://lh3.googleusercontent.com/pw/AP1GczNbMqcdWlnrE1n7IcDvwr8sk9yLfdz851A711C3hnsOzzU6pUOVREaXV3KinfLc5kTfx9mgeQz4xVW4NG10rrKOJgDOZ6G13jY6F5TIRI16Gsg6Bbi_=w2400
   - url: https://lh3.googleusercontent.com/pw/AP1GczNw76LVNDQ0swd84MUo_wyBen0fY-HbM0yhebqNLy2lOu13CyLFyYZBcoHnuzhOyEehSPJoLwSgFGWmdsS0PnbAYHcgOAWSxmjRmV4HF_B8m8VtnNf8=w2400
   - url: https://lh3.googleusercontent.com/pw/AP1GczPUA3cLZSC_oB828ogM-YQbn9-zxeTGiwT5cb-XoTSf1TcpIA8c-eZLmYUCCwNVz3qOOFAysKlrSk8tQeR3Fa9LhzGU1NhAMByCCi7uPzcwWcbGeLSM=w2400
+  - url: https://lh3.googleusercontent.com/pw/AP1GczO4ToEuqXBSdjnZCTyl848Vipo2FZv8hakanujLXjZqOG4E1VEjrbapyB-pbi7kgdOLJThoaNpVuUhcTcktP_pNSN47gscNpAGWwKRnIY4aG96fBv5v=w2400
 
 ---
 
