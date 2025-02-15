@@ -4,6 +4,17 @@ layout: default
 o que vocês esperam de mim?
 eu já não escrevi o insuficiente?
 ---
+eu estava com a droga daquela pessoa
+preso na droga daquele amor sentado
+na droga daquele cinema assistindo
+a droga daquele Deadpool quando
+toca a droga da música iris, do
+goo goo dolls
+
+eu nunca vou superar essa banda
+essa música esse Deadpool esse
+cinema e essa pessoa
+---
 da mesma alma que vem poesia 
 vem outras coisas nada a ver 
 como é possível entender?
