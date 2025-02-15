@@ -4,43 +4,40 @@ layout: default
 o que vocês esperam de mim?
 eu já não escrevi o insuficiente?
 ---
-nada do que escrevi na praia
-vale agora não porque não estou mais lá
-mas porque já não sinto
-
-então escreveria um poema
-sobre o nariz do Adrien Brody
-mas percebo que minha saudade de você
-é maior tudo isso por causa de uma jaqueta
-de camurça verde que deixei aí 
-e você deve ter esquecido
-
-então vejo Kieran Culkin em série
-que me lembra Craig Nicholls
-que me canta Autumn Shade II
-
+na areia a vó esquece o caminho da volta
+família não quer saber da minha escrita
+interfone nunca funcionou e
+ninguém se importa
+---
+é mais equipamento que produção 
+é mais equipamento que audio
+visual
+---
+pela areia meu pai caminhou 
+até Iemanjá hoje em dia todo 
+mundo acredita ser santo(a)
+---
 sonhei que perdia a memória
 quanto tempo já faz isso?
-sonhei com uma lâmpada vermelha
-então devo ficar atento
+sonhei com uma lâmpada 
+vermelha então devo 
+ficar atento
+---
+então escreveria um poema sobre 
+o nariz do Adrien Brody mas 
+percebo que minha saudade 
+de você é maior tudo isso 
+por causa de uma jaqueta
+de camurça verde que 
+deixei aí 
 
-pela areia meu pai caminhou até Iemanjá
-hoje em dia todo mundo acredita ser santo
-é mais equipamento que produção
-é mais equipamento que audiovisual
-
-e na areia a vó esquece o caminho da volta
-a família não quer saber da minha escrita
-o interfone nunca funcionou e
-ninguém se importa
-
-você me ama? que pergunta idiota
-o que você está fazendo?
-o que estou fazendo? não está vendo palavras?
-
-sonho que estou perdendo dinheiro
-acordo e nem tenho esse dinheiro
-
+e você deve ter esquecido
+---
+nada do que escrevi na praia
+vale agora não porque não 
+estou mais lá mas porque 
+já não sinto
+---
 qual o meu maior sonho?
 pelo que vejo aqui
 um pesadelo
