@@ -4,6 +4,22 @@ layout: default
 o que vocês esperam de mim?
 eu já não escrevi o insuficiente?
 ---
+da mesma alma que vem poesia 
+vem outras coisas nada a ver 
+como é possível entender?
+---
+quantas carolinas comer por dia?
+google pesquisar
+---
+sonho que estou perdendo dinheiro
+acordo e nem tenho esse dinheiro
+---
+você me ama? que pergunta 
+idiota o que você está 
+fazendo? o que estou 
+fazendo? não está 
+vendo palavras?
+---
 na areia a vó esquece o caminho da volta
 família não quer saber da minha escrita
 interfone nunca funcionou e
