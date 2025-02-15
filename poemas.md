@@ -8,8 +8,8 @@ eu estava com a droga daquela pessoa
 preso na droga daquele amor sentado
 na droga daquele cinema assistindo
 a droga daquele Deadpool quando
-toca a droga da música iris, do
-goo goo dolls
+toca a droga da música Iris do
+Goo Goo Dolls
 
 eu nunca vou superar essa banda
 essa música esse Deadpool esse
