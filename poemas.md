@@ -1,6 +1,8 @@
 ---
 layout: default
 ---
+corro por um amor te perco o a
+---
 simplesmente corro os dedos
 ---
 o sentimento vermelho
