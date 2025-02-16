@@ -1,6 +1,22 @@
 ---
 layout: default
 ---
+vou escrever esta noite e 
+vou tirar o atrasado nem
+o sonho me impede
+---
+o aluguel está atrasado
+eu não moro aqui eu
+moro em mim 
+mesmo
+também é alugado?
+você é filósofo?
+---
+você é um gênio
+sim eu criei a
+solidão pato
+lógica
+---
 então ouço Bee Gees e lembro
 do meu amigo que está mais
 aqui
