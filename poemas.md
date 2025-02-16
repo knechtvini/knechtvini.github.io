@@ -1,6 +1,12 @@
 ---
 layout: default
 ---
+o sentimento vermelho
+
+esta é a parte da poesia em
+que eu escrevo come on
+baby blue
+---
 o que vocês esperam de mim?
 eu já não escrevi o insuficiente?
 ---
