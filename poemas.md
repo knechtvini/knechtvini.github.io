@@ -4,6 +4,23 @@ layout: default
 o que vocês esperam de mim?
 eu já não escrevi o insuficiente?
 ---
+amor a gente supera
+porque a gente
+diz torce 
+contra
+---
+alguém te amou mais que
+a sua própria vida a 
+sua não a minha
+---
+eu não tenho a mínima
+condição de poesia
+neste memento
+---
+entrando na sua cabeça ao som 
+de All The Things She Said –
+t.A.T.u
+---
 eu estava com a droga daquela pessoa
 preso na droga daquele amor sentado
 na droga daquele cinema assistindo
