@@ -1,6 +1,8 @@
 ---
 layout: default
 ---
+simplesmente corro os dedos
+---
 o sentimento vermelho
 
 esta é a parte da poesia em
