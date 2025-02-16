@@ -1,6 +1,9 @@
 ---
 layout: default
 ---
+o que vocês ainda esperam de mim?
+eu já não escrevi o insuficiente?
+---
 vou escrever esta noite e 
 vou tirar o atrasado nem
 o sonho me impede
