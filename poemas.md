@@ -1,6 +1,10 @@
 ---
 layout: default
 ---
+então ouço Bee Gees e lembro
+do meu amigo que está mais
+aqui
+---
 corro por um amor te perco o a
 ---
 simplesmente corro os dedos
