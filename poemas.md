@@ -4,6 +4,10 @@ layout: default
 o que vocês ainda esperam de mim?
 eu já não escrevi o insuficiente?
 ---
+não é para concordar é para
+refletir mas entre concordar
+e discordar: discordar
+---
 amiga você terminou com 
 o Vinícius? você não 
 o amava?
@@ -55,9 +59,6 @@ o sentimento vermelho
 esta é a parte da poesia em
 que eu escrevo come on
 baby blue
----
-o que vocês esperam de mim?
-eu já não escrevi o insuficiente?
 ---
 amor a gente supera
 porque a gente
