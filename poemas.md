@@ -9,6 +9,10 @@ o Vinícius? você não
 o amava?
 eu deixei para a próxima...
 ---
+eu ia pular enquanto escrevia
+decidi comer sorvete de
+flocos 
+---
 vou escrever esta noite e 
 vou tirar o atrasado nem
 o sonho me impede
