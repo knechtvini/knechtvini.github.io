@@ -4,6 +4,11 @@ layout: default
 o que vocês ainda esperam de mim?
 eu já não escrevi o insuficiente?
 ---
+amiga você terminou com 
+o Vinícius? você não 
+o amava?
+eu deixei para a próxima...
+---
 vou escrever esta noite e 
 vou tirar o atrasado nem
 o sonho me impede
