@@ -9,6 +9,16 @@ o Vinícius? você não
 o amava?
 eu deixei para a próxima...
 ---
+você não precisa de um cigarro
+você precisa de uma boa arte
+---
+congela
+é essa imagem
+que eu quero
+para mim
+
+nem Van Gogh...
+---
 eu ia pular enquanto escrevia
 decidi comer sorvete de
 flocos 
