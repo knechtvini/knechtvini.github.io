@@ -13,6 +13,9 @@ eu ia pular enquanto escrevia
 decidi comer sorvete de
 flocos 
 ---
+é o apartamento 603 e a
+depressão ainda alcança
+---
 vou escrever esta noite e 
 vou tirar o atrasado nem
 o sonho me impede
