@@ -16,7 +16,7 @@ tive que escrever que nem
 louco para que você não
 fugisse
 ---
-escrever torna-tes quem tu és
+escrever torna-te quem tu és
 ---
 alguém ainda está aqui?
 ---
