@@ -4,6 +4,46 @@ layout: default
 o que vocês ainda esperam de mim?
 eu já não escrevi o insuficiente?
 ---
+tive que escrever que nem
+louco para que você me
+nota-se
+
+tive que escrever que nem
+louco para que você não
+me entendesse
+
+tive que escrever que nem
+louco para que você não
+fugisse
+---
+escrever torna-tes quem tu és
+---
+alguém ainda está aqui?
+---
+fingindo sanidade
+---
+ela era mais doce no mar
+---
+e-logiar era o nome da loja
+eu não aguento mais o 
+digital
+---
+William Blake finalmente morreu 
+no ano de 2025
+---
+sabe essa coisa de ir descendo os 
+versos como se nada estivesse
+acontecendo fora de mim
+---
+na poesia foi a nossa primeira vez
+---
+por que você sempre foi plural?
+---
+Maria Eugênia o nome da psicóloga
+ela era mais inteligente que 
+Isaac Newton eu não me 
+apaixonei eu juro
+---
 não é para concordar é para
 refletir mas entre concordar
 e discordar: discordar
