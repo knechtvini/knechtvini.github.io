@@ -61,6 +61,7 @@ photos:
   - url: https://lh3.googleusercontent.com/pw/AP1GczPmum7mvqy6vWAmlOqzUrOzQC3QsHXfgRB3Utc-xCaG4iZfFELgbdHIDVyJOzH07thQ4_weWcyUknEz0CFyH3s483jCQYcU2jf-WIttJ4cjGJmYzD7o=w2400
   - url: https://lh3.googleusercontent.com/pw/AP1GczMpEWEJ3STymuLpObEbWG6CFfqKNjXdOqRGU01j-BEqgugqDUvawVCt4hGzOD-q0Tc-pTbEricaZh4k1xGJyciz4Psy3z_GXUkcGmyBgZhCZBLGFjbw=w2400
   - url: https://lh3.googleusercontent.com/pw/AP1GczPOzN1jIlGDffbIY7v-JGzxyYpul-mMYO7GKAXZHFg6sA6prY-SrmvNHhYhcKnrDQ-AQrJXl8EL7EACPxY-bwgHHsr4edBHz_JR5A0JQzeoXFHmTL6x=w2400
+  - url: https://lh3.googleusercontent.com/pw/AP1GczPYqdkwKlhdRhBFCvoa9Km7bLFljBAaU-JWRXKiottW_dh5QMTTNuAAckVwSnS7Xs6DQo28mc3Ca7-h4jRGiAZ53JGUJNXkYjkLzrCcROex9xurZwkX=w2400
 ---
 
 ### Fotografias
