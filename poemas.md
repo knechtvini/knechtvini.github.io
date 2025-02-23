@@ -4,6 +4,27 @@ layout: default
 o que vocês ainda esperam de mim?
 eu já não escrevi o insuficiente?
 ---
+não perguntam se estou
+feliz por covardia
+---
+humanidade
+
+sim é sangue na sua camisa
+mas não se preocupe é de
+outra pessoa
+---
+nós precisamos quebrar
+um dos seus braços
+---
+você escreve coisas 
+que eu nem sonhava
+---
+VAR
+
+por este ângulo fica 
+mais visível
+a dúvida
+---
 tive que escrever que nem
 louco para que você me
 nota-se
