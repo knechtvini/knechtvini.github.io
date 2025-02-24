@@ -4,8 +4,15 @@ layout: default
 o que vocês ainda esperam de mim?
 eu já não escrevi o insuficiente?
 ---
-não perguntam se estou
-feliz por covardia
+Quintana
+
+pássaro
+presente
+e futuro
+---
+não perguntam se eu
+estou feliz por 
+covardia
 ---
 humanidade
 
