@@ -4,6 +4,57 @@ layout: default
 o que vocês ainda esperam de mim?
 eu já não escrevi o insuficiente?
 ---
+Parte II
+
+que bom que tudo isso é só um rascunho
+que bom que não lavo nada tão a sério
+pois já esgoto líquidos hahaha eu – nunca – 
+vou te mandar essa poesia
+
+já fungaram palavras para você antes?
+digo já escreveram para você antes
+eu espero que nunca - desse jeito –
+fico triste por você me ler
+
+mas não se assuste escrevo como parto
+do parto parti para a parte que parte!
+sério não se assuste o amarelo reina 
+com o humor nesse poema
+
+se algum dia eu te conhecer melhor 
+não chore não é só poesia
+
+infelizmente eu não posso ler a sua mente
+sem meus óculos então Isabel
+prazer
+---
+Parte I
+
+feche os olhos e eu lhe darei um poema
+sim eu sei que assim você meio que 
+não poderá ler
+
+então finjo que seus olhos-planetário desconfiam 
+os versos ondulados escuros uma que outra vez 
+loiros e vermelhos os sentimentos vermelhos
+
+o que será que esse cara vai escrever para mim
+ou pior sobre mim ou pior sob mim
+
+enfim eu sou mestre em confundir as coisas
+daria para viver disso? tipo profissionalizar
+e a desordem no magistério o caos lírico
+
+você está escrevendo sério? eu nunca vou saber
+imagino você...
+
+então peço que você fotografe uma palavra
+e você me traz “pirarucu”
+esperava ser sacaneado um - sorriso cool, gata -
+mas eu sei receber o sentimento azul
+já estou no centro de uma estrela abandonada
+sem atenções
+---
 Quintana
 
 pássaro
