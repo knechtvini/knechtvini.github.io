@@ -13,4 +13,4 @@ Artista multidisciplinar com ampla atuação como escritor, poeta, roteirista, m
 <br>
 ### Contato  
 📧 Email: vknecht@gmail.com  
-📸 Instagram: [@vaogogo](https://instagram.com/vaogogo)  
+📸 Instagram: ---
