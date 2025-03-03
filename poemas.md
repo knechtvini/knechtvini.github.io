@@ -14,7 +14,7 @@ Radiohead em rima
 Let Down no meu funeral
 ---
 passei por momentos muito difíceis
-mas eu saí muito pior depois deles
+mas eu saí muito pior de todos eles
 ---
 por que choramos ao cortar bolhas
 ---
