@@ -13,4 +13,4 @@ Vinícius Knecht é um artista multidisciplinar com ampla atuação como escrito
 <br>
 ### Contato  
 📧 Email: vknecht@gmail.com  
-📸 Instagram: @vaogogo
+📸 Instagram: https://www.instagram.com/vaogogo/
