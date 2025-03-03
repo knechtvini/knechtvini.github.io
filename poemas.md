@@ -4,6 +4,29 @@ layout: default
 o que vocês ainda esperam de mim?
 eu já não escrevi o insuficiente?
 ---
+depressão importada da Suíça ou da Bélgica
+---
+você gostaria de um com mordida? 
+temos de várias marcas
+---
+Radiohead em rima
+
+Let Down no meu funeral
+---
+passei por momentos muito difíceis
+mas eu saí muito pior depois deles
+---
+por que choramos ao cortar bolhas
+---
+olha só eu vou subir naquele palco e
+eu vou cantar Hotel California para 
+você e vou parecer dez vezes mais 
+bonito e no final eu não vou ficar 
+com você nem fodendo
+---
+ela é hino demais 
+parao meu palquinho
+---
 Parte II
 
 que bom que tudo isso é só um rascunho
