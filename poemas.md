@@ -4,6 +4,19 @@ layout: default
 o que vocês ainda esperam de mim?
 eu já não escrevi o insuficiente?
 ---
+quase perdi uma poesia feliz
+mente achei ela dentro da 
+sua calcinha
+---
+Airton me disse que eu vou ser
+um dos maiores pensei eu
+sempre quis mesmo ter 
+1,90 ou 1,93 mesmo
+---
+só ela pode me 
+calar com a 
+boca
+---
 depressão importada da Suíça ou da Bélgica
 ---
 você gostaria de um com mordida? 
