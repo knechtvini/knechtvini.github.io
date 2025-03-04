@@ -4,6 +4,8 @@ layout: default
 o que vocês ainda esperam de mim?
 eu já não escrevi o insuficiente?
 ---
+você se sente menos jovem em tempo real?
+---
 querido você lembrou de buscar a 
 poesia na escola?
 
