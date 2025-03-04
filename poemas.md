@@ -4,6 +4,11 @@ layout: default
 o que vocês ainda esperam de mim?
 eu já não escrevi o insuficiente?
 ---
+querido você lembrou de buscar a 
+poesia na escola?
+
+não porque era a sua vez querida
+---
 quase perdi uma poesia feliz
 mente achei ela dentro da 
 sua calcinha
