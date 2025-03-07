@@ -4,6 +4,34 @@ layout: default
 o que vocês ainda esperam de mim?
 eu já não escrevi o insuficiente?
 ---
+como você tem certeza de que está louco por ela?
+o meu psiquiatra diagnosticou ué
+---
+há poemas que servem para muitas coisas
+por exemplo alguns servem para explicar
+o quanto o poeta e a poesia são inúteis
+sem ofender o leitor porque isso é
+o mais importante
+---
+você viu o crescimento do desemprego?
+já estava na hora ele não é mais
+nenhum adolescente
+---
+verbal
+
+não se preocupe você
+continua linda depois
+que eu morri
+---
+num mundo distópico 
+eu faço sucesso
+---
+a morte é um caixão de surpresa
+---
+Diabo é flagrado lendo a Bíblia
+---
+parcela em 10x com culpas
+--
 você se sente menos jovem em tempo real?
 ---
 querido você lembrou de buscar a 
