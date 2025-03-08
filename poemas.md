@@ -4,6 +4,13 @@ layout: default
 o que vocês ainda esperam de mim?
 eu já não escrevi o insuficiente?
 ---
+se arredondar eu não tenho defeitos
+---
+me vê chorando o tempo todo
+então pensa que sou forte
+---
+o nervosismo depois que já passou
+---
 como você tem certeza de que está louco por ela?
 o meu psiquiatra diagnosticou ué
 ---
