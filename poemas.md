@@ -4,6 +4,15 @@ layout: default
 o que vocês ainda esperam de mim?
 eu já não escrevi o insuficiente?
 ---
+despertador
+
+06:porquevocêfezissocomigo
+06:elanãofalamaiscomigo
+06:aheubloqueeieladetudo
+---
+NO amor 
+eu acordo tarde... 
+---
 se arredondar eu não tenho defeitos
 ---
 me vê chorando o tempo todo
