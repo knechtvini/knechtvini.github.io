@@ -6,6 +6,13 @@ eu já não escrevi o insuficiente?
 ---
 escrever sem qualquer forma de anestesia
 ---
+porra é a décima vez que você faz 
+orçamento com a gente e não
+fecha negócio
+
+em nenhum momento eu disse
+que tinha o dinhêro
+---
 o tumor evoluiu
 
 que notícia boa doutor
