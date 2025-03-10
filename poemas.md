@@ -6,6 +6,10 @@ eu já não escrevi o insuficiente?
 ---
 escrever sem qualquer forma de anestesia
 ---
+o tumor evoluiu
+
+que notícia boa doutor
+---
 sinceridade só nas perguntas
 ---
 ele descreveu os meus 
