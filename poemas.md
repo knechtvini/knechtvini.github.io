@@ -6,6 +6,8 @@ eu já não escrevi o insuficiente?
 ---
 escrever sem qualquer forma de anestesia
 ---
+sinceridade só nas perguntas
+---
 ele descreveu os meus 
 movimentos e passou 
 a interpretar a 
