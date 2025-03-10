@@ -6,6 +6,10 @@ eu já não escrevi o insuficiente?
 ---
 escrever sem qualquer forma de anestesia
 ---
+o corpo foi identificado
+
+graças a Deus e ele está bem?
+---
 porra é a décima vez que você faz 
 orçamento com a gente e não
 fecha negócio
