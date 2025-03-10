@@ -4,6 +4,18 @@ layout: default
 o que vocês ainda esperam de mim?
 eu já não escrevi o insuficiente?
 ---
+escrever sem qualquer forma de anestesia
+---
+muito mais que respeito
+reconhecimento
+---
+google pesquisar
+
+qual o tamanho do Thom Yorke
+na sua vida
+---
+hoje James Dean completa 24 anos de idade
+---
 despertador
 
 06:porquevocêfezissocomigo
