@@ -4,6 +4,15 @@ layout: default
 o que vocês ainda esperam de mim?
 eu já não escrevi o insuficiente?
 ---
+Dois Dias Antes Da Próxima Consulta
+
+“Droga Agora Começou A Tocar Hallelujah Versão De Jeff Buckley”
+“Droga Agora Começou A Tocar Hurt Versão De Johnny Cash”
+---
+Dois Dias Antes Da Próxima Consulta
+
+Já É Quarta-Feira E Não Escrevi Nada Que Preste Na Vida
+---
 escrever sem qualquer forma de anestesia
 ---
 o corpo foi identificado
