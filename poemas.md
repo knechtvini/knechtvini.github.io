@@ -1,8 +1,51 @@
 ---
 layout: default
 ---
-o que vocês ainda esperam de mim?
+o que vocês esperam de mim?
+ainda esperam algo de mim?
 eu já não escrevi o insuficiente?
+---
+pare de pressionar poesia
+---
+o leitor
+
+posso ver seus olhos
+olhando apenas
+suas mãos
+---
+o que é tatuagem 
+o que é maquiagem
+---
+fotografa e não registra
+---
+você terá que provar o que 
+pensa da minha poesia
+---
+eu posso te encontrar
+de carro ou então de 
+foguete tanto faz
+---
+escreveria a poesia
+Rimbaud escreveu 
+antes
+---
+é como se você estivesse
+numa conversa com os
+anos 60s
+---
+e o que você está fazendo
+acordado uma hora dessas
+você morre
+---
+ele escreve poesias que bonitinho
+---
+hoje dou inicio às gravações 
+de Hoje É O Meu Último 
+Dia Na Terra
+---
+as penas aumentaram
+com a minha partida
+abandonei palmas
 ---
 Dois Dias Antes Da Próxima Consulta
 
