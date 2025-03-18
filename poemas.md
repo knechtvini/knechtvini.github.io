@@ -39,7 +39,7 @@ você morre
 ---
 ele escreve poesias que bonitinho
 ---
-hoje dou inicio às gravações 
+hoje dou início às gravações 
 de Hoje É O Meu Último 
 Dia Na Terra
 ---
