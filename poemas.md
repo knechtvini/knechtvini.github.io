@@ -5,19 +5,31 @@ o que vocês esperam de mim?
 ainda esperam algo de mim?
 eu já não escrevi o insuficiente?
 ---
+poeta acamado pelo público
+---
+eu vou morrer para você e aí 
+então eu vou viver melhor
+---
+relacionamentos modernos
+
+quem é você para 
+perguntar como 
+estou?
+---
 pare de pressionar poesia
 ---
-o leitor
+QI Code
 
 posso ver seus olhos
-olhando apenas
-suas mãos
+olhando suas mãos
 ---
 o que é tatuagem 
 o que é maquiagem
 ---
 fotografa e não registra
 ---
+processo
+
 você terá que provar o que 
 pensa da minha poesia
 ---
@@ -25,7 +37,7 @@ eu posso te encontrar
 de carro ou então de 
 foguete tanto faz
 ---
-escreveria a poesia
+escreveria esta poesia
 Rimbaud escreveu 
 antes
 ---
