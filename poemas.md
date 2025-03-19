@@ -5,6 +5,12 @@ o que vocês esperam de mim?
 ainda esperam algo de mim?
 eu já não escrevi o insuficiente?
 ---
+a minha arte continua a pesar de mim
+---
+daqui a pouco eu tô escrevendo 
+sobre Mariana e nem ela sabe 
+tão pouco eu...
+---
 poeta acamado pelo público
 ---
 eu vou morrer para você e aí 
