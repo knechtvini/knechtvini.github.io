@@ -7,6 +7,26 @@ eu já não escrevi o insuficiente?
 ---
 a minha arte continua a pesar de mim
 ---
+Meia-noite Em Partir (2025)
+Comédia/Romance/Fantasia/Drama/Mistério
+
+Jesus Cristo tentou me convencer de que ela me traiu
+Charles Darwin tentou me convencer de que ela me traiu
+Albert Einstein tentou me convencer de que ela me traiu
+Isaac Newton tentou me convencer de que ela me traiu
+Galileu Galilei tentou me convencer de que ela me traiu
+Otávio Augusto tentou me convencer de que ela me traiu
+Giuseppe Garibaldi tentou me convencer de que ela me traiu
+Otto von Bismarck tentou me convencer de que ela me traiu
+Hamurabi tentou me convencer de que ela me traiu
+William Shakespeare tentou me convencer de que ela me traiu
+Leonardo da Vinci tentou me convencer de que ela me traiu
+Tokugawa leyasu tentou me convencer de que ela me traiu
+Siddharta Gautama tentou me convencer de que ela me traiu
+Heródoto tentou me convencer de que ela me traiu
+Woody Allen tentou me convencer de que ela nunca me traiu
+Então partiu
+---
 daqui a pouco eu tô escrevendo 
 sobre Mariana e nem ela sabe 
 tão pouco eu...
