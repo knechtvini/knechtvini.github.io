@@ -5,6 +5,9 @@ o que vocês esperam de mim?
 ainda esperam algo de mim?
 eu já não escrevi o insuficiente?
 ---
+um pequeno desabafo,
+poesia não cansa
+---
 a minha arte continua a pesar de mim
 ---
 melancholia
