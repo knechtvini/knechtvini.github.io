@@ -8,12 +8,12 @@ eu já não escrevi o insuficiente?
 um pequeno desabafo,
 poesia não cansa
 ---
-a minha arte continua a pesar de mim
----
 melancholia
 
 o astigmatismo fez eu 
 ver três luas olha só
+---
+a minha arte continua a pesar de mim
 ---
 o poder dá mente
 ---
