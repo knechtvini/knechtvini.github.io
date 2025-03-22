@@ -7,6 +7,13 @@ eu já não escrevi o insuficiente?
 ---
 a minha arte continua a pesar de mim
 ---
+melancholia
+
+o astigmatismo fez eu 
+ver três luas olha só
+---
+o poder dá mente
+---
 Meia-noite Em Partir (2025)
 Comédia/Romance/Fantasia/Drama/Mistério
 
@@ -28,7 +35,7 @@ Woody Allen tentou me convencer de que ela nunca me traiu
 Então partiu
 ---
 daqui a pouco eu tô escrevendo 
-sobre Mariana e nem ela sabe 
+sobre Mariana e ela nem sabe 
 tão pouco eu...
 ---
 poeta acamado pelo público
@@ -74,8 +81,6 @@ anos 60s
 e o que você está fazendo
 acordado uma hora dessas
 você morre
----
-ele escreve poesias que bonitinho
 ---
 hoje dou início às gravações 
 de Hoje É O Meu Último 
