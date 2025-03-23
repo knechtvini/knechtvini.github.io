@@ -59,6 +59,10 @@ tão pouco eu...
 ---
 poeta acamado pelo público
 ---
+dei match com uma garota chamada 
+Clarice Lispector ela também é 
+artista
+---
 eu vou morrer para você e aí 
 então eu vou viver melhor
 ---
