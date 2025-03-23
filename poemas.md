@@ -16,7 +16,7 @@ milhão
 sou animal noturno que procura 
 por pessoas dançando que não
 sabem o que estão fazendo e
-este é o meu superpoder
+esse é o meu superpoder
 ---
 um pequeno desabafo,
 poesia não cansa
