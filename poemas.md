@@ -25,7 +25,7 @@ memória
 ---
 sou animal noturno que procura por 
 pessoas dançando que não fazem a 
-menor ideia  do que estão fazendo 
+menor ideia do que estão fazendo 
 e esse é o meu superpoder
 ---
 um pequeno desabafo,
