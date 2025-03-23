@@ -13,10 +13,20 @@ sim inclusive no momento só com a
 poesia já alcancei o meu primeiro
 milhão
 ---
-sou animal noturno que procura 
-por pessoas dançando que não
-sabem o que estão fazendo e
-esse é o meu superpoder
+poesia sem açúcar por favor
+---
+com estes passinhos
+o tempo não praça
+---
+eu vou escrever poesia para 
+não esquecer e esse será 
+um sinal de uma ótima
+memória
+---
+sou animal noturno que procura por 
+pessoas dançando que não fazem a 
+menor ideia  do que estão fazendo 
+e esse é o meu superpoder
 ---
 um pequeno desabafo,
 poesia não cansa
