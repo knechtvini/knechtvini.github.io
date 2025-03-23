@@ -26,6 +26,10 @@ melancholia
 o astigmatismo fez eu 
 ver três luas olha só
 ---
+não acredito em Deus acredito na fé quero confessar o pior que posso mas meu coração está cheio e o cheio é um espelho vejo meu ódio e horror e sinto meu corpo minha indiferença para com os homens me inclui morro agora numa estrela de fantasmas prisioneiro dos meus versos eu não tenho sonhos “quem é você?” “eu sou a Morte” “você veio me buscar?” “há muito que ando ao seu lado” “eu percebi” “você está pronto?” “minha poesia está pronta mas eu não"
+---
+Morte não há isenção para poetas?
+---
 a minha arte continua a pesar de mim
 ---
 sempre ameaço desistir 
