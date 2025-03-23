@@ -5,6 +5,19 @@ o que vocês esperam de mim?
 ainda esperam algo de mim?
 eu já não escrevi o insuficiente?
 ---
+eu sou escritor
+
+hum e você ganha dinheiro com isso?
+
+sim inclusive no momento só com a
+poesia já alcancei o meu primeiro
+milhão
+---
+sou animal noturno que procura 
+por pessoas dançando que não
+sabem o que estão fazendo e
+este é o meu superpoder
+---
 um pequeno desabafo,
 poesia não cansa
 ---
@@ -14,6 +27,9 @@ o astigmatismo fez eu
 ver três luas olha só
 ---
 a minha arte continua a pesar de mim
+---
+sempre ameaço desistir 
+e acho isso o máximo
 ---
 o poder dá mente
 ---
