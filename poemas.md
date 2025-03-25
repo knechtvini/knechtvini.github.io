@@ -5,6 +5,20 @@ o que vocês esperam de mim?
 ainda esperam algo de mim?
 eu já não escrevi o insuficiente?
 ---
+Deu a Louca nos Filósofos (2025)
+Comédia/Romance/Fantasia/Drama/Mistério
+
+Tenso, logo excito.
+Verse-te a ti mesmo.
+A tristeza depende de nós mesmos.
+A vida é a flor para a qual o amor é o meu.
+O que sabemos é um sêmen; o que ignoramos é um oceano.
+A vida não examinada não vale um diagnóstico.
+Não existe evento favorável para quem não sabe onde sai.
+A única coisa que sei é que nadar de costas sei.
+O que não me mata, me torna mais rio.
+O homem é condenado a ser live.
+---
 eu sou escritor
 
 hum e você ganha dinheiro com isso?
