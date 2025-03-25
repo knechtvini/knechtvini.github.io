@@ -5,6 +5,14 @@ o que vocês esperam de mim?
 ainda esperam algo de mim?
 eu já não escrevi o insuficiente?
 ---
+poesia é o denominador comum
+---
+se aposentando e voltando ptrás
+---
+disputa de amores termina em 
+arte e talento grave em 
+estrela
+---
 Deu a Louca nos Filósofos (2025)
 Comédia/Romance/Fantasia/Drama/Mistério
 
