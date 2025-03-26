@@ -5,6 +5,65 @@ o que vocês esperam de mim?
 ainda esperam algo de mim?
 eu já não escrevi o insuficiente?
 ---
+Tudo Gostoso – Receita belo simples e fofo
+
+Ingredientes (1 poção)
+
+1 e como isso te faz sentir? vamos explorar isso melhor
+2 me fale mais sobre isso o que você acha que isso 
+significa para você? isso faz sentido para você?
+1 perceba como seu corpo reage a isso o que você pode 
+aprender com essa experiência? você já passou por algo 
+parecido antes? 
+4 o que você diria para um amigo na mesma situação? 
+você está se cobrando demais? a mudança começa 
+com pequenos passos o que está sob seu controle 
+nessa situação?
+1 seu pensamento está baseado em fatos ou suposições?
+3 o passado não pode ser mudado mas podemos 
+ressignificá-lo autocuidado não é egoísmo
+
+Modo de despreparo
+32 anos
+---
+já vi tanto filme pesado
+que a minha vida não 
+me assusta mais
+---
+já vi tantas Cenas de um Casamento
+que o amor não me faz mais piscar
+
+em memória de Ingmar Bergman
+---
+você não tem vergonha de 
+chegar aqui deprimido 
+desse jeito?
+---
+lembra quando corri até a parada
+para te encontrar antes de entrar
+no ônibus mas você já estava
+dentro do táxi? é assim que
+eu vejo a vida
+---
+por deus eu nunca vou iniciar 
+o seu nome com letra 
+maiúscula
+---
+insira a sua arte no seu ofício
+---
+ilusão que na verdade era verdade
+---
+por gentileza não necessitar de 
+tamanho sofrimento para 
+escrever tamanha
+poesia
+---
+Lúcia no Céu sem Diamantes
+
+processo criativo que não passa
+durma sessão de psicanálise
+um porquinho sonhada
+---
 poesia é o denominador comum
 ---
 se aposentando e voltando ptrás
