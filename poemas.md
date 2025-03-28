@@ -10,6 +10,34 @@ TISTAS
 AINDA RES
 PIRAM AQUI
 ---
+saudade é só a perda de tempo com você
+---
+me ouviu como nunca mais pôde
+---
+que aconteceu de tão trágico em 1992?
+---
+minha autobiografia será 
+uma distopia épica
+---
+spoiler ele vive no final
+---
+pegue um livro e se masturbe numa 
+banhêra após goteje a sua 
+autenticidade
+---
+na Europa você teria pelo 
+menos cinquenta alma 
+gêmeas
+---
+eu sou o Banksy e eu
+já matei Laura Palmer
+---
+poesia também é gente
+---
+e não me faça tentar voar
+pois é óbvio que eu não 
+tenho asas não é
+---
 Tudo Gostoso – Receita belo simples e fofo
 
 Ingredientes (1 poção)
