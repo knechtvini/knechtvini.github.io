@@ -10,6 +10,23 @@ TISTAS
 AINDA RES
 PIRAM AQUI
 ---
+saiu da sala do psicólogo
+a mãe que conseguiu ouvir tudo lá do lado de fora
+e não fazia ideia de como era lá dentro
+disse você não deveria ter dito aquilo
+---
+dançando all the things she said 
+running through my head com
+movimentos legendados
+---
+plágio autoral
+
+tua porra de poesia
+na minha mão
+---
+não tenho a quem rastejar
+record então pra poesia
+---
 saudade é só a perda de tempo com você
 ---
 me ouviu como nunca mais pôde
