@@ -5,6 +5,35 @@ o que vocês esperam de mim?
 ainda esperam algo de mim?
 eu já não escrevi o insuficiente?
 ---
+acredita em alma gema?
+
+hã? piada com ovo? é sério?
+
+já ouviu Sigmund Freud?
+
+você está chapado?
+
+my name is Giovanni Giorgio
+but everybody calls me Giorgio
+
+não sabia que você dançava
+continua você está ridículo
+e tô amando
+---
+conheci o amor da minha 
+vida no iPhone 12
+---
+quando adolescente tive um 
+amor de verão que estive
+iludido o tempo todo
+---
+a acústica do consultório de um psicólogo
+---
+quinze páginas prorgasmo
+where is my mind?
+---
+um canário pensa que vai piá de vez
+---
 AR
 TISTAS
 AINDA RES
