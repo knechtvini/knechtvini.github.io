@@ -5,6 +5,10 @@ o que vocês esperam de mim?
 ainda esperam algo de mim?
 eu já não escrevi o insuficiente?
 ---
+conheça os novos “nem-nem”
+nem reconhecimento
+nem respeito
+---
 acredita em alma gema?
 
 hã? piada com ovo? é sério?
