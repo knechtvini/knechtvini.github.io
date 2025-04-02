@@ -80,8 +80,8 @@ na Europa você teria pelo
 menos cinquenta alma 
 gêmeas
 ---
-eu sou o Banksy e eu
-já matei Laura Palmer
+eu sou o Banksy e eu já 
+matei Laura Palmer
 ---
 poesia também é gente
 ---
@@ -174,9 +174,8 @@ eu sou escritor
 
 hum e você ganha dinheiro com isso?
 
-sim inclusive no momento só com a
-poesia já alcancei o meu primeiro
-milhão
+sim inclusive alcancei o meu primeiro
+milhão com a poesia
 ---
 poesia sem açúcar por favor
 ---
@@ -193,7 +192,7 @@ pessoas dançando que não fazem a
 menor ideia do que estão fazendo 
 e esse é o meu superpoder
 ---
-um pequeno desabafo,
+um pequeno desabafo
 poesia não cansa
 ---
 melancholia
@@ -263,7 +262,7 @@ QI Code
 posso ver seus olhos
 olhando suas mãos
 ---
-o que é tatuagem 
+o que é tatuagem e
 o que é maquiagem
 ---
 fotografa e não registra
@@ -278,8 +277,7 @@ de carro ou então de
 foguete tanto faz
 ---
 escreveria esta poesia
-Rimbaud escreveu 
-antes
+Rimbaud escreveu antes
 ---
 é como se você estivesse
 numa conversa com os
@@ -295,7 +293,8 @@ Dia Na Terra
 ---
 as penas aumentaram
 com a minha partida
-abandonei palmas
+então abandonei 
+palmas
 ---
 Dois Dias Antes Da Próxima Consulta
 
@@ -306,7 +305,8 @@ Dois Dias Antes Da Próxima Consulta
 
 Já É Quarta-Feira E Não Escrevi Nada Que Preste Na Vida
 ---
-escrever sem qualquer forma de anestesia
+escrever sem qualquer 
+forma de anestesia
 ---
 o corpo foi identificado
 
@@ -317,7 +317,7 @@ orçamento com a gente e não
 fecha negócio
 
 em nenhum momento eu disse
-que tinha o dinhêro
+que tinha dinhêro
 ---
 o tumor evoluiu
 
@@ -335,8 +335,9 @@ reconhecimento
 ---
 google pesquisar
 
-qual o tamanho do Thom Yorke
-na sua vida
+qual o tamanho do 
+Thom Yorke na sua 
+vida
 ---
 hoje James Dean completa 24 anos de idade
 ---
