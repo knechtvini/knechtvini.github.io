@@ -3,15 +3,15 @@ layout: default
 ---
 o que vocês esperam de mim?
 ainda esperam algo de mim?
-eu já não escrevi o insuficiente?
+já não escrevi o insuficiente?
 ---
-conheça os novos “nem-nem”
+conheça os novos nem-nem
 nem reconhecimento
 nem respeito
 ---
 acredita em alma gema?
 
-hã? piada com ovo? é sério?
+piada com ovo? é sério?
 
 já ouviu Sigmund Freud?
 
@@ -22,14 +22,14 @@ but everybody calls me Giorgio
 
 não sabia que você dançava
 continua você está ridículo
-e tô amando
+tô amando
 ---
 conheci o amor da minha 
 vida no iPhone 12
 ---
 quando adolescente tive um 
 amor de verão que estive
-iludido o tempo todo
+iludido até o inverno
 ---
 a acústica do consultório de um psicólogo
 ---
@@ -39,14 +39,14 @@ where is my mind?
 um canário pensa que vai piá de vez
 ---
 AR
-TISTAS
-AINDA RES
+tistas
+ainda res
 PIRAM AQUI
 ---
-saiu da sala do psicólogo
-a mãe que conseguiu ouvir tudo lá do lado de fora
-e não fazia ideia de como era lá dentro
-disse você não deveria ter dito aquilo
+saiu da sala do psicólogo a mãe que conseguiu 
+ouvir tudo lá do lado de fora e não fazia 
+ideia de como era lá dentro disse você 
+não deveria ter dito aquilo
 ---
 dançando all the things she said 
 running through my head com
@@ -54,8 +54,7 @@ movimentos legendados
 ---
 plágio autoral
 
-tua porra de poesia
-na minha mão
+a tua porra de poesia na minha mão
 ---
 não tenho a quem rastejar
 record então pra poesia
