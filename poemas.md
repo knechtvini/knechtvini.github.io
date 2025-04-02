@@ -24,14 +24,16 @@ não sabia que você dançava
 continua você está ridículo
 tô amando
 ---
-conheci o amor da minha 
-vida no iPhone 12
+conheci o amor da 
+minha vida no 
+iPhone 12
 ---
 quando adolescente tive um 
 amor de verão que estive
 iludido até o inverno
 ---
-a acústica do consultório de um psicólogo
+a acústica do consultório 
+de um psicólogo
 ---
 quinze páginas prorgasmo
 where is my mind?
@@ -59,11 +61,11 @@ a tua porra de poesia na minha mão
 não tenho a quem rastejar
 record então pra poesia
 ---
-saudade é só a perda de tempo com você
+saudade uma perda de tempo com você
 ---
 me ouviu como nunca mais pôde
 ---
-que aconteceu de tão trágico em 1992?
+o que aconteceu de tão trágico em 1992
 ---
 minha autobiografia será 
 uma distopia épica
@@ -84,8 +86,8 @@ já matei Laura Palmer
 poesia também é gente
 ---
 e não me faça tentar voar
-pois é óbvio que eu não 
-tenho asas não é
+de novo pois é óbvio que 
+eu não tenho asas
 ---
 Tudo Gostoso – Receita belo simples e fofo
 
