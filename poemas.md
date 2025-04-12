@@ -5,6 +5,16 @@ o que vocês esperam de mim?
 ainda esperam algo de mim?
 já não escrevi o insuficiente?
 ---
+LANÇAMENTO
+
+Amarelando blue (2025)
+Written and Directed by
+VINÍCIUS KNECHT
+
+Poesia Romance
+
+01 05 2025
+---
 conheça os novos nem-nem
 nem reconhecimento
 nem respeito
