@@ -9,6 +9,25 @@ conheça os novos nem-nem
 nem reconhecimento
 nem respeito
 ---
+sou o dublê da felicidade
+---
+olhar para o mundo e 
+pensar eu sou a pessoa 
+mais criativa da 
+minha história
+---
+escrever a mão
+---
+engaga
+jaja
+meme 
+mento
+---
+passei 
+a dar o 
+seu
+sorriso
+---
 acredita em alma gema?
 
 piada com ovo? é sério?
