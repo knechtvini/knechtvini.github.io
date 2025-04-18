@@ -7,9 +7,10 @@ já não escrevi o insuficiente?
 ---
 LANÇAMENTO
 
+Livro
+
 Amarelando blue (2025)
-Written and Directed by
-VINÍCIUS KNECHT
+
 
 Poesia Romance
 
