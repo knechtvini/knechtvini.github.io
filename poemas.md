@@ -1,6 +1,231 @@
 ---
 layout: default
 ---
+SMARTPHONES
+
+amei a companhia de vocês 
+a meia companhia de vocês
+---
+ah vai ler um Mário 
+
+destratou
+
+Mario não tem acento 
+
+corrigiu
+---
+EUA
+
+suspeito por andar embriagado 
+em sua bicicleta 
+é preso nos EUA 
+nesta quarta-feira 
+polícia alega que o sujeito 
+pego em flagrante 
+era preto
+---
+JIM & PAM 
+
+entre 
+quatro paredes 
+quebrando a 
+quarta parede
+---
+ainda não sei 
+o estado 
+que vou estar 
+depois de morto
+---
+estou no controle 
+mas ele está desconectado 
+do videogame 
+sem eu saber
+é assim que eu vejo a vida
+---
+desistiu dos seus sonhos?
+
+acho que eu só parei de ser 
+tão ambiciosa 
+sabe
+---
+artistas locais 
+levam os 
+outros 
+artistas locais 
+para o pessoal
+---
+escreveria esta poesia
+Rimbaud escreveu antes
+---
+amiga você terminou com o Vinícius? 
+você não o amava?
+
+eu deixei para a próxima
+---
+um dia uma nave pousou 
+na minha frente 
+e de lá saiu um ser 
+de outro mundo 
+era uma criatura verde 
+e de cara perguntei
+quem eu sou e de onde eu vim
+---
+REDES SOCIALES 
+
+o verdadeiro fast-
+feed
+---
+filmaços de cigarros
+---
+inimigo não declarado 
+ainda pode ser 
+seu amigo 
+declare-se
+---
+AGORA QUE EU PASSARINHO…
+
+acho que agora que ele morreu 
+já podemos ler 
+o que ele escreveu
+vocês não acham 
+---
+eles querem democracia 
+igualdade social 
+direitos e inclusão para minorias 
+práticas de liberdades 
+direito à vida 
+à segurança 
+à propriedade 
+todos iguais perante a lei 
+você acredita nisso 
+alguns até falam em equidade 
+representantes que combatem a corrupção 
+contribuem com o acesso à educação 
+desonram nossas filhas 
+ensinam elas a ler e escrever 
+direitos humanos 
+ausência de classes sociais 
+uma constituição 
+eles são doentes 
+doentes 
+ou pior do que isso
+
+ELES SÃO COMUNISTAS 
+---
+rir para não RIP
+---
+leitor 
+na obrigação 
+de despertar 
+insiste ler 
+dormindo
+---
+então qual o tamanho 
+do seu documento 
+no World
+---
+olhando 
+minhas fot. 
+de quando 
+eu era criança 
+engraçado 
+parece que 
+eu era mais 
+velho
+---
+Mario disse que um cachorro 
+serve para a gente falar sozinho 
+não seria mais fácil ser louco 
+sem precisar de um cachorro
+---
+dá para 
+sentir daqui 
+seu bafo 
+de ligação 
+para ex
+---
+o humor paciente 
+não funciona muito bem 
+na terapia
+---
+você não tem medo que a vida acabe 
+do nada?
+
+eu tenho medo que me avisem
+---
+da academia 
+saí de fininho
+---
+vou contar os meus sonhos 
+em forma de piada 
+para que você não ache 
+tão engraçado
+---
+noticiário esportivo
+in 
+forma 
+de 
+circo
+---
+ódiododiadia
+---
+privilégio cósmico 
+de não existir 
+neste meio artístico
+---
+músico escrevendo 
+para si maior
+---
+pão e wi-fi
+---
+bebê não consegue dormir 
+porque mãe grita 
+carneirinhos
+---
+gente antiga 
+olhando apenas 
+para o seu próprio 
+bingo
+---
+DEU A LOUCA NOS FILÓSOFOS (2025)
+Comédia/Romance/Fantasia/Drama/Mistério
+
+Tenso, logo excito.
+Verse-te a ti mesmo.
+A tristeza depende de nós mesmos.
+A vida é a flor para a qual o amor é o meu.
+O que sabemos é um sêmen;
+o que ignoramos é um oceano.
+A vida não examinada não vale um diagnóstico.
+Não existe evento favorável 
+para quem não sabe onde sai.
+A única coisa que sei é que nadar de costas sei.
+O que não me mata, me torna mais rio.
+O homem é condenado a ser live.
+---
+politicamente correto 
+não leva humor 
+a sério
+---
+mais receio que humor
+---
+na aula de hoje 
+trataremos 
+do discernimento necessário
+para distinguir o 
+politicamente incorreto 
+do humor apropriado 
+por movimentos 
+de extrema-direita
+---
+cheguei em um velório 
+me perguntaram se eu estava na 
+lista de convidados
+---
+não é desemprego 
+é só um 
+isolamentinho domiciliar
+---
 filme aborda história de artista gaúcho 
 poeta que era admirado na rua onde morava 
 pelo fato de 
