@@ -1,6 +1,203 @@
 ---
 layout: default
 ---
+por que todo o amor que me 
+aparece parece com o
+
+CAVALO DE TROIA
+---
+vamos começar do zero?
+
+não nós vamos começar do dez
+---
+CORPO VIOLÃO
+
+você é mais difícil que 
+pestana para iniciantes
+---
+hoje o que temos de mais íntimo 
+não é o beijo 
+o sexo 
+a conexão 
+a troca de vulnerabilidade 
+é a
+
+SENHA
+---
+ouça bem 
+você é melhor que o solo de 
+
+COMFORTABLY NUMB
+---
+por fim 
+sempre 
+pôr um fim 
+---
+alguém please 
+– me – explica
+todo este negócio que é 
+
+O AMOR NOS TEMPOS DE CAPITALISMO
+---
+então choque a sociedade 
+com amor beleza arte 
+cultura romance acolhimento social 
+resistência 
+porque um mundo que se choca 
+com isso 
+está doente 
+e precisa de um
+
+TRATAMENTO DE CHOQUE
+---
+eu me Ode e eu quero mor.
+---
+a campainha lhe tocava 
+mais que a companhia
+---
+para ser sincero é preciso ser vidente
+---
+sei bem 
+a vozinha que 
+meu vôzinho 
+faz para 
+o seu cachorro 
+é a razão da 
+sua 
+existência
+---
+por que você fala comigo desse jeito
+
+que jeito
+
+como se estivesse 
+
+ESCREVENDO 
+---
+a voada amou
+---
+você é tão feita
+---
+eu sinto muito a sua fala
+---
+então quantas vezes você já namorou
+
+quatorze e você 
+
+vinte e nove
+
+hum…
+---
+o que é bom para poder 
+fungar o seu pescoço
+---
+QUADRO
+
+café preto sem açúcar 
+que mantém a poesia 
+eufórica e
+a cor dada
+---
+insuportável tal facilidade 
+com que você 
+não me ama
+---
+Santos Dumont deveria ser 
+feriado nacional 
+então pergunte aos franceses 
+na frente da Torre Eiffel 
+eu olharia só para você
+---
+então quer dizer que daqui há 
+cento e cinquenta anos 
+todo mundo que hoje está vivo 
+vai estar morto 
+e eu só vou te encontrar 
+– uma – vez 
+numa – saída – de um bar
+---
+estou completamente lúcido por você
+---
+comparassem nossas artes 
+você teria ampla paisagem
+---
+dama após a outra 
+se entregando 
+de corpo em corpo 
+sem nenhum drama
+---
+a dança passou a ser 
+o único prazer 
+das con
+versos 
+---
+Thom Yorke, have you ever heard of Yoñlu?
+---
+claro que por ti 
+não tenho mais aqueles amores 
+mas algumas noites 
+confesso 
+vou até a janela 
+checar a altura da lua
+---
+cheguei a medir portas 
+por onde passaria 
+aquele amor 
+que vindo pela janela 
+pare-céu-engano
+---
+Hans Zimmer tic-toc-ando 
+no nosso mundinho
+---
+você é a base da minha NASA 
+é algo que o Alex Turner escreveria?
+---
+todos os meus eus 
+na morando todo o seu eu
+---
+se o seu amor caísse 
+no vaso sanitário 
+o que você faria
+---
+não tinha medo de nomear o que sentia 
+o medo era sobrenomear
+---
+então me conta sobre você 
+o que você faz
+
+características que me colocam 
+no espaço-tempo 
+ou quem eu sou 
+e sobre o autoconhecimento 
+que eu adquiri 
+em mais de trinta anos?
+---
+em sorrisos de adeuses 
+não aparecem 
+dentes podres 
+dentes tortos 
+ou amarelados 
+conheça as possíveis causas 
+e tratamentos
+
+é possível salvá-los?
+---
+sinto muita pena em mim
+---
+seja apenas mais dois neste mundo 
+apenas mais uma vez
+---
+vamos lá 
+escreva tudo para fora
+---
+outro dia li a pergunta 
+quando a pessoa cai muito 
+o que pode ser 
+sorri 
+até que eu consegui levantar 
+nova
+mente
+---
 metafísica conta que 
 serei seu anjo 
 arte conta que 
