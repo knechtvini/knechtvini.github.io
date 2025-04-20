@@ -1,6 +1,200 @@
 ---
 layout: default
 ---
+abanar o meu corpo 
+pois estou toda sua
+---
+AMORES MODERNOS
+
+eu amei te conhecer 
+e estava pensando 
+poderíamos dar um tempo?
+---
+sentimentos errados nos artistas certos
+---
+tua boca 
+tuas pernas 
+teu cabelo 
+teu sexo 
+meus olhos 
+minha poesia 
+líquida 
+minha poesia 
+mais lúcida 
+que 
+nosso amor
+---
+mais uma noite 
+dor
+mindo com você
+mais uma noite 
+dor
+mindo sem você
+---
+pombos abandonados
+---
+ela disse que as minhas maiores qualidades 
+são os meus defeitos 
+vai entender
+---
+divagar com o amor
+---
+não suporto mais amar 
+só 
+e apenas
+através das artes
+---
+eu não sou céu a mar
+---
+se eu não tenho certeza 
+que é você 
+eu decido 
+que é você
+---
+AMOR NOS RIOS DO PANTANAL
+[REMAKE]
+
+corpo 
+em 
+balsa 
+amado
+---
+inspirado em você
+não para você
+---
+se eu seguisse o meu caminho 
+eu teria que escrever 
+por você?
+---
+velho demais 
+para correr 
+por você
+---
+no interior 
+não há pousadas
+
+só para passarinhos
+---
+ela é melhor do que eu tinha certeza
+---
+AMOR LÍQUIDO SEM ÁLCOOL
+
+ontem jorrava saliva 
+na minha boca 
+hoje somos a letra de 
+Somebody That I Used To Know
+---
+assim que ten 
+entrei 
+pensei te ver saindo 
+e ao te sair 
+a imagem de você 
+voltando 
+
+não havia seguranças
+---
+passei a dar o seu sorriso
+---
+para onde vocês estão levando 
+o corpo dela
+---
+todas estão vestindo 
+sua máscara 
+e isso reflete profundamente 
+a moda contemporânea
+---
+tenho sido 
+seu tecido
+---
+ela jurou que me amava
+
+hoje em dia os efeitos especiais 
+estão cada vez melhores
+---
+ontem ele mandou flores
+
+vocês combinam
+
+mas ele não é atencioso 
+nem carinhoso
+
+eu estou falando das flores
+---
+conforme flores 
+com forma 
+de flores em flores 
+para que eu 
+consiga 
+apanhar sozinho
+---
+juntos compomos 
+um soninho 
+até o nascer do sol 
+---
+TINTA & PURGATÓRIO
+
+antes adiavam 
+um pouco 
+as penas 
+dos poetas
+---
+não lembro Absolut 
+amente nada 
+que eu li 
+ou escrevi 
+por trás 
+dos msmsmeus*(?) olhos
+---
+te bêjo palavra
+---
+falo dos olhos dela 
+ela muda de assunto
+fala dos meus 
+---
+escreverei cada vez melhor 
+você querendo ou não 
+você nunca vai me amar 
+mesmo querendo
+---
+nós sempre vamos sair no auge 
+nós sempre vamos sair no auge
+nós sempre vamos sair no auge
+---
+você é a tradusol do que é o luar
+---
+NÃO MONOGAMIA
+
+não foi a melhor traição que você já sofreu?
+
+SIM!
+---
+emprestou-se 
+de corpo e alma 
+agora daria 
+a mão 
+para estar 
+de volta
+---
+você mostrou sua cidade 
+eu mostrei meu mundo
+
+e sempre vou me perdoar por isso
+---
+sabe você é uma pes
+soa boa demais 
+para mim
+
+então o que fazer 
+para me tornar pior?
+---
+CORTA PARA:
+INTERIOR. APARTAMENTO DE AMADA – NOITE
+
+AMADA.	Estamos no ar! 
+AMOR.	Tá gravando?
+SAUDADE.	E se eu corresse sorrindo… direto para os seus braços... veriam então... 
+o que eu vejo agora?
+---
 INTERIOR. CASA DE VITÓRIA – DIA
 
 Telefone não toca. 
