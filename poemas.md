@@ -1,6 +1,197 @@
 ---
 layout: default
 ---
+A PEDRA
+
+sempre me lembro 
+de uma amável 
+e magnífica frase 
+de Goethe 
+que me inspira 
+nos dias mais bem-aventurados 
+e com tamanha emoção 
+reflito 
+“muitas vezes gostaria 
+de rasgar o peito 
+e golpear o crânio 
+por sermos tão poucos 
+uns para os outros” 
+
+acho que o caminho 
+é por aí
+---
+oportunidade de ouro 
+para você ficar 
+mais pobre
+---
+ego sujo e mundo 
+---
+você tem dom 
+vocação 
+muito talento
+
+você está sendo injusta 
+com o meu sofrimento
+---
+sem se despedir 
+de ninguém 
+porque há mais de vinte anos 
+que vive ali 
+sente-se 
+sozinho
+---
+às vezes 
+a arte tem o dever 
+de errar 
+a natureza 
+nem sabe 
+o que é isso
+---
+espécie de poesia nativa 
+que reconstitua 
+o sentimento 
+que foi 
+destruído
+---
+DEPRESSÃO
+
+por Ana Claudia Quintana Arantes 
+Henry Charles Bukowski
+e Vinícius Knecht
+
+é claro que você já ouviu 
+que a depressão é o câncer da alma
+
+2.
+eu gostaria de escrever 
+para o pássaro azul 
+que está se sentindo 
+o pássaro mais solitário 
+do mundo 
+neste momento 
+eu diria 
+fiquei aí 
+eu vou lhe mostrar o mundo
+olhe este mundo 
+que não merece ver 
+você
+
+1.
+Ana Claudia encontrou 
+a melhor explicação 
+de depressão 
+imagine então
+uma pessoa 
+curada do câncer 
+que se sente 
+completamente 
+infeliz 
+estando viva
+…
+
+ 
+3.
+crises periódicas do fígado 
+pulei do décimo quarto salário 
+é claro que você já ouviu 
+que a depressão é o câncer da alma 
+e se eu rastejasse 
+direto para as suas pernas... 
+veria então…
+o que eu vejo agora?
+---
+eu preciso construir 
+um cemitério 
+para passarinhos 
+que não seja 
+no chão
+
+eu não entendo 
+isso não faz 
+o menor sentido 
+Vinícius
+
+você não entende mamãe 
+eu preciso encontrar 
+Matilde Campilho 
+é a única maneira 
+que eu encontrei a
+
+POESIA
+---
+as janelas cumprirão 
+apenas um papel 
+decorativo 
+na casa
+
+(para Van Gogh)
+---
+a medida de um QI 
+raramente
+se assemelha 
+ao diâmetro da alma
+---
+deixando a Terra 
+pintada de sangue 
+derramou 
+o azul
+---
+verso mais que penso
+poesia muito mais que raciocínio
+---
+abandonou a página
+abandonou todo o passado
+---
+sentava na frente 
+para me sentir 
+o piloto 
+hoje sento na frente 
+para sero primeiro 
+a ir embora
+---
+nos chamam de loucos 
+mas o que esses normais 
+estão fazendo 
+que preste
+---
+PAIS E FILHOS
+
+você não pensou em nós antes 
+de ter depressão?
+---
+minha mãe 
+me penteou
+minha poesia 
+me enterrou
+---
+azar na vida
+sorte na arte
+---
+tenho que anunciar 
+a gravidez da velha poesia 
+tenho que anunciar 
+a insônia do sol 
+o bocejo da chuva 
+a sombra do mosquito 
+um amor de castigo 
+a idade da solidão 
+e todas as solidões sem sentido 
+minha infância teve a voz 
+dos meus olhos
+---
+sua vida 
+é uma 
+mentira 
+contada 
+uma vez 
+que você 
+acreditou 
+nela
+---
+só, 
+mais um 
+poeta
+---
 a morte acordou comigo 
 e fomos passear 
 no último passeio 
