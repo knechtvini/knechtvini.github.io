@@ -1,6 +1,227 @@
 ---
 layout: default
 ---
+metafísica conta que 
+serei seu anjo 
+arte conta que 
+serei seu fantasma 
+ciência afirma que 
+serei uma espécie de seu satélite
+---
+não é justo comigo 
+ser justo com você 
+neste momento
+---
+amores Made in China
+---
+só um feto provocava afeto?
+---
+você é tudo que eu quero
+
+você é tudo que eu tenho
+---
+antigamente no polo sul da lua 
+hoje mais pelo polo dance
+---
+você fala comigo
+com mais pontos 
+do que vírgulas.
+---
+brota mais pra dentro?
+---
+você me ama? 
+onde? 
+eu eu não consigo 
+vê-lo 
+tocá-lo 
+senti-lo
+
+sim 
+amo 
+amo na Fossa das 
+Marianas
+
+não posso fazer nada com as suas palavras 
+vazias
+---
+se não escrevemos as nossas próprias histórias 
+ao menos uma vez 
+alemos
+
+SIGNIFICADO DE ALEMOS
+
+alemos vem do verbo alar 
+o mesmo que 
+ergamos 
+puxemos 
+elevemos 
+subamos 
+icemos
+
+SIGNIFICADO DE ALAR
+
+dar asas 
+elevar 
+erguer 
+alar o espírito às regiões do belo
+---
+porque agora acabou 
+para você e eu 
+para
+o adeus final 
+para
+
+O ADEUS INICIAL
+---
+as pessoas não são infinitas 
+mas suas almas 
+se expandem 
+o tempo todo
+---
+80s 
+
+enfrentar a pista 
+descobrir na discoteca 
+blecaute agitado 
+nocauteado 
+num globo espelhado 
+vendo-se só para
+
+DANÇAR QUEEN FEITO UMA RAINHA
+---
+tendo alcançado um brilho 
+muito intenso 
+objeto que mais brilha 
+no céu noturno
+depois da lua 
+o nosso amor 
+visível 
+a versos nus
+---
+algo catastrófico aconteceu no sistema solar 
+me apaixonei por ela 
+correr não adianta
+ria 
+neste caso
+---
+nem tudo é o que aparece
+---
+Toby era o meu maior hobby
+---
+atualmente se interessa mais por ufologia 
+do que por romance
+---
+ler um bom livro é como você 
+vestir a melhor capa 
+para ficar em vida
+---
+bilhões e bilhões de poesias 
+atraversando o seu corpo 
+enquanto você lê essa poesia
+---
+conhecemos mais 
+o espaço 
+e o oceano 
+do que 
+a poesia
+---
+deixe o meu dia 
+mais leve 
+para onde você estiver
+---
+canto ela 
+arranjo namorada 
+gosto da melodia 
+me instrumenta
+---
+plantas com anos neste ramo
+---
+ERA UMA VEZ…
+
+o dia em que o ser humano 
+percebeu que abre mão 
+de abrir asas
+---
+paixão tirou os sapatos 
+para não fazer barulho 
+não teve jeito 
+amor acordou
+---
+há coisas 
+tão poéticas 
+que não cabem 
+na poesia
+---
+nunca teve primeiras intenções
+---
+JUSTIÇA COM AS PRÓPRIAS MÃES 
+
+ah se o mar fosse no feminino...
+---
+eu te amo
+
+eu não seria tão idiota de acreditar nisso
+
+não te dei amor mas te dei sabedoria
+---
+um ingresso num amor ou 
+um ingresso para assistir a estreia de Titanic 
+no cinema 
+em 1998
+---
+seus olhos são tão lindos
+quanto o seu olhar
+---
+AMOUR
+
+clamor orgíaco da solidão
+---
+AMOUR
+
+do gozo ao catarro
+---
+desligava todas as luzes 
+no entanto 
+no momento em que penetrava 
+fechava os olhos
+---
+“verdade que consegui fazê-lo chorar?” 
+repetia dezenas e dezenas de vezes 
+como quem ganhara 
+o Prêmio Nobel 
+---
+seu gemido ecoava 
+poesia orquestrada
+---
+pulando acerca de 
+---
+a paleta de cores de uma mulher
+---
+você é uma página do World
+---
+ter o poder 
+de prever você
+---
+ele estava apenas correndo 
+na sua frente 
+ou ele estava fugindo 
+de você?
+---
+lamento 
+você fala comigo 
+com sintomas 
+não com 
+sentimentos
+---
+suas infidelidades não eram tão 
+dramáticas 
+mais do gênero 
+fantasia
+---
+sempre te amei Pierrot
+
+meu nome é Ferdinand
+---
 tripulação da alma 
 amor comandante
 ---
