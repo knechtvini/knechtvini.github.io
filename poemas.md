@@ -1,6 +1,276 @@
 ---
 layout: default
 ---
+não era insônia 
+era vigília 
+para a saudade
+---
+tédio a dois 
+nunca é tédio
+---
+primeiro o zíper 
+ou primeiro o botão
+---
+novas saudades virão
+---
+SEXO EM CRASE
+
+deixar
+a vontade 
+à vontade
+---
+há muitas coisas 
+acontecendo 
+dentro de mim 
+que não 
+têm nome 
+mas todas elas 
+têm fome
+---
+sabe aquela pessoa 
+que você ama 
+e não fala isso para ela?
+
+ela já morreu no futuro. 
+saudade vem de dentro 
+ou vem de fora?
+---
+quanta vezes precisa voltar 
+para que não seja mais volta?
+---
+amor não é duas pessoas 
+sendo tudo 
+uma para a outra 
+amor é bem menos 
+que isso
+---
+acreditar 
+que é mesmo amor 
+só acredito 
+quando não estou acreditando 
+que está acontecendo
+---
+és fogo 
+quando 
+tu me chamas
+---
+nalguns silêncios 
+amor precisa falar 
+mais alto
+---
+amor é bem mais complexo 
+do que 
+separe-se
+---
+viajamos e moramos na viagem
+---
+ME CHAME PELO SEU NOME
+
+se me chamares 
+pelo seu nome 
+eu vou olhar antes 
+acordar 
+num amor 
+é um acordo 
+entre duas partes
+---
+amor dispensa curiosos
+---
+amor que toca a companhia 
+e sai correndo
+---
+amor oscila 
+entre desejo 
+e oscilação
+---
+amar sem anestesia geral
+---
+ela me encolheu 
+virei o seu a 
+feto
+---
+traição quatro rodas
+---
+há lilás 
+não quero 
+te verde 
+novo
+---
+achei que viria um amor 
+meu time foi campeão do mundo 
+achei que viria um amor 
+ganhei na mega-sena
+---
+asar no amor
+---
+amor líquido sem álcool
+---
+oi nós nos conhecemos? 
+
+não mas eu te sigo nas 
+ruas
+---
+a manhã 
+em que ela 
+nunca mais voltou
+---
+é claro 
+que te amo 
+mas eu 
+vou fazer 
+o meu 
+feijão com arroz
+---
+nosso amor foi uma febre
+---
+ÓCULOS
+
+olhar sem armação
+---
+já vi tantas Cenas de um Casamento
+que o amor não me faz 
+mais piscar
+
+(em memória de Ingmar Bergman)
+---
+lembra quando corri 
+até a parada
+para te encontrar 
+antes de entrar 
+no ônibus 
+mas você 
+já estava 
+dentro do táxi
+é assim que eu vejo a vida
+---
+então ouço Bee Gees 
+e lembro 
+do meu amigo que 
+está mais aqui
+---
+SENTIMENTO VERMELHO
+
+esta é a parte do livro 
+em que eu escrevo 
+come on baby blue
+---
+GETTING INTO THE SWING... 
+(and KINGS OF CONVENIENCE)
+
+no isolamento da noite 
+eles se encontram 
+num desses desencontros 
+ele tem voz de fantasma 
+em sussurros do além 
+ela tem voz de anjo 
+em melodias celestiais 
+ele pensa que está vivo 
+no frenesi das sombras 
+ela pensa que está morta 
+no lamento dos suspiros 
+então esta noite 
+entre perpétuas e murinhos 
+eles vão dançar o bom e velho 
+rei da conveniência
+ressoando cada um 
+à sua maneira 
+em um dueto figurado 
+ele ecoa notas perdidas 
+assombrado pelo passado 
+ela entoa harmonias 
+transcendendo o presente 
+mas qual é a diferença 
+
+então esta noite 
+a pista é o palco deles 
+onde todos os mistérios 
+se movimentam 
+
+“porque eu não li nenhum livro 
+o ano inteiro 
+e o único filme que eu vi 
+não gostei nem um pouco 
+eu prefiro dançar 
+a conversar com você” 
+---
+um 
+segundo 
+após 
+um 
+século 
+de amor
+---
+deixou um escritor 
+inspirado
+o deixando 
+sem palavras
+---
+T’ESCOLHA
+
+me arrependo de amar você
+---
+nunca sinta alguém
+por sentimentos de outros
+---
+PRELIMINARES
+
+promessa de prazer 
+não quero ouvir mais um arrepio 
+uma chama mais que as outras
+sus surra num embriagado
+amarrado 
+e desvendado
+
+agora começa
+
+a boca dela... 
+a voz dela...
+o que entra nela... 
+o que sai dela...
+
+uma poesia. 
+---
+LAS POESIAS
+
+vocês já sabem
+o que acontece 
+em Poesias
+não fica 
+só em Poesias
+---
+amor feijão com maionese
+---
+você entendeu tudo errado
+
+você disse com todas as letras 
+o tempo todo 
+que queria 
+morar comigo 
+ter filhos comigo 
+que me amava 
+e que queria ficar comigo 
+para sempre
+
+mas não literalmente Vinícius 
+você confundiu as coisas
+---
+olha eu sei 
+as coisas não têm sido fáceis 
+entre a gente 
+por isso decidi 
+fazer algo diferente 
+comprei duas passagens para Paris
+
+eu não sei onde você quer chegar com isso 
+Vinícius
+
+PARIS!
+---
+dos meus 
+melhores arrependimentos 
+ter entrado 
+em você
+---
 abanar o meu corpo 
 pois estou toda sua
 ---
