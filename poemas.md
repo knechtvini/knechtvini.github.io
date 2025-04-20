@@ -1,6 +1,164 @@
 ---
 layout: default
 ---
+PÂNICO
+
+meu medo 
+dirigiu-se 
+às vias 
+respiratórias
+---
+PÂNICO
+
+tanto gatilho 
+que me sinto 
+um 
+arsenal
+---
+sorteei minha alma 
+os vencedores 
+não quiseram 
+receber 
+o prêmio
+---
+me enfrento todos os dias 
+costumo perder
+---
+da noite para o dia 
+percebi que 
+meus objetivos 
+não eram 
+meus sonhos
+---
+depender de dom e vocação 
+é algo 
+muito perigoso
+---
+há uma voz 
+gritando 
+na minha cabeça 
+você não vai conseguir 
+eu vou deixá-la rouca
+---
+venci a depressão
+fiquei em 
+terceiro lugar
+---
+amei o jeito 
+que você me abandonou
+---
+me tiro na cabeça
+---
+elogiando 
+minha poesia 
+ela estava 
+indiretamente 
+elogiando 
+minha dor
+---
+anjo na guitarra 
+você chegou 
+no solo 
+antes 
+do que eu
+---
+conheça os novos 
+nem-nem
+nem reconhecimento
+nem respeito
+---
+você não tem 
+vergonha 
+de chegar aqui 
+deprimido 
+desse
+jeito?
+---
+por deus 
+nunca vou 
+iniciar 
+seu nome 
+com letra 
+maiúscula
+---
+DEPRESSÃO
+
+com o astigmatismo 
+pude ver 
+três luas 
+
+olha só
+---
+poeta acamado pelo público
+---
+num mundo distópico 
+eu faço sucesso
+---
+estou sofrendo tanto
+
+mas está bem escrito? 
+---
+pode ficar lá fora um pouquinho?
+eu não quero que você me veja 
+tomando medicamentos
+---
+a diferença era que 
+ele só a visitava 
+no sol 
+e ela visitava ele 
+no atemporal
+---
+adultos brincam 
+de esconde-esconde 
+para chorar 
+em banheiros
+---
+não me considerava a pessoa certa 
+para mim
+---
+FLASHBACK ANTES DA MORTE
+
+melhores momentos 
+ou 
+maiores arrependimentos? 
+---
+eu só precisava me esconder 
+mas eu só tinha 
+o meu corpo
+---
+dancei com depressão 
+me senti um
+herói de guerra
+
+UNDER PRESSURE
+---
+Querida, 
+Você está esperando o amor 
+E não a morte.
+
+Ass: V.K.
+---
+pode ler a minha mente 
+mas eu não uso 
+vírgulas
+---
+acabei de receber a notícia 
+de que ele se matou 
+estou em choque
+
+mas ele se vitimizava 
+o tempo todo 
+né amiga
+---
+olha para ele 
+ele está 
+visivelmente 
+deprimido
+
+hum não acho que esteja
+tão visível
+assim
+---
 estou vendendo minha arte 
 tanto quanto 
 dizem 
