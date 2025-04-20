@@ -1,6 +1,330 @@
 ---
 layout: default
 ---
+CONFORTO PARA UMA VELHINHA 
+DE NOVENTA E NOVE ANOS DE IDADE
+
+“a senhora é muito forte 
+vai viver até os cem anos”
+---
+com licença você gostaria de um café tradicional 
+ou extra-forte?
+
+estou completamente apaixonado por você
+
+que? 
+
+forte
+---
+desculpa por você me aguentar
+---
+Vinícius é encontrado apaixonado em sua casa 
+aos trinta e três anos de idade 
+por causas naturais
+---
+estava no fundo do poço 
+e lá também havia uma igreja
+---
+ele é tão ridículo me convidou para sair de novo 
+acredita
+
+e o que você respondeu
+
+que sim né
+---
+posso não ser do tipo sentimental 
+mas eu tenho piscina em casa
+---
+PAUTA
+
+homem mostra o seu órgão genital 
+para mulher 
+em restaurante 
+é que ela estava muito apaixonada 
+e pediu para ver
+ali mesmo
+---
+não se preocupe se o nosso encontro 
+for uma tragédia 
+eu te darei outra oportunidade
+
+e se o segundo também for
+---
+gostos se discutem
+---
+GERMANO
+
+impressionante como os nossos bichinhos 
+sentem quando estamos tristes 
+outro dia flagrei o meu gato 
+ligando para o meu ps
+pspsiquiatra
+---
+olha filho ele está fazendo arte na praça
+
+acho que ele tá passando vergonha mamãe
+---
+hoje é um dia muito especial
+você vai morrer 
+e nós vamos celebrar a vida
+---
+bocejou na missa 
+missão cumprida
+---
+pode ser a minha última leitura
+---
+gaste mais tinta 
+Editora
+gaste mais tinta
+nesta impressora
+---
+Kieran Culkin você pode ser meu amigo? 
+---
+perguntei para a vida 
+qual o próximo passo 
+o moonwalk 
+ela respondeu
+---
+estou na lista dos sete bilhões 
+melhores poetas do mundo
+---
+a melancolia é boa de cama
+---
+desculpa eu pensei sem falar
+---
+me separei da minha namorada imaginária 
+eu não estava sendo verdadeiro
+---
+SLOGAN PARA PSICÓLOGOS
+
+“Eu me devo explicações.”
+---
+o que o gato diria se pudesse falar
+perguntou o cachorro
+---
+A MULHER-MARAVILHA
+
+seria vergonhoso salvar o mundo 
+mal vestida
+---
+você gosta de poesia? 
+é a única coisa 
+que eu sei fazer na vida
+
+não.
+---
+APLICATIVO DE NAMORO 
+
+“no cardápio parecia maior”
+---
+coincidências para dizer que acertei
+---
+Vinícius não fique 
+tão triste 
+nós 
+cogitamos 
+lhe convidar
+---
+cigarro traga poesia
+---
+eu sou nova neste ramo 
+de flores
+---
+amor faz até cebola chorar
+---
+você é tão linda
+
+que gentil 
+são meus olhos
+---
+as pessoas não têm mais medo 
+de se relacionar
+elas têm fobia
+---
+TERROR MODERNO
+
+Eu Sei O Que Vocês Fizeram No Amor Passado
+---
+certo dia flagrei 
+a minha dor 
+na cama 
+com o meu melhor 
+poema
+---
+PAUTA
+
+motorista flagrado bêbado 
+enquanto não dirigia
+---
+você só diz eu te amo 
+entre “aspas”
+---
+pode ser a minha primeira leitura
+---
+companhia pareceu tão boa 
+na verdade foi você 
+fazendo o papel 
+da companhia
+---
+maturidade é saber 
+a hora certa 
+de voltar 
+para o colo 
+da sua mãe 
+e chorar
+---
+você já faz tanto tempo 
+parece que foi outrem
+---
+TROTE UNIVERSITÁRIO
+
+lembro quando participei 
+do trote universitário 
+ligaram-me se passando 
+por uma Universidade 
+dizendo que eu passei 
+no vestibular
+---
+mágoa você mede com trégua
+---
+se amor tivesse cheiro 
+seria o de bergamota
+---
+quem é você para julgar você
+---
+era psicólogo e poeta
+não podia ler mentes
+sem seus óculos
+---
+paixão é amor entre aspas e beijos
+---
+quando eu era um bebê 
+eu realizava 
+todos meus sonhos
+---
+você sabe 
+qual o super-herói preferido 
+da depressão 
+e da ansiedade? 
+
+O SUPER-AR
+---
+serei um figurante recebendo o Oscar
+---
+ele disse que quer voltar comigo 
+o que eu respondo
+
+que quer voltar 
+sem ele ué
+---
+sorriu de saudade 
+faltando um ente 
+então poeta
+sobre o seu diagnóstico 
+infelizmente trata-se de pneumoultramicroscopicossilicovulcanoconiótico
+---
+a palavra 
+neologismo 
+faz com que palavras 
+sejam infinitas
+---
+ELOGIOS CONTEMPORÂNEOS
+
+“ela é tão artista”
+---
+é crédito ou plágio?
+---
+o IML sequestrou o meu corpo
+---
+tédio e sexo ruim só depois do casamento
+---
+mais biblio menos bíblia
+---
+POPULAR
+
+camisa do seu time em promoção 
+por 549,99
+---
+CARTA DO DESCOBRIMENTO 
+
+meu deus 
+plagiei Pero Vaz de Caminha
+---
+me candidatei a ver a dor
+---
+inteligência artificial sequer entende 
+uma piada
+---
+chefe eu poderia trabalhar em dobro amanhã?
+é que a minha vida pessoal 
+está uma merda
+---
+ISTO NÃO
+É POESIA
+---
+CORTA PARA:
+INTERIOR. ESCRITÓRIO DE UM HOMEM – DIA
+
+UM HOMEM. 	Você está se sentindo desconfortável com a minha presença? Digo... por eu ser um homem. Eu posso chamar outros cinco para você se sentir mais segura. 
+a vida é uma piada 
+e por isso vale a pena
+---
+louco não medicado 
+tem a droga da razão
+---
+AMBIGUIDADE
+
+não há tantos inimigos
+assim
+---
+VEÍCULOS
+
+artista rebaixado 
+por veículos de imprensa
+---
+não sou preguiçoso 
+não estou deprimido
+sequer doente
+apenas estou 
+encamado
+---
+CORTA PARA:
+INTERIOR. APARTAMENTO DE ASSASSINO – NOITE
+
+ASSASSINO.	  Não somos tão terríveis quanto as assassinadas pensavam.
+---
+ele é um bom poeta 
+
+é sim 
+mas aposto que ele já matou alguém
+---
+foram criados juntos 
+na Alemanha 
+do interior 
+do Rio Grande do Sul
+---
+por que você não foi na festa
+
+eu ainda não havia voltado da guerra
+---
+não tenha medo 
+de envelhecer 
+tenha pavor 
+e pânico
+---
+Adolfo 
+você está 
+com os séculos 
+contados 
+Adolfo
+---
+Eu acho que a gente podia...
+
+CORTA PARA
+INTERIOR. VOZ DELA – NOITE
+
+VOZ DELA.	Eu só consigo te ver como amigo, Vinícius...
+---
 a vaga 
 foi pro 
 bêjo
