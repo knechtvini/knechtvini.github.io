@@ -1,6 +1,148 @@
 ---
 layout: default
 ---
+CRIANÇAS
+
+infância 
+muito mais 
+feliz 
+quando era 
+muinto
+---
+sentimos mais 
+que os outros 
+ou os outros 
+não querem 
+falar 
+sobre isso?
+---
+os homens 
+também 
+sentem 
+que não 
+sentem
+---
+as piores despedidas 
+são sempre aquelas 
+que acontecem
+---
+escrever para cicatrizar
+---
+não deixe que o seu dia 
+estrague a sua vida 
+não deixe que a sua vida 
+estrague o seu dia
+---
+eu me entrego 
+mas sempre me pego 
+de volta
+---
+parecia que ele estava 
+sempre se despedindo 
+do mundo 
+e isso 
+o encantava
+---
+Vinícius esgotado 
+em menos de trinta e três anos 
+considera-se sucesso 
+de bilheteria
+---
+machuca-se fácil 
+aquele que veste 
+muitas armaduras
+---
+escrevo por aparelhos
+---
+dor perde 
+a criativ
+idade 
+com a arte
+---
+SAUDADE
+
+quando 
+tudo 
+final
+mente
+em caixa
+---
+AUTOAJUDA
+
+o mais importante 
+não é vencer 
+a depressão 
+o mais importante 
+é competir
+---
+lembrança de quando fui 
+num zoológico 
+pela primeira vez 
+eu parecia 
+o animal 
+mais triste
+---
+RD – Recursos Desumanos
+---
+tu tropeças teatrais
+---
+DSM-5 edição de bolso
+---
+fantasmas que vão te assustar 
+apenas quando você 
+também for 
+um fantasma
+---
+DEPRESSÃO
+
+mais goteiras 
+dentro 
+do que chuva 
+fora
+---
+Deus 
+sabe 
+o que 
+Diabos 
+tinha na 
+cabeça
+---
+CORTA PARA:
+INTERIOR. APARTAMENTO DE LINDA – NOITE
+
+LINDA.	Precisamos conversar. Eu tenho algo. 
+VINÍCIUS.	O que houve?
+LINDA.	Acabou, Vini... eu quero terminar.
+VINÍCIUS.	Mas aconteceu alguma coisa? Sério. Não precisava disso.
+LINDA.	É só uma lembrancinha...
+---
+acadêmico 
+estudioso 
+dedicado 
+visitou dezenas 
+de clínicas psiquiátricas 
+todas elas 
+paciente
+---
+minha poesia foi uma febre
+---
+morrendo fazendo 
+o que mais gosto 
+viver
+---
+cada um 
+com a sua utopia 
+a minha é 
+sobreviver
+---
+como a natureza ousa
+invadir os humanos
+---
+ALHO E ÓLEO SOBRE TELA
+
+Nome: Pedra
+Data: No meu caminho
+---
 A PEDRA
 
 sempre me lembro 
