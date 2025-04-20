@@ -1,6 +1,165 @@
 ---
 layout: default
 ---
+a morte acordou comigo 
+e fomos passear 
+no último passeio 
+eu já desconfiava 
+e isso ninguém ficou sabendo
+---
+sinto muito mas já escreveram isso
+
+do mesmo jeito que eu senti?
+---
+por que você ainda escreve poesia?
+
+acredito que é minha maneira diária 
+de me despedir
+---
+natureza humana se trata na Terra
+natureza humana se trata da terra 
+os pobres morrem de fome 
+em massas
+---
+será que vou assistir 
+o seu show 
+ou será que 
+finalmente 
+eu vou aprender 
+a não dançar 
+no final
+---
+SEIS
+
+decidi que 
+o meu sangue 
+de inocência 
+aos sorrisos 
+dos olhos 
+virão no dia 
+do meu aniversário 
+estou velho demais 
+para impedir 
+
+anseio pelo descanso 
+e que não chegue 
+no meio da noite 
+então lamente 
+apenas duas vezes 
+no mesmo dia
+---
+seria clichê demais
+terminar mal 
+no final
+---
+morte
+es
+cura
+---
+a dor está no ar
+---
+minha sorte 
+que não alcanço 
+o teto 
+e não dou corda 
+para as cadeiras
+---
+a atenção só quer chamar você
+---
+o fim de um novo começo 
+o começo de um novo fim
+---
+se eu escrever não chores não 
+é só poesia
+---
+tenho cicatrizes imaginárias
+imaginárias para vocês
+---
+O QUADRO
+
+como você 
+decora
+tudo que 
+você sente
+---
+mamãe um dia entenderá
+que eu 
+poderia 
+ter partido 
+muito 
+antes
+---
+estou guardado nas nuvens 
+do seu drive
+---
+de vez em quando 
+sinto a sua falta 
+por ex 
+nas novas 
+despedidas 
+atuais 
+rejeições 
+humilhações 
+
+você costumava estar lá
+---
+confesse 
+você chorou com outro 
+ontem 
+---
+você 
+me preparou 
+um belo 
+café 
+mas não 
+me preparou
+para 
+terminar
+---
+é hora de 
+bater o ponto
+.
+..
+é hora de 
+ir para casa
+é hora de 
+bater as asas
+
+o céu espera a coragem.. .
+---
+este poeta não me passa uma energia muito boa
+
+é muita gente deve ter morrido ali dentro
+---
+no meu aniversário 
+ela deu um passado 
+de presente
+---
+um ridículo com repertório
+---
+fizemos tantos
+planos 
+e agora penso 
+em um 
+plano 
+para estar 
+em outro 
+plano
+---
+saiu da sala do psicólogo 
+a mãe que conseguiu ouvir tudo 
+lá do lado de fora 
+e não fazia ideia 
+de como era lá dentro 
+disse 
+você não deveria ter dito aquilo
+---
+o que vocês ainda esperam de mim
+ainda esperam algo de mim
+já não escrevi o insuficiente
+
+o que vocês ainda esperam de mim
+---
 INTERIOR. CASA DE VITÓRIA – DIA
 
 A televisão está desligada. 
