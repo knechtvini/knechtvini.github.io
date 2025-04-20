@@ -18,6 +18,7 @@ de me despedir
 ---
 natureza humana se trata na Terra
 natureza humana se trata da terra 
+---
 os pobres morrem de fome 
 em massas
 ---
