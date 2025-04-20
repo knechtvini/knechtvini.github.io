@@ -1,6 +1,204 @@
 ---
 layout: default
 ---
+estou em ruínas 
+há mais de trinta anos 
+alma mutilada 
+mente não restaurada 
+conservado em ruínas 
+para que ninguém 
+possa 
+culpar-me 
+de 
+
+não ter sofrido o bastante
+---
+esperando-a se confessar mais fraca
+---
+torturar o Diabo seria pecado?
+---
+maior facilidade 
+em engolir 
+comprimidos maiores
+---
+Kundera disse que 
+poder viver apenas uma vida 
+é como não viver nunca
+Vinícius disse que 
+morrer apenas uma vez na vida 
+é como não morrer nunca
+---
+escrevo 
+compulsiva
+mente 
+para 
+me sentir 
+menos 
+consciente 
+---
+abusador entra em 
+festa de corpo 
+de penetra
+---
+se está melhor talvez 
+já nem percebe
+---
+sentimos tão pouco 
+e pessoas 
+nos dão 
+menos 
+---
+sua sensibilidade 
+olha para sua intensidade 
+que toca sua depressão 
+que beija sua ansiedade 
+que penetra na sua arte
+---
+por que você não consegue criar 
+outras personagens
+
+porque todas acabariam sendo 
+eu mesma
+---
+eu mesmo já morri 
+aos trinta 
+e virei um urubu 
+sobrevoando atrás 
+de poesias mortas 
+que nunca 
+foram veladas
+---
+longe de serem mais sensatos 
+depois de mortos 
+em cima d’eles imitações de palácios 
+ostentando 
+supostas importâncias
+---
+depressão versa sobre 
+não conseguir ouvir 
+seus próprios silêncios
+---
+súbitas ondas de ódio 
+o mar é tão gentil...
+---
+atualmente 
+o mais triste 
+plantado 
+naquele cemitério
+---
+amar você foi como ir 
+até o hospital 
+por conta de 
+uma espinha 
+e ser internado
+---
+queria tanto 
+não ter o que dizer 
+naquele 
+instante
+---
+nos extremismos 
+luz intensa 
+que cega 
+ou escuridão 
+total
+---
+era como ter sua mãe 
+no ventre 
+e ouvi-la implorar 
+para que ele 
+não abandonasse 
+a sua alma 
+era como ter a sua mãe 
+no ventre 
+e ouvi-la gargalhar 
+para que 
+a sua alma 
+não o abandonasse
+---
+teve oito pretendentes
+
+o primeiro era mais bonito
+o segundo mais espirituoso
+o terceiro mais rico
+o quarto mais esportivo
+o quinto de uma família melhor
+o sexto lhe recitava versos que criara 
+até publicar o seu terceiro livro
+o sétimo viajara pelo mundo inteiro
+o oitavo era o mais viril dos homens
+
+adivinhe o primeiro a ser rejeitado
+
+dica 
+
+todos se ajoelhavam da mesma maneira
+mas só um tinha bolhas 
+na alma
+---
+fizeram um filho 
+sem dizer uma só 
+palavra
+---
+silêncio Ludwig van Beethoven 
+eu não quero ouvir mais um 
+piano
+---
+pus-me na sua sombra 
+e o sol desaparecera 
+ponha-se 
+no meu lugar
+---
+amor no signal
+---
+eu vou do inferno ao seu
+---
+não tinha a menor ideia 
+de qual olhar 
+e o que aquele olhar 
+lhe ameaçava 
+mas instintivamente 
+cismava em tentar 
+se defender
+---
+ainda que sus 
+surrando 
+era uma 
+ordem
+---
+arremessaram uma corda 
+para tirar aquele artista 
+do fundo do poço 
+mas ele usara 
+da forma mais triste
+---
+era dia 
+claro
+a razão ven
+céu
+---
+eu sinto muito a sua fala
+---
+parei de ficar jogando as coisas por aí 
+porque eu sou muito frágil
+---
+dores 
+passando 
+pano 
+para outras 
+dores
+---
+Vinícius Knecht anuncia que 
+vai se aposentar como poeta 
+porque Xavier Dolan 
+vai se aposentar como cineasta 
+
+POR FALTA DE APOIO
+---
+me questiono se minhas poesias 
+são ruins 
+e eu sei que não são 
+---
 o maior castigo da vida 
 está longe de ser 
 a morte
