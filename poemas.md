@@ -54,9 +54,7 @@ da subjetividade humana
 mas a explicação 
 ou a mera interpretação 
 da mesma
----
-o importante é dar o último passo 
----
+
 Abujamra
 
 Vinícius Knecht o que é a poesia?
@@ -96,6 +94,8 @@ você vem com essa para cima de mim?
 (risos)
 
 vem cá e me dá um abraço
+---
+o importante é dar o último passo 
 ---
 por que você fez isso? 
 sério
