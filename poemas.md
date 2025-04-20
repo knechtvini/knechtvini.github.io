@@ -1,6 +1,339 @@
 ---
 layout: default
 ---
+a vaga 
+foi pro 
+bêjo
+---
+como estava o funeral do Vinícius
+
+não tinha nem wi-fi você acredita
+---
+amar não é decoreba
+---
+me ama? 
+então diga que me ama
+nas normas da ABNT
+---
+Querido,
+Como você está?
+Eu havia esquecido 
+Completamente 
+Da sua existência
+
+Ass: I. W.
+---
+ladies and gentleman it’s THE STROKES
+---
+é impressionante como você é bom 
+naquilo que você faz 
+vejo que estuda muito 
+trabalha duro 
+parece determinado
+até mesmo obcecado
+mas eu lhe pergunto
+qual é o segredo?
+
+100% Jesus
+---
+Maria dizia eu te amo 
+para Pedro 
+que respondia 
+para Paulo
+---
+tenho sobrado pra cachorro
+---
+CONTINHO DE TERROR
+
+um morto senta na praça 
+afinal de contos 
+não dá para lhe seguir 
+o tempo todo
+---
+felicidade não traz dinheiro
+---
+delinquente cai em golpe das fake news 
+e acaba espalhando notícia verdadeira
+---
+proclamar a independência alcoólica
+---
+“não gosto muito de futebol 
+mas nada contra o racismo”
+---
+um peixe nada 
+como um dia após o outro
+---
+Deputado Vinícius Knecht cria projeto de lei 
+“Lei A.”
+---
+Inteligência Artificial é réu primária
+---
+o louco diz que é um viajante do tempo 
+o gênio é aquele que cria uma máquina do tempo
+---
+e me conta eles ficam juntos no final?
+
+no final todo mundo morre meu amor
+---
+do xadrez 
+para choque 
+mata 
+que pena
+---
+a lua pisou no amor 
+pela primeira vez 
+no dia __/__/____
+mas foi tudo inventado 
+e o Stanley Kubrick que fez 
+aquelas filmagens
+---
+MONÓ LOGO
+
+para quem não sabe o Vini foi
+---
+você é a favor da escala ao Everest?
+---
+MODÉSTIA PARTE
+
+modéstia parte 
+fizemos grandes inimigos 
+temos que reconhecer
+---
+CRÍTICA CONSTRUTIVA
+
+“belo concreto”
+---
+um fantasma que não aguenta mais o que não vê
+---
+um homofóbico que acredita mais nas fadas 
+que nos machos
+---
+pai se você está mesmo lendo este livro 
+me diga o número desta página
+---
+sombrio demais para chegar nela
+---
+abordar missão
+---
+é muito solo para quem deseja voar
+---
+atiro a última flor e erro o alvo
+---
+defunto não faz piada com corpo
+---
+os seus inimigos 
+por sorte 
+sobreviveram
+---
+CHAPLIN
+
+no meu próximo filme 
+mudo
+---
+é a sua sétima esposa
+mas talvez o seu grande amor
+---
+acordo entre multidão 
+e silêncio 
+durmo com o Mick Jagger
+---
+não invente de dar muita corda 
+para músicos
+---
+você é a favor de humanizar as pessoas?
+
+desculpe 
+não estudei economia 
+---
+atenção, crianças! 
+prestem muita atenção.
+na aula de hoje, 
+vamos falar sobre as incríveis redes sociais. 
+porque, como todos sabem, é claro, 
+vocês só vão ser alguém na vida 
+se tiverem um monte de redes sociais. 
+não adianta, meus queridos, 
+se vocês não estiverem atualizando os seus perfis 
+o tempo todo, postando cada segundo da sua vida…
+porque, obviamente, a verdadeira medida do sucesso 
+é o número de seguidores que vocês têm.
+então, lembrem-se: 
+se não estiverem conectados 24 horas por dia, atualizando suas redes e contando para todo mundo 
+o que estão fazendo a cada momento, 
+pode esquecer. 
+vocês simplesmente não serão ninguém.
+
+(com Inteligência Artificial)
+---
+nenhum humano 
+possui mais autoconhecimento
+do que uma pomba
+---
+MAU HÁLITO
+
+dizem que tenho um péssimo gosto
+---
+e ela tem um carrão
+com aquele seu 
+ka belo
+---
+Vinícius Knecht dispensa apresentações 
+pois ninguém se importa 
+realmente 
+em conhecê-lo
+---
+nas mãos ao pé da letra
+
+ARTE
+---
+ela está sempre atrás de mim
+
+está te perseguindo?
+
+não você não entendeu 
+eu sou a marionete
+---
+amor eu confesso 
+usei inteligência artificial 
+para amar você
+---
+na sede da empresa
+tomei providências 
+não álcool 
+rima não é solução
+mas eu detesto 
+dizer não
+---
+deixa disso camarada 
+me vê camarão 
+e nada de cigarro
+barato
+---
+“que depressivo lindo”
+---
+estarei chorando 
+mas saiba que isso será 
+o máximo
+---
+brincando de esconde-esconde 
+em poesias
+---
+capitalismo te massacrando 
+de felicidade
+---
+o blues tá em todo encanto
+---
+tá faltando vermelho
+---
+bem lá bem no interior 
+transformam estrelas 
+em estrelenses
+---
+o passarinho é o melhor amigo do homem
+---
+rotina esconde rotas
+---
+meu negócio é poesia
+e eu não ganho nada com isso
+---
+candidato confirma turnô
+veja datas 
+locais 
+e horrores
+---
+psicóloga narcisista explica 
+como identificar 
+um narcisista
+---
+PLOT TWIST
+
+no labirinto da memória 
+labirintite 
+e então 
+estou fugindo 
+do Jack Nicholson
+---
+o que eu não estou fazendo aqui?
+---
+tudo tão fútil e especial
+---
+POESIA CAUSA
+CÂNCER DE PULMÃO
+
+POESIA ENVELHECE
+
+POESIA BROCHA
+
+POESIA SOFRE
+
+POESIA ADOECE
+
+POESIA INFARTA
+
+POESIA MATA
+---
+leia um livro agora 
+senão você vai morrer
+---
+homem é solto após pagar aliança 
+de 15 mil
+---
+benzedeira ou benzetacil
+ver preço pesquisar
+---
+você está me escondendo alguma coisa
+
+é só uma aliança amor
+
+você vai me pedir em casamento eu não
+acredito
+
+uma aliança com o partido comunista amor
+---
+REDE DE CASA
+
+notarão o seu sumiço 
+mesmo 
+só no seu emprego
+---
+ChatGPT melhore o poema: EU TE ODEIO!!!
+---
+você é muito talentoso
+
+obrigado acho que é a minha 
+invocação
+---
+e qual é a sua história?
+
+você tem tempo?
+
+todo
+
+então vá aproveita-lo pois eu não tenho
+---
+quebrei o pé caminhando 
+e isso diz tudo 
+sobre um ossinho do meu pé direito 
+pensou que eu faria uma analogia?
+---
+ele não dirige em cidade pequena
+---
+percebo detalhes 
+que nem são 
+tão detalhes
+assim
+---
+eu sou uma bicha no mato
+---
+OPINIÕES CONTEMPORÂNEAS
+
+“Dostoiévski é superestimado”
+---
+se eu não dormir agora 
+eu perco o 
+bônus 
+amanhã
+---
 INTERIOR. CASA DE VITÓRIA – DIA
 
 Isabela acorda sentindo-se criativa. 
