@@ -1,6 +1,197 @@
 ---
 layout: default
 ---
+estou vendendo minha arte 
+tanto quanto 
+dizem 
+que o Van Gogh 
+vendia a sua
+---
+quem sou eu 
+para falar 
+assim comigo 
+desse jeito
+---
+não basta ser pesadelo 
+tenho que estar 
+num labirinto
+---
+para alguns solitários 
+noites serão 
+mais lembradas
+que companhias
+---
+você vive com sono Vinícius?
+
+na verdade eu vivo com ansiedade e falta de ar 
+você respira fundo quando boceja 
+e joga mais oxigênio nos pulmões 
+ou seja 
+eu bocejo para respirar melhor
+entendeu agora
+---
+frestas da janela 
+festas da solidão
+---
+quando a mulher já nasce 
+fugindo 
+de predadores
+---
+RADIOHEAD EM RIMA
+
+Let Down 
+no meu funeral
+---
+DOIS DIAS ANTES DA PRÓXIMA CONSULTA
+
+“Droga Agora Começou A Tocar 
+Hallelujah Versão De Jeff Buckley”
+“Droga Agora Começou A Tocar 
+Hurt Versão De Johnny Cash”
+---
+DOIS DIAS ANTES DA PRÓXIMA CONSULTA
+
+Já É Quarta-Feira 
+E Não Escrevi 
+Nada Que Preste 
+Na Vida
+---
+então eu vim tentar 
+a terapia 
+para ver se ela 
+me supera
+---
+se a vista da janela 
+for assustadora 
+faça de conta 
+que ela é um quadro
+---
+medo de 
+descobrir 
+os segredos 
+da vida 
+e a vida 
+me punir 
+por isso
+---
+um dia 
+um passarinho 
+me contou 
+que voar 
+nunca foi 
+um sonho dele
+---
+um dia 
+o mar 
+me disse 
+que no fundo 
+ser alguém 
+é saber 
+mergulhar
+---
+a poesia 
+não me paga
+mas também 
+não me apaga
+---
+depressão e ansiedade 
+juntas 
+é esconder-se 
+de um ladrão 
+que acabou de te roubar 
+no mesmo lugar 
+em que o ladrão 
+está se escondendo
+---
+felicidade é o que a tristeza permitir 
+no momento
+---
+poesia tarja preta 
+com efeitos colaterais
+---
+e quanto às suas dores 
+quem vai falar delas 
+senão você?
+---
+dos piores inimigos 
+dificilmente 
+ficaremos sabendo
+---
+comuniquem minha família 
+meus amigos 
+e demais conhecidos 
+que ainda estou 
+para nascer
+---
+papai por que às vezes os amigos somem?
+perguntei a mim mesmo 
+fingindo ter um filho
+---
+DESCARTO O SEGUINTE POEMA
+
+penso 
+que logo
+logo vou 
+existir
+---
+penso logo desisto
+---
+ao vivo 
+é sempre 
+mais 
+colorido
+---
+era poeta 
+e ninguém fazia muita questão
+---
+ele perdoa pessoas 
+sem que elas tenham pedido
+desculpa
+---
+comecei a escrever 
+porque queria ajudar 
+a pessoa mais triste 
+e solitária 
+que eu conhecia
+na minha vida
+eu
+---
+lembro bem do dia 
+em que a melancolia 
+criticou o amor
+“ele é tão melancólico”
+---
+já imaginou morrer 
+no dia mais feliz 
+da sua vida 
+futuro 
+que eu quero 
+esquecer
+---
+estou no fundo 
+do posso
+---
+ADULTOS
+
+tenta atropelar passarinhos 
+porque já tem a certeza 
+de que nunca vai 
+alcança-los
+---
+não adianta estar 
+preso 
+no paraíso
+---
+olhei para o céu para sofrer 
+caiu a pena de um anjo 
+acho que a gente sofre parecido
+---
+sempre preparado 
+para o pior 
+chega o pior 
+e sempre 
+me surpreende
+---
 CRIANÇAS
 
 infância 
