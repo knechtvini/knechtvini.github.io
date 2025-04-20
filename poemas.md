@@ -1,6 +1,146 @@
 ---
 layout: default
 ---
+VOCÊ SABIA?
+
+poeta nunca erra 
+
+ou é licença poética 
+ou é neologismo
+---
+papai é domingo calvo
+---
+prova de vida é uma prova 
+com consulta
+---
+esta é a minha letra? 
+melhor que Champagne Supernova 
+do Oasis
+---
+a estrela mais próxima da Terra é o Sol 
+mentira 
+é o David Bowie
+
+a estrela mais próxima da Terra é o David Bowie
+---
+inventar 
+a roda 
+aprender a manipular 
+o fogo 
+desbravar os 
+sete mares 
+e 
+foder
+---
+você é um desses 
+que não me desce
+---
+eu não ronco 
+eu passo o trator
+nos pesadelos
+---
+o cosmos nos diz que 
+somos mais conectados 
+com a internet 
+do que 
+com o Universo
+---
+o louco inventa um carro voando 
+o gênio cria o carro que voa
+---
+cu que não tem assento
+---
+pessoas nunca perdem 
+a oportunidade 
+de falar mal 
+dos melhores amigos 
+para estranhos 
+em festas
+---
+quando você 
+usa a violência 
+contra um 
+nazista 
+por exemplo 
+você perde 
+toda a razão 
+com toda 
+a razão
+---
+temo que 
+teimo com 
+teimosos
+---
+pessoas limpando mais suas casas 
+que tomando banho
+---
+no restaurante ela pergunta 
+o que vamos pedir 
+e ele responde 
+o de sempre 
+saúde paz e amor
+---
+nem tudo é sobre a gente
+
+às vezes é 
+literalmente 
+tudo sobre a gente
+---
+gaste mais tinta 
+Editora
+gaste mais tinta
+nesta impressora
+---
+a capa sempre poderia ser melhor
+---
+please welcome back to the program THE STROKES
+---
+ser motivo das gargalhadas 
+das amigas 
+da sua namorada
+---
+sério de onde você tira tudo isso
+
+com certeza não é da cabeça
+---
+não pegaria muito bem para mim 
+nossa história ser escrita 
+por você
+---
+eu já li o texto três vezes e ainda não entendi
+
+eu só precisei ler uma vez para não entender
+---
+se formos apenas 
+um conjunto de átomos 
+aleatórios 
+no universo 
+então existir 
+faz todo o sentido
+---
+rinietzsche da poeira das bibliotecas
+---
+apetite de ler 
+devorando mangás
+---
+a reunião social 
+a crise de ansiedade 
+se trancar no banheiro local 
+respirar 
+sentir 
+respirar 
+sentir
+
+odores
+---
+aquele aposentado 
+que tem mais ambição
+---
+custou Karl ser Marx?
+---
+a única coisa que não sei poupar 
+é dinheiro 
+---
 quando um artista 
 tem um tempinho livre 
 ele faz mais arte
