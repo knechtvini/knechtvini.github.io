@@ -1,6 +1,316 @@
 ---
 layout: default
 ---
+Gravando 
+---
+escrevo como parto
+---
+agora eu vou escrever 
+para gente grande 
+
+os mortos e as crianças
+---
+eu precisava de ajuda 
+então subi 
+na primeira árvore 
+então pedi ajuda 
+ao primeiro passarinho 
+
+e ele 
+quebrou o meu galho
+---
+O ÚLTIMO POEMA DE VINÍCIUS KNECHT
+
+e de vez em quando 
+eu vou aparecer 
+anjo 
+e você vai me ver 
+fantasma 
+
+então eu vou perceber 
+que em vida 
+também foi assim
+---
+Um livro com três partes, prólogo e epílogo.
+---
+PRÓLOGO
+---
+River Phoenix 
+certo dia escreveu 
+corra para o resgate 
+com amor 
+e paz se seguirá
+
+seguiria com 
+corra para o amor 
+com ódio 
+e amor te perseguirá
+---
+a arte nunca começou
+---
+até um bicho lida com a arte
+---
+hoje artistas 
+pioram 
+suas artes 
+para fazer 
+mais sucesso
+---
+tempo em tempo 
+mim a mim 
+anos e anos 
+tantos e tantos 
+mins
+---
+distraídos escreveremos
+---
+se não existe 
+existo 
+sou autobiográfico 
+na minha
+ 
+FICÇÃO CIENTÍFICA
+---
+poesia é teste de defesa planetária
+---
+O CLÁSSICO
+ 
+existe poeta 
+de uma poesia só?
+---
+poesia é a verdadeira natureza do tempo 
+com legenda sincronizada
+---
+mistério 
+mistério 
+esta falta de crédito
+---
+um poeta naturezado 
+lá de Mario Quintana
+---
+ser criando 
+respostas menti 
+rosas 
+para perguntas in 
+ventadas
+---
+vocês não fazem ideia 
+com que livros estão li
+dando
+---
+no processo da sua invisibilidade 
+artista é luz 
+que vem trazendo 
+superpoderes
+---
+por que você acha que virou poeta
+
+você está pronta?
+acho que virei poeta por esperar sempre 
+dez vezes ou mais que o esperado
+---
+nave da NASA 
+colide com futuro 
+de forma inesperada 
+na missão ART
+---
+o que é a poesia
+
+poesia é autora da telescópia do universo
+---
+poeta é 
+a que le 
+que faz 
+copo d’água 
+em tempestade
+---
+nalgum provérbio 
+olhos são janelas da alma 
+poetas pre
+ferem que sejam 
+portas
+---
+fechava os olhos 
+numa busca 
+dinfinito 
+ou numa recusa 
+difinito
+---
+a necessidade 
+da escrita 
+a necessidade 
+de ser artista 
+a necessidade 
+de dizer algo 
+como se fosse
+o primeiro e o último ser humano
+---
+escrevo desde que não 
+me conheço por gente
+---
+olhar para o mundo e pensar 
+eu sou a pessoa mais criativa 
+da minha história
+---
+todos os caminhos me levam a mim
+---
+ROTINA
+
+é muito importante 
+que você acorde 
+para a vida 
+no horário certo
+---
+Eles nunca tiveram tanto medo 
+da arte
+---
+poeta tem 
+a mesmíssima 
+respons
+habilidade 
+dos passarinhos
+---
+no mínimo rir 
+no máximo chorar
+---
+arte é forma ilimitada de sermos outros
+---
+confie apenas em três tipos de poetas 
+os que estão sofrendo 
+os que estão amando 
+ou os que estão os dois
+---
+nada se cria 
+sem estar em contato 
+com tudo aquilo 
+que não existe
+---
+TEMPOS SOMBRIOS DE 
+
+não ouvi 
+mas ouvi falar 
+não li 
+mas li sobre
+---
+papai como faz pra ser poeta
+
+fingindo ser poeta filho
+---
+folhear árvores e árvores e árvores
+---
+e os animais estão comentando
+---
+FOBIA
+
+numa História não se 
+cobra 
+ingresso 
+se 
+arranha 
+passagem
+---
+foi tão bom que eu nem escrevi
+---
+uma tatuadora autoral 
+assina suas tatuagens
+---
+uma lápide é marcada 
+com logotipo
+---
+estar só 
+sendo 
+cinema to
+graficamente 
+amado
+---
+um pai morre no parto
+---
+poesia de cada dia 
+que nos dai o tempo
+---
+a tarde talvez fosse mais amarela
+se não fosse o 
+
+BLUE
+---
+papai conta uma história para que eu 
+acorde
+---
+prefiro quando você escreve 
+sobre amor 
+porque assim eu rio 
+do seu jeito 
+de sentir dor
+---
+poesia é o denominador comum
+---
+TALENTO GRAVE
+
+disputa de amores 
+termina em arte e 
+talento grave 
+em Estrela
+---
+escrever sem qualquer forma de anestesia
+---
+QUINTANA
+
+pássaro
+presente
+e futuro
+---
+Se não fosse o Van Gogh, o que seria do amarelo?
+
+Mario Quintana
+---
+Certa vez, uma pessoa me contou uma história de que a melhor parte do dia dela eram os dois ou três segundos depois que ela acordava. Porque seu cérebro deprimido havia esquecido que estava deprimido.
+
+Tim Egan
+---
+Se a história nos ensinou alguma coisa: o mundo é um crítico pouco confiável. Não depende de nós se o que fazemos é bom.
+
+Ethan Hawke
+---
+Bem, estou me aposentando. Depende. Se os anjos trouxerem algum roteiro que está escrito com tinta dourada que me diz que é importante que as pessoas me vejam, eu posso continuar futuramente, mas eu vou fazer uma pausa. Eu gosto muito da minha vida quieta e gosto de pintar. Eu amo a minha vida espiritual e eu sinto que – e isso é algo que você pode nunca mais ouvir de uma celebridade – Eu tenho o suficiente. Eu fiz o suficiente. Eu sou suficiente.
+
+Jim Carrey
+---
+A música Nude é sobre você querer acreditar que você é realmente maravilhoso, quando sabe que isso não é verdade.
+
+Thom Yorke
+---
+Tentaram me enterrar vivo, mas eu estou aqui.
+
+Brendan Fraser
+---
+Acho que a arte oferece remédio para as nossas realidades sufocantes e salva vidas. Estarei sempre presente para incentivar artistas e cineastas. Só não quero voltar a fazer filmes, pois eles não me fazem mais feliz. Mas eles fizeram. E você também. O mundo não é um bom lugar... E eu quero ajudar o máximo que puder. Eu tenho, silenciosamente, feito isso. Mas quero ser mais vocal sobre isso. Meus projetos, agora, estão em outro lugar, acredito.
+
+Xavier Dolan
+---
+Éramos rejeitados por opção. Não queríamos ser populares.
+
+Kurt Cobain
+---
+Como eu estava seguindo em frente, ocasionalmente, eu via breves vislumbres de beleza.
+
+Jonas Mekas
+---
+Eu acredito que a cadência e a harmonia certas no momento certo podem despertar qualquer sentimento, inclusive o de felicidade nos momentos mais sombrios.
+
+Yoñlu
+---
+😊
+
+Franklin Loufrani
+---
+O oposto da depressão não é a felicidade, e sim a vitalidade. E ela parecia fugir de mim naquele momento.
+
+Andrew Solomon
+---
+Eu acho que quando não escrevo, estou morta.
+
+Clarice Lispector
+---
 AMARELANDO BLUE
 ---
 ISTO NÃO É
