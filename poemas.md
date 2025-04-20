@@ -1,6 +1,110 @@
 ---
 layout: default
 ---
+a vaca estava 
+o tempo todo 
+re
+moendo o 
+past
+---
+andei pensando melhor 
+em tudo o que você me disse 
+e eu acho que 
+realmente 
+eu tenho toda a razão
+---
+calado você é um poeta
+
+sim 
+---
+preferi outro caminho 
+peguei um 
+desvio de conduta
+---
+bebendo uma Guinness 
+consigo escrever 
+dez poemas 
+em trinta segundos
+---
+conservadorismos 
+modernos 
+con 
+tradições
+---
+ao persistirem alguns médicos 
+as consultas poderão ser sintomáticas
+---
+está na Caras 
+que o hype 
+não vale a pena
+---
+saiba como enlouquecer 
+um homem 
+entre quatro paredes 
+exiba Interestelar 
+do Christopher Nolan 
+para ele
+---
+procriação água benta & gospel
+---
+ele poeta tanto 
+que acaba acreditando 
+na própria poesia
+---
+o sucesso estava tão bom 
+que não vi o tenho passar
+---
+como não deixar para depois 
+se o capitalismo não deixa 
+fazer agora
+---
+problemas com as drogas?
+
+não se preocupe 
+nós podemos lhe ajudar 
+com um preço muito mais em conta
+---
+o pó criticando a fumaça
+---
+por que pisar 
+em uma peça de ego 
+dói tanto
+---
+a natureza humana 
+promove 
+condições de trabalho
+visando sempre
+ 
+O VERDE
+---
+este poeminho se chama
+LEONARDO DICAPRIO
+
+o sim 
+você 
+já tem
+---
+Desistir De Tudo Em Todo O
+Lugar Ao Mesmo Tempo
+
+fantasia/ficção científica
+---
+Charles Bukowski 
+elitismo literário 
+com alto teor alcoólico
+---
+você consegue deixar o sexo 
+mais cristão?
+---
+dei chá comigo
+---
+meu cachorro pensa que é cachorro
+---
+no futebol a regra é clara 
+a régua não é clara 
+até porque 
+a régua é bem cara
+---
 VOCÊ SABIA?
 
 poeta nunca erra 
