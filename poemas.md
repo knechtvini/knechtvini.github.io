@@ -1,6 +1,208 @@
 ---
 layout: default
 ---
+INTERIOR. CASA DE VITÓRIA – DIA
+
+A televisão está desligada. 
+Isabela assiste. 
+Terceiro dia sem tomar banho.
+Isabela pensa em enviar qualquer mensagem para Vicente.
+Ou então para o amigo Victor. 
+Envia para Valentina.
+Isabela decide mudar a sua vida. 
+É madrugada. 
+Pinta o cabelo de azul.
+Escreve versos manuscritos. 
+Está sozinha.
+16h30min parece ser a pior hora do dia.
+Parece tarde demais. 
+Parece que é sempre 16h30min. 
+Parece ser o fim da vida. 
+Isabela sente falta de ar e tonturas. 
+Tem medo. 
+Escreve um verso sobre suicídio. 
+A campainha toca. 
+Isabela confere e não há ninguém. 
+Sente-se incomodada.
+Daí surge a ideia de um roteiro para curta-metragem. 
+É sobre uma jovem escritora que escreve uma carta suicida e a campainha da sua casa toca. 
+Mas não há ninguém na frente da sua casa. 
+A ideia era que fosse o seu próprio espírito. Sabe?
+Numa tentativa de chamar a sua própria atenção. 
+Pedindo que fique. 
+Fique aí.
+Em vida.
+O roteiro parece tão criativo. 
+Isabela atravessa a rua.
+---
+3.
+---
+pobre Gatsby
+---
+e foi então 
+que Deus inventou 
+que Deus existe
+---
+hoje em dia 
+pessoas já discordam 
+das perguntas
+---
+gostaria 
+humildemente 
+me retratar aqui 
+mas não sou 
+nenhum pintor
+---
+você é o meu chuchu 
+
+você é o meu pepino
+---
+Menos informações em breve.
+---
+SOBRE O ATUAL ESTADO DA POÉTICA 
+
+você gosta de uma prosa?
+
+Prozac?
+---
+ouço os vizinhos 
+cochicharem tanto 
+porque na verdade 
+eles estão gritando
+---
+a cada dez minutos 
+uma mulher é entediada
+---
+os únicos artistas locais 
+reconhecidos 
+nas pequenas cidades do interior 
+são os turistas
+---
+começou a 
+circular 
+nas redes 
+mentes 
+quadradas
+---
+a única 
+inteligência 
+que um 
+escritor 
+pode 
+subestimar 
+é a 
+sua
+---
+comida ou sexo? 
+
+sexo
+
+sexo ou poesia?
+
+bah
+---
+você ainda acredita em Deus? 
+
+o padre responde que sim
+
+vai passar
+---
+ENTREVISTA DE EMPREGO
+
+mas verdadeira até uma cobra-coral é
+---
+um poeta pode ser 
+extremamente perigoso 
+nas 
+suas 
+últimas semanas
+---
+quando estou escrevendo 
+demoro mais 
+para gozar
+---
+o superpoder já tenho
+invisibilidade 
+só não sou nenhum super-herói
+---
+pretensioso seria 
+seguir carreira solo 
+com a mesma banda
+---
+BRAZIL
+
+criança pedindo dinheiro em semáforo no Acre 
+gera revolta nas redes sociais
+
+“este vagabundo deveria estar trabalhando”
+---
+o que choca 
+menos 
+a sociedade 
+que um 
+galinha?
+---
+dando 
+o redondo 
+contra 
+o quadradismo 
+do mundo
+---
+você ainda fuma?
+
+não 
+só quando eu tento parar
+---
+risível 
+se opor 
+ao humor 
+chorável 
+se rir 
+da delinquência
+---
+eu sou escritor
+
+hum e você ganha dinheiro com isso?
+
+sim inclusive alcancei o meu primeiro
+milhão com a poesia
+---
+com estes 
+passinhos
+o tempo 
+não praça 
+---
+CAPITALISMO
+
+até o meu 
+último 
+fio de cabelo 
+eu vou comprar 
+o shampoo 
+mais caro
+da farmácia
+---
+CAPITALISMO
+
+pode ir passando tudo 
+rápido
+
+pode me matar mas por favor 
+eu imploro 
+não leve o meu iPhone
+---
+A REVOLUÇÃO DOS
+
+me dou melhor 
+com os bichos 
+do que 
+com os animais
+---
+Mario pelo menos assinava 
+as provas de matemática 
+eu errava 
+ou esquecia
+---
 SMARTPHONES
 
 amei a companhia de vocês 
