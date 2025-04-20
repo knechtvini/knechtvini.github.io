@@ -1,6 +1,304 @@
 ---
 layout: default
 ---
+as pessoas costumam ficar 
+o tempo todo 
+lembrando 
+que falhei 
+e daí me sinto 
+na obrigação 
+de lembra-las 
+que também falharam 
+e detesto 
+ter que fazer isso
+---
+talvez apenas 
+meus amigos 
+me animam 
+mais do que 
+Friends
+---
+qual o maior sentimento 
+da humanidade 
+na sua opinião
+
+a fé
+
+ainda
+---
+uma das coisas que eu mais odeio 
+na vida 
+é me sentir superior 
+a alguém
+---
+escrevendo poesia 
+com a asa direita quebrada
+---
+Chandler Muriel Bing
+The one with the Friends’ soul
+
+Matty,
+I can’t write this script.
+
+Sorry. 
+ 
+
+(em memória de Matthew Perry)
+---
+estou com 
+depressão 
+me anima 
+depressa
+---
+bem
+o que eu posso dizer 
+acredite 
+poucas vezes 
+você vai ouvir 
+de um artista 
+
+talvez por sorte 
+suicídio 
+não vai ser 
+a causa 
+da minha morte
+---
+não exigem 
+dos seus 
+Deuses 
+o que exigem dos 
+ateus
+---
+pintam o mês 
+de amarelo 
+na hora de salvar 
+a vida de alguém 
+ao seu lado 
+amarelam
+---
+alguém por favor 
+faça cócegas 
+nos meus poemas mais tristes
+---
+um artista 
+que consegue criar 
+e trabalhar 
+com o seu próprio **ego 
+nunca vai se sentir 
+*****pregado
+---
+por que existem tantas pedras 
+nos trilhos de 
+trans?
+---
+tive um quadro 
+que nunca tratei 
+plantas 
+que nunca plantei
+---
+então Vinícius eu vou pedir que você 
+faça um novo exame
+
+qual doutor
+
+uma autópsia
+---
+não riam do meu humor 
+riam dos meus sonhos
+---
+aqui não sobrou nem a carcaça 
+de uma poesia
+---
+Pipoca 
+um imenso taBUH 
+rápido 
+limpo 
+e indolor 
+poesia no papel 
+de vítima 
+entretom naturalista 
+antientretenimento
+puro observador 
+sensível 
+e sombrio 
+talento pre co çando a garganta 
+morbidez 
+ou poesia 
+ombro deslocado 
+da realidade
+louco excesso 
+de lucidez 
+hipersensibilidade ao mundo 
+um abraço 
+de des pedida 
+de 
+monóxido de carbono
+
+(em memória de Yoñlu)
+---
+a morte foi 
+uma surpresa 
+com alarmes tocando 
+No Surprises
+---
+um artista que só tentava chamar a atenção 
+de todo aquele mundo 
+que sempre fazia questão 
+de mata-lo
+---
+é real 
+mas não significa 
+que você 
+precisa sentir
+---
+você já reparou 
+que as pessoas 
+não estão falando muito sobre?
+
+não
+
+é porque você não reparou
+---
+toda a vida dele era escrita 
+apagaram
+---
+o amigo imaginário 
+da infância 
+voltou 
+armado
+---
+PÂNICO
+
+sentir seu coração 
+uma Ferrari 
+descontrolada 
+batendo 
+em ar…es…
+---
+fotografias tirando pessoas 
+---
+emoções públicas e emoções privadas
+---
+querida 
+seja a melhor paciente 
+com o tempo 
+você será 
+apenas cliente
+---
+seu animal político é apenas um animal
+---
+doutor 
+eu tenho quanto tempo 
+de morte 
+---
+O INSCONSCIENTE
+
+encontrava-me então 
+naquela espécie 
+de depósito 
+tremenda escuridão 
+– tremendo – medo 
+apelava 
+para a lanterna 
+pelado 
+como se a lanterna 
+apanhasse 
+minha mão 
+não focava 
+apenas minha luz 
+mas admitia 
+tudo mais – claro – 
+tudo mais – vivo – 
+de repente 
+todas as luzes do depósito 
+se acenderam 
+curioso que 
+ainda que com as luzes 
+acesas 
+a lanterna continuava 
+apanhando 
+a minha mão acesa 
+e ainda mais claro 
+inesperada
+mente 
+agarrando 
+a minha 
+mãe 
+---
+no trabalho 
+o chefe chama a atenção
+
+“se liga nisso 
+você anda sempre desligada”
+---
+meus livros serão compartilhados 
+pelo Sol 
+daqui a bilhões 
+de anos 
+a evolução 
+de uma estrela 
+com a sua 
+morte
+---
+às vezes 
+um pai au 
+sente 
+é sempre 
+pres 
+ente
+---
+você me pregou 
+de surpresa 
+agora tenho 
+que sofrer 
+mais rápido
+---
+sempre me escondi 
+bem lá no fundo 
+esperando 
+me encontrar
+---
+mas calma 
+você não precisa se apavorar
+pois até o momento 
+não detectaram nenhuma estrela 
+com condições de 
+se tornar uma supernova 
+nas redondezas da Terra
+a mais próxima que tivemos 
+
+explodiu-se em 5 de abril de 1994
+---
+você só está aí deitada 
+ouvindo um disco do Joy Division 
+porque estrelas morreram 
+há milhões de anos
+---
+você está estritamente 
+proibida 
+de desenvolver 
+uma depressão 
+neste ambiente de trabalho
+---
+chuva para secar as lágrimas
+---
+um filme dramático 
+que virou comédia 
+por ser 
+um péssimo filme 
+é assim que eu vejo a vida
+---
+exibiam seus desprezos 
+inúmeras fotos 
+de jovens mulheres 
+velhas esposas 
+cotidianamente na guerra 
+fotografias 
+ao fundo 
+tanques de 
+lavar roupas
+limpas
+---
 estou em ruínas 
 há mais de trinta anos 
 alma mutilada 
