@@ -1,6 +1,127 @@
 ---
 layout: default
 ---
+AMARELANDO BLUE
+---
+ISTO NÃO É
+UM LIVRO
+---
+1.
+---
+pobre Gatsby
+---
+amor não é disciplina
+amor é costume 
+---
+escreveu porque ao menos 
+cogitou 
+sentir
+---
+era real-mente atraente 
+porque estava na cara 
+que não falava 
+tudo o que sabia 
+sabe
+---
+parecia que viria um poema 
+era só a vizinha 
+
+IRACEMA
+---
+quebrei silêncio 
+montei vários 
+silenciozinhos
+---
+MÃOS CRUZADAS
+
+o chão encanta tanto 
+amada
+---
+Atraversando as tuas…
+---
+beber café para dormir 
+escrever poesia para não amar 
+tão cedo
+---
+JULGAMENTO CANCELADO
+
+com seus olhos 
+com suas mãos 
+cometeu a arte 
+de um escrivão
+---
+você 
+com alguma sombra de dúvidas 
+é uma das melhores pessoas 
+que eu nunca conheci 
+em toda a minha vida
+---
+esta música me lembra você
+
+sério? agora ela me lembra você
+---
+uma 
+brecha 
+para um 
+amor de 
+brechó
+---
+P.S EU TE ODEIO
+
+você fede a perfume Chanel nº 5 
+você é tão ridícula quanto Marilyn Monroe 
+você soa tão sem graça quanto Jim Carrey 
+você dirige tão mal quanto Tarantino 
+você escreve tão mal quanto Kafka 
+você toca e canta insuportavelmente quanto os Beatles 
+você pinta tão cafona quanto Van Gogh
+ 
+EU ME ODEIO 
+---
+dei cem por cento 
+de mim 
+ela deu noventa e nove
+decidi 
+
+PÔR UM FIM
+---
+de date p/ hate
+---
+O ROMÂNTICO E O ROMANCISTA 
+
+você escreve 
+para criar um amor 
+ou você escreve 
+para corrigir um amor? 
+---
+no Majestic 
+não saí do meu quarto 
+já sabia que o dia estava lindo 
+lá fora
+---
+em Saint Remy de Provence 
+quando olhava para fora da janela 
+o mais importante era o que estava 
+dentro de mim
+---
+a poesia fez a gente suar 
+a noite inteira 
+o que isso soa 
+para você
+---
+ela é bonita demais para ele 
+você não acha
+
+você tem noção do talento 
+que ele tem?
+---
+dos olhos que quero 
+nunca sou vista para amar 
+dos olhos que me querem 
+já nem estou mais aqui
+---
+&U E &U
+---
 por que todo o amor que me 
 aparece parece com o
 
