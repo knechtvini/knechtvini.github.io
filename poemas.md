@@ -1,6 +1,337 @@
 ---
 layout: default
 ---
+quando um artista 
+tem um tempinho livre 
+ele faz mais arte
+---
+você não precisa lidar comigo 
+eu só quero ser 
+lido 
+---
+uma crítica negativa?
+por fim alguém me entendeu
+---
+vocês terminaram tão bem 
+é este o término 
+que eu quero para mim
+---
+saí do armário 
+e entrei nas estantes
+---
+AMOUR
+
+sinto que 
+posso ser 
+careca 
+com você
+---
+estou 
+vendo 
+trilhos 
+onde 
+não 
+trem
+---
+o ateu naquele avião 
+que está caindo 
+tem mais 
+medo da morte 
+do que 
+supostamente 
+crê em um Deus
+
+na queda 
+os crentes 
+também morrerão
+---
+tropecei nela 
+dançamos para disfarçar
+---
+um carro escrito 
+detetive 
+está me seguindo
+---
+furtar o carro da polícia 
+sofrer um acidente 
+na frente do hospital
+---
+é o diagnóstico ou é o tratamento?
+---
+vendi a minha 
+arma 
+para o Diabo
+---
+como você consegue ter uma pele tão bonita
+
+são seus óleos
+---
+peço desculpa 
+por você ser assim
+---
+você tá ligado 
+que você apagou 
+---
+burros são aqueles 
+que entendem 
+uma poesia
+de primeira
+---
+eu disse que seria diferente 
+mas em nenhum momento 
+eu disse que 
+seria melhor
+---
+live de velório
+---
+não aguenta 
+meia- 
+horinha 
+de poesia
+---
+malditos versos 
+que aparecem durante 
+os banhos
+---
+tragicômico seria uma cama de casal 
+num quarto de hospital
+---
+ela me juntou do chão 
+e me colocou no lixo
+---
+escrever poesia é mastigar palavras 
+como quem come comida 
+alienígena
+---
+durante a terapia 
+o psicólogo teve uma crise de ansiedade 
+logo tratei 
+de acalma-lo
+---
+a babá disse que o bebê bebe bába
+---
+éramos apenas garotos 
+se perguntando 
+como chegar nas garotas 
+hoje apenas homens 
+vendendo 
+as suas guitarras 
+abandonadas
+---
+você está me ofendendo 
+
+por que
+
+eu não sei
+---
+você acha que 
+existe vida 
+em outro poema?
+---
+o azul do semáforo
+---
+papai existem crianças com trinta anos 
+que escrevem poesias?
+---
+eu te amo 
+
+eu também?
+---
+eu não quero mais nadar com você
+---
+pai se você está mesmo lendo este livro 
+me diga o número desta página
+---
+talvez você se encontre 
+Vitória
+---
+vida me deu 
+um pé na bunda 
+então virei 
+um moribundo
+---
+TAPETE 
+
+não prepare a bagunça
+---
+mostre um documento por gentileza
+
+certo toma aqui
+
+isso é uma carta de amor Vinícius
+---
+meu amor está em outro estado
+
+entendo relacionamento à distância é sempre 
+complicado
+
+não ela mora aqui mesmo está em outro estado 
+civil
+---
+amei por certezas 
+vivi por incertezas 
+morri por engano
+---
+a melhor comida do mundo 
+é a sua 
+e eu posso 
+provar
+---
+o lanche predileto 
+do escritor 
+é o mil-folhas
+---
+preenchendo
+preenchendo
+preenchendo
+preenchendo
+preenchendo
+---
+oi como eu estou?
+
+hum bem e eu? 
+
+bem melhor
+---
+infiltrado 
+naquele hospício 
+na verdade 
+eu era um pirata
+---
+bom dia dr. está melhor hoje?
+---
+esta é a 
+hora 
+em que 
+a gente 
+ora?
+---
+morte acaba com despertadores
+---
+ser rejeitado como artista 
+um prazer para poucos
+---
+o que te faz se sentir em casa 
+a companhia ou a cama?
+---
+corria atrás dos meus sonhos 
+numa esteira elétrica
+é assim que eu vejo a vida
+---
+A PROVOCAÇÃO
+
+Abujamra o que é a morte?
+
+(em memória de Antônio Abujamra)
+---
+cocaína está em final de carreira
+---
+está decidido 
+eu vou me matar
+
+você vai desse jeito? 
+
+sim por quê? estou feio? 
+
+não você está ótimo
+---
+por que você escreve deste jeito
+
+por que você lê deste jeito
+---
+quando viu o preço do imóvel 
+ficou imóvel
+---
+nunca trate como biblioteca 
+quem te trata como livraria
+---
+quais são os panos para o futuro
+---
+ela dá opinião sobre tudo
+menos sobre ela 
+dando opinião sobre tudo
+---
+acho que vamos deixar o Vinícius de fora 
+da festa
+
+por que
+
+porque você sabe ele vive se vitimizando 
+dizendo que nunca é convidado para as 
+festas
+---
+nas virtudes do interesse próprio 
+o que faz uma pessoa parecer 
+sexualmente 
+atraente 
+segundo a ciência?
+ser cientista
+---
+poeta precisa acordar 
+novinho em folhas
+---
+não sou paciente diagnosticado 
+sou doente com certificado
+---
+você começa a se sentir velho 
+quando percebe mais maturidade 
+que os seus pais
+---
+eu e minha ex-namorada hoje somos amigos 
+ela me chama pelo apelido carinhoso 
+corninho 
+e diz que aprendeu muito comigo
+---
+Jô Soares não querendo interromper 
+a sua morte mas já interrompendo
+
+(em memória de Jô Soares)
+---
+APOSENTAR
+
+ah! pô! sentar?
+---
+acabei de contar uma história 
+sem começo 
+meio 
+nem fim 
+enquanto você lia 
+esse poema
+---
+todo mundo quando diz 
+eu não sou um astro do rock ‘n’ roll 
+diz com alguma esperança
+---
+foi amor à última vista
+---
+eu seria do tipo que pediria 
+autógrafos 
+aos fãs
+---
+AUTOBULLYING DE MÃE
+
+“seu mal criado”
+---
+brigamos e acabei dormindo 
+no sofá da sala 
+estava tão frio 
+meu amor veio me cobrir 
+de porrada
+---
+Freud tratava o seu gato
+---
+amiga você ficou sabendo do Vinícius?
+
+sim que ele está melhor eu fico muito feliz 
+pela sua recuperação eu não esperava sabe
+
+amiga ele se matou ontem
+---
+como foi a viagem?
+
+preciso ver as minhas fotos porque 
+sinceramente eu não me record amiga 
+---
 CONFORTO PARA UMA VELHINHA 
 DE NOVENTA E NOVE ANOS DE IDADE
 
