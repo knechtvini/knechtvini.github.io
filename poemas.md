@@ -1,6 +1,152 @@
 ---
 layout: default
 ---
+INTERIOR. CASA DE VITÓRIA – DIA
+
+Telefone não toca. 
+Isabela atende. 
+Horrivelmente paralisada. 
+Ela é perfeita. 
+Move o corpo para fumar um maço de cigarro por dia.
+Bebe todo o café.
+Se revirar na cama.
+Até estar na sala.
+E escrever poesias. 
+Isabela tem 31 anos de idade e mora com os pais. 
+Na maior parte do tempo está sozinha. 
+Sempre acompanhada.
+Os amigos garantem que não há nada de errado com ela. 
+Isabela não sabe mais diferenciar a tristeza da depressão da anedonia. 
+É a terceira caneca de café da tarde.
+Escreve um verso melancólico. 
+É tão, tão melancólico, que acreditamos haver resquícios de veracidade. 
+A campainha da casa toca.
+Isabela vai até a porta. 
+Espia. 
+Espia.
+Espia pela última vez. 
+Não há ninguém. 
+Isabela atravessa a rua.
+---
+2. 
+---
+pobre Gatsby
+---
+a melhor terapia é a terapia
+---
+talvez você se encontre 
+Isabela
+---
+adultos ficam tão maduros 
+tão maduros 
+que acabam ficando 
+podres
+---
+vocês têm dado 
+meus primeiros passos
+---
+transforme traumas em alívio
+transforme traumas em alívio
+transforme traumas em alívio
+---
+O TITANIC
+
+para saber o rumo 
+que vou tomar 
+preciso saber 
+do rumo 
+de outras pessoas
+---
+lá no interior 
+bem lá no interior 
+minha vida sempre foi 
+um motivo de piada
+---
+O SHOW DE
+
+nunca fui amor de ninguém 
+só entretenimento
+---
+quando me vejo 
+como lembranças 
+me sinto mais bonito
+---
+o homem é o único animal 
+que aprecia ver outra alma 
+incendiando
+---
+eu juros 
+a tristeza e a melancolia 
+moram nos meus olhos 
+mas vejam bem 
+elas sempre moraram 
+e hoje eu cobro bem caro
+
+O ALUGUEL
+---
+às vezes lembram quem nunca fui 
+e me esqueço
+---
+sou fantasma inútil 
+onde pousam anjos
+---
+muitos torcem 
+pelo seu fracasso 
+outros lutam 
+por ele
+---
+não é vergonha
+pedir ajuda
+não é vergonha
+implorar ajuda
+não é vergonha
+exigir ajuda
+---
+você nunca esteve 
+preocupada em saber 
+como eu estava 
+você só esteve 
+curiosa em saber 
+se eu 
+ainda 
+estava vivo
+---
+não está pior 
+porque está 
+sendo filmado 
+está pior
+ – e – está 
+sendo filmado
+---
+dinheiro compra euforia 
+que compra ganância 
+que compra guerras 
+que vende doenças 
+que com o tempo 
+tenta comprar o tempo
+---
+lutam melhor os que tiveram 
+os piores pesadelos
+---
+não me mato 
+me floresto
+---
+guitarras do Kurt Cobain ainda estão afinadas
+---
+todas as vezes em que penso desistir 
+repito a frase
+você não precisa decidir isso agora 
+você não precisa decidir isso agora
+você não precisa decidir isso agora
+---
+a baleia nos disse 
+para nunca subesti 
+mar alguém que 
+mesmo numa pro 
+funda depressão
+
+Continua… 
+---
 as pessoas costumam ficar 
 o tempo todo 
 lembrando 
