@@ -164,6 +164,7 @@ criticou o amor
 já imaginou morrer 
 no dia mais feliz 
 da sua vida 
+---
 futuro 
 que eu quero 
 esquecer
