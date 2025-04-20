@@ -1,6 +1,200 @@
 ---
 layout: default
 ---
+o maior castigo da vida 
+está longe de ser 
+a morte
+---
+eu não quero 
+que a minha filha 
+chegue perto 
+da sua poesia 
+você entendeu
+---
+sangro antes mesmo 
+de tocar 
+nos cacos de vidro
+---
+vou engolir as suas cinzas
+---
+desamor pelo destino 
+como é simples 
+e ameno 
+se tornar 
+o que não se é
+---
+ponto de fuga artística 
+voltar-se para dentro
+---
+não fornecia esclarecimento a respeito 
+impressões sucintas 
+mesmo na comunidade literária 
+especialmente na amorosa
+nunca chamou a atenção
+---
+só 
+tentando não 
+tropeçar 
+enquanto não 
+escrevo
+---
+faço justiça com minhas próprias imaginações
+---
+espelho da minha vida interior 
+passivo de herói 
+apenas ter 
+o mero efeito 
+de construção artística 
+como forma de 
+imperfeições
+---
+escritos em excesso 
+sinto-me lutando pela inexistência
+---
+você prendeu a minha solidão 
+que me era tão violenta
+---
+quando não dói 
+lembro o tanto que doía
+---
+do parto 
+parti para 
+a parte 
+que parte
+---
+tenho 
+tanto 
+o que 
+temo que 
+tenho 
+se tudo isso passar 
+saibam que 
+me precipitei
+
+O PRECIPÍCIO
+---
+sinto que 
+só
+apanhava 
+de cinto
+---
+em cactos 
+de vidro 
+plantão 24h de poesia
+---
+ela estava ali 
+para proteger-me 
+de si
+---
+eu pensando nela
+ela pensando nela
+---
+crise existencial ultrapassa crise econômica
+---
+amor 
+minha
+palavra 
+pré
+ferida
+---
+termino 
+um livro 
+não me 
+livro
+---
+teu futuro te condena
+---
+poeta apanha da vida 
+e poesia é aplaudida
+---
+chega uma hora que morrer enjoa
+---
+GLOBALIZAÇÃO
+
+a morte envia indiretas 
+em tempo real
+a vida toda
+---
+UM SER SENSÍVEL
+
+não saberia sequer entrar 
+num ringue
+---
+eis que em todos esses anos 
+o monstro morava 
+em cima da cama
+---
+olhar 
+para o céu 
+amortece 
+o medo 
+da morte
+---
+poesia deveria ser 
+um tiro no peito 
+de quem usa colete 
+à prova de balas
+---
+é como se o olho mágico 
+fosse de fora para dentro
+---
+morte é escrever poesia à lápide
+---
+sentia que era 
+o melhor paciente 
+que os meus problemas 
+através da forma 
+que eu contava 
+eram os mais interessantes
+---
+do fundo do poço 
+passou a ver as pessoas 
+lá de cima
+---
+somos uma obra de morte
+---
+finada poesia 
+lhe entrego um poeta
+---
+às vezes eu sinto 
+que a vida é como se fosse 
+um ídolo chutando 
+seu próprio fã
+---
+artista trabalha 
+na vida 
+para quem se atrapalha 
+na vida
+---
+escrevo na condição de 
+sobrevivente
+---
+no final 
+da sua última carta 
+dizia que 
+nem a arte 
+lhe fazia mais sentido
+---
+exausto de folhas em branco
+---
+depressão e criatividade 
+se separam 
+após doze anos 
+de relacionamento
+---
+artista sofre pra cachorro 
+rato 
+leão 
+formiga 
+passarinho…
+---
+vesti minha melhor roupa para a festa 
+a dor pensou que foi para ela
+---
+sobe o preço da poesia
+---
+condeno ataques de pânico
+---
 PÂNICO
 
 meu medo 
