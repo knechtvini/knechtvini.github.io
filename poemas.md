@@ -1,6 +1,175 @@
 ---
 layout: default
 ---
+tripulação da alma 
+amor comandante
+---
+vertigem 
+ou desejo imenso 
+de cair 
+mas confiando 
+que Ele 
+a salvasse 
+ou pelo menos 
+a levantasse
+---
+amores CTRL+C 
+CTRL+V amores
+---
+Vinícius ameaçou se amar
+---
+depois de Paulo Leminski 
+ficou claro para mim 
+que eu não tinha 
+outra escolha 
+eu tinha que criar 
+Toda Poesia 
+minha propria 
+Bíblia
+---
+celebrar-me-ei-a-mando-você
+---
+falando tanto sobre amor 
+faltando tanto amor
+---
+amar por precaução
+---
+quando encontrares um amor 
+continue a procur
+ares amor 
+neste amor
+---
+o talento é a melhor maquiagem 
+do mundo
+---
+o talento é a melhor maquiagem 
+do mundo 
+e não precisa ser artista 
+para ter talento 
+---
+INTIMIDADE
+
+é querer saber
+o que não gostaria 
+de saber
+---
+quero ser orgulho do meu estado
+de espírito
+---
+primeiros encontros 
+as maiores despedidas
+---
+eu escreveria aquilo 
+que você 
+gostaria de ler 
+mas daí talvez você 
+não goste
+---
+você está proibido 
+de escrever 
+qualquer coisa 
+a meu respeito
+---
+não seria assim 
+do mesmo jeito 
+se o cinema 
+não existisse
+---
+vamos colocar um ponto inicial 
+na nossa história
+
+.
+---
+a solidão deve partir de você
+---
+saudade exige que amor se retrate
+---
+no escuro 
+ficou bem claro 
+que ficar duro 
+era moleza
+---
+acordei ao som de passarinhos 
+cantando Wonderwall
+---
+F5 no amor
+---
+se bem me lembro 
+no final 
+ela disse 
+que eu sou 
+uma pessoa incrível 
+eu vou repetir 
+para vocês entenderem
+
+NO FINAL.
+---
+quando estou 
+não consigo acreditar 
+que estou 
+quando não mais estou
+não consigo acreditar 
+que um dia 
+já estive
+---
+melhores amigos 
+participação especial
+
+AMOR
+---
+Vinícius Knecht 
+poeta naturezado 
+lá de Manoel de Barros
+---
+POESIA 
+
+vestir as palavras
+para logo depois 
+despi-las
+---
+você é a primeira vez qu
+eu escrevo isso 
+e não vou repet
+ir
+---
+antigamente 
+amor podia cair 
+de penhasco 
+era socorrido com vida
+---
+musa inspiração 
+prec
+Isa dizer não
+---
+ela pensa em mim 
+e não se toca
+---
+amava ela 
+nunca me senti 
+tão nervoso 
+na vida 
+porque o meu papel estava acabando
+---
+HISTÓRIA DE UM ROMANCE MODERNO 
+
+Erra uma vez…
+Fim. 
+---
+MARIETA
+
+para poeta que se presta 
+amor vira título
+---
+nostalgia põe saudade para dormir
+---
+nunca alimente um amor 
+sem apetite
+---
+tropeçamos na vida 
+deitamos no chão 
+e fizemos amor 
+para disfarçar 
+---
 você me lembra alguém
 lembrei 
 você me lembra você 
