@@ -1,6 +1,182 @@
 ---
 layout: default
 ---
+você me lembra alguém
+lembrei 
+você me lembra você 
+do passado
+---
+minha sensibilidade 
+olha minha intensidade 
+que toca minha depressão 
+que beija minha ansiedade 
+que penetra minha arte
+---
+como acordar para a vida 
+sem regular o sonho
+---
+no final das contas 
+você acaba ficando 
+com aquele que estiver 
+mais perto
+---
+seu corpo 
+um mirante
+---
+seu sussurro no meu ouvido 
+um refrão
+---
+o truque da vovó 
+é costurar o tricô 
+com a linha do tempo
+---
+visitei o seu coração 
+para a minha surpresa 
+não havia ninguém em casa
+---
+não confie tanto nos seus olhos
+---
+especialistas analisam 
+em que circunstância 
+ainda é recomendado amar
+---
+MADRUGADAS
+
+amor que horas parece agora?
+---
+explique para mim 
+se há alguma intensidade 
+considerada “normal”
+e como medi-la
+---
+não lembrava mais 
+o seu rosto 
+mas ainda lembrava 
+o quanto a amava
+---
+A NOSSA LIGAÇÃO 
+
+coração chama chama 
+e ninguém atende
+---
+entre 
+fique na vontade 
+não repara 
+que estou te amando 
+está uma bagunça
+---
+descobri 
+não me apaixonava 
+por mim 
+porque eu não queria 
+nada sério
+---
+tomara que o amor
+nunca mais encoste 
+um dedo 
+em você
+---
+não sei se fui 
+o melhor 
+ou apenas 
+o preferido
+---
+você não quer 
+me conhecer melhor 
+você só quer 
+pistas
+para solucionar poesias
+---
+JULIA DREAM
+
+trocamos olhares 
+e agora tenho 
+olhos azuis
+---
+ANTES DO AMANHECER
+
+num encontro romântico 
+perguntas despidas 
+são mais importantes
+que respostas vestidas 
+p/ impressionar
+---
+muito amor 
+pouca mídia
+---
+talvez você se encontre
+Vivian
+---
+AMOR 
+
+aquilo que supera amizade 
+---
+AMIZADE 
+
+aquilo que supera amor
+---
+espere mais um pouco 
+a noite não está 
+escura o bastante 
+para nós dois 
+---
+você não sabe com quem está amando
+---
+foi amor à última vista
+---
+quinze goles de café 
+para saber 
+que te quero
+---
+você é exatamente 
+como alguém que desejo 
+mas talvez eu não queira 
+alguém que seja exatamente 
+como alguém que desejo
+---
+vocês se entenderam? 
+
+não mas nós rimos muito
+---
+do teu lado 
+não tenho tamanho 
+tamanho é o amor 
+que tenho 
+---
+só temos 
+real conexão 
+des
+conectados
+---
+fazer um 
+filme 
+sobre nossa história 
+antes que vire 
+novela
+---
+escrever um livro 
+é contar ao mundo 
+quem é você 
+e se perder na conta
+---
+sempre li o meu nome 
+em azul 
+e o seu 
+em vermelho
+---
+passado 
+a dependência em
+Marias e Josés
+---
+NOTAS SOBRE ELA
+
+ela não vai 
+querer você 
+só porque 
+você 
+escreve 
+sobre ela
+---
 não era insônia 
 era vigília 
 para a saudade
