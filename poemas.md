@@ -1,20 +1,245 @@
 ---
 layout: default
 ---
-o que vocês esperam de mim?
-ainda esperam algo de mim?
-já não escrevi o insuficiente?
+EPÍLOGO
 ---
-LANÇAMENTO
+que que você anda fazendo 
+por que você fala tanto em patrulha 
+como você é burro cara 
+que poesia absurda 
+são os seus leitores 
+ou é a sua própria arte 
+o seu serviço de vigilância 
+você escreve de uma maneira muito burra
+---
+e o final 
+e o final todos nós sabemos
+um novo começo 
+se não para nós
+para os outros
+---
+bom caminhar ao seu lado
+porque você faz pausas 
+e me ensina o que é correr 
+a favor do tempo
+---
+a voz veio das nuvens 
+fim da linha poeta 
+e então subi 
+disfarçado 
+ainda assim 
+desconfiado
+---
+Vinícius Knecht o que é a poesia?
 
-Livro
+a poesia está em todas as artes 
+a poesia está na arquitetura 
+na literatura 
+na música 
+na dança 
+no cinema 
+no teatro 
+nas artes plásticas 
+nas esculturas 
+nas pinturas 
+nos desenhos 
+a poesia é a produção 
+mesmo que inconsciente 
+de obras 
+formas 
+ou objetos 
+a poesia é 
+não apenas a expressão 
+da subjetividade humana 
+mas a explicação 
+ou a mera interpretação 
+da mesma
+---
+o importante é dar o último passo 
+---
+Abujamra
 
-Amarelando blue (2025)
+Vinícius Knecht o que é a poesia?
 
+Vinícius
 
-Poesia Romance
+é o dever de ver 
+é o observar 
+o reparar
+reparar para observar 
+e reparar para consertar
 
-01 05 2025
+Abujamra
+
+Vinícius o que é a poesia?
+
+Vinícius
+
+hum expressar o que ainda não foi expresso 
+e impresso 
+anotar o que não foi notado
+
+Abujamra
+
+o que é… a poesia?
+
+Vinícius
+
+certo 
+poesia são partículas de luz e partículas mensageiras 
+fótons e glúons
+
+Abujamra
+
+você vem com essa para cima de mim? 
+
+(risos)
+
+vem cá e me dá um abraço
+---
+por que você fez isso? 
+sério
+
+porque... você sabe... 
+eu acredito que ninguém pensaria que 
+eu faria
+---
+na escuridão do atempo 
+por que é escuro à noite
+os minutos finais da juventude 
+a eternidade
+os minutos finais da coragem 
+o medo
+os minutos finais dos pensamentos 
+as lembranças
+os minutos finais das lembranças 
+última visão
+os minutos finais do amor 
+o cinema
+os minutos finais do silêncio 
+os pensamentos
+os minutos finais da história 
+o tempo
+os minutos finais do medo 
+a coragem
+os minutos finais da eternidade 
+a juventude
+os minutos finais do cinema 
+o amor
+última visão 
+noite 
+ele diz 
+noite 
+ela diz 
+noite 
+eles dizem
+por que é tão escuro durante o dia
+
+a morte
+---
+nunca é demais plantar um museu 
+numa estrela
+---
+somos artistas Vinícius 
+nós não passamos por borboletas 
+como se fôssemos formiguinhas 
+e nós jamais ofenderíamos as formigas
+---
+me deixo nas mãos da arte
+---
+brindamos com cacos de vidro
+---
+Vinícius sentiu que 
+algo de bom 
+estava prestes a acontecer 
+saiu da cama 
+vestiu a sua melhor roupa 
+e caminhou até o parque 
+
+e algo de bom aconteceu
+
+Vinícius saiu da cama 
+vestiu a sua melhor roupa 
+e caminhou até o parque
+---
+meu sonho era ser poeta 
+agora é ser anjo
+---
+foi perfeito mas 
+eu esperava mais
+---
+WRITTEN AND 
+DIRECTED BY
+VINÍCIUS KNECHT
+---
+Prólogo
+Primeira parte – Amor
+Segunda parte – Dor e sofrimento
+Terceira parte – Humor
+Epílogo
+---
+Tá gravando?
+---
+Cast
+
+Isabela – Isabela W. Agoniada
+Leonardo DiCaprio – Leonardo DiCaprio
+Vitória – Vitória Luísa
+Vinícius – Vinícius Knecht
+Mario – Quintana
+João – Lucas
+Airton – Airton Engster dos Santos
+Thom Yorke – Thom Yorke
+Adriani – Adriani Knecht
+Van Gogh – Vincent van Gogh
+Jorge – Jair Jorge Knecht
+Daniel – Daniel W. Arenhart
+Vô – José Roque Wendt
+Vó – Laine Wendt
+Adriano – Adriano Guindani
+Vivian – A Vivian
+Lylian – Lylian Cândido
+Matthew Perry – Matthew Perry
+Régis – Régis Ebeling
+Alex Turner – Alex Turner
+Guilherme – Guilherme Borchardt
+Binho – Fábio A. Costa B.
+João – João Miguel Ströher
+Kieran Culkin – Kieran Culkin
+João – João Marcos Graeff Bastos
+Ethan Hawke – Ethan Hawke
+Jim Carrey – Jim Carrey
+Brendan Fraser – Brendan Fraser
+Xavier Dolan – Xavier Dolan
+Kurt Cobain – Kurt Cobain
+Jonas Mekas – Jonas Mekas
+Jéssica – Jéssica M.
+Yoñlu – Vinicius Gageiro Marques
+Andrew Solomon – Andrew Solomon
+Clarice – Lispector
+Lina – Lina Justi
+Pâmela – Pâmela Costa
+Déo – Déo L. Moraes
+Paulo – Ciência
+Nati – Nataniel I. da Silva
+Ester – Na Mente
+Sara – Não Tem Nome
+Banksy
+Matilde – Matilde Campilho
+
+Music
+
+“Let Down” – Radiohead
+---
+1ª Edição 
+Copyright © 2025 por Vinícius Knecht
+---
+Texto: Vinícius Knecht
+Arte: Vinícius Knecht
+Revisão: Vinícius Knecht
+---
+Este livro é baseado em fatos reais. 
+Além do poeta, nenhum animal foi ferido durante a produção.
 ---
 conheça os novos nem-nem
 nem reconhecimento
