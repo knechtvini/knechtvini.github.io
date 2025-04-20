@@ -208,6 +208,7 @@ que você ama
 e não fala isso para ela?
 
 ela já morreu no futuro. 
+---
 saudade vem de dentro 
 ou vem de fora?
 ---
