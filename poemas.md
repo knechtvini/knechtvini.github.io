@@ -68,7 +68,8 @@ ME CHAME PELO SEU NOME
 
 se me chamares 
 pelo seu nome 
-eu vou olhar antes 
+eu vou olhar antes
+---
 acordar 
 num amor 
 é um acordo 
