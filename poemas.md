@@ -1,6 +1,70 @@
 ---
 layout: default
 ---
+INTERIOR. CASA DE VITÓRIA – DIA
+
+Isabela acorda sentindo-se criativa. 
+Decide tirar a própria vida. 
+Depois da última palavra, que é um nome, a campainha da casa toca. 
+Não há ninguém. 
+Isabela lembra do roteiro que escreveu.
+Aquele roteiro.
+A paranoia é do tamanho do medo.
+A curiosidade é do tamanho da paranoia.
+Lembra que, na semana passada, 
+seus pais instalaram câmeras externas ao redor da casa. 
+Poderia ser coincidência. 
+Isabela vê os registros das câmeras. 
+No momento em que a campainha tocou, não havia ninguém no portão. 
+Ninguém próximo à sua casa.
+---
+EXTERIOR. CASA DE VITÓRIA – DIA
+
+Sobrevoamos a casa de Isabela 
+e nos aproximando do portão na frente da casa de Isabela. 
+Vemos o seu corpo parado no portão. 
+Fantasmagórica. 
+Toca a campainha dezenas e dezenas de vezes.
+Toca a campainha de forma violenta. 
+Até a campainha, em algum momento, tocar.
+---
+INTERIOR. CASA DE CULTURA MARIO QUINTANA – DIA
+
+Vinícius e Vitória terminam as gravações do curta-metragem sem nome definido. A sugestão é de “Companhia na campanhia”.
+
+VITÓRIA.	Foi um plot-twist e tanto…
+VINÍCIUS.	Não foi?
+VITÓRIA.	Então... as gravações ficaram boas? Você mesmo vai editar?
+VINÍCIUS.	Já está tudo pronto. Vou lhe enviar o link para o seu e-mail. Olha só... na verdade eu escrevi o roteiro e convidei você para atuar… você sabe… para ter a desculpa de vir aqui e te encontrar... você sabe disso, não sabe?
+VITÓRIA.	Vini... você sabe que... você é meu amigo... Conta mais sobre o curta. O que você vai fazer com ele? 
+---
+INTERIOR. CASA DE VITÓRIA – NOITE
+
+Vitória chega em casa. 
+Beija João.
+Vitória comenta sobre o curta-metragem.
+João parece indiferente, mas a parabeniza. 
+João diz que vai se deitar, pois está esgotado. 
+Ele sabia tudo sobre Vinícius. 
+E tudo sobre Vitória.
+Vitória assiste as gravações na sala. 
+Chove lá fora. 
+Sente um incômodo. 
+Esfria. 
+Parece que nesse momento sempre esfria.
+Vitória vai até o quarto do namorado, que já está na cama. 
+Virado para o outro lado, o da janela. 
+Vitória o chama. 
+João não responde. 
+Vitória acredita que João já está dormindo. 
+Os olhos de João estão abertos.
+Horrivelmente paralisado. 
+A campainha da casa toca. 
+Vitória espia pela janela da sala.
+Não vê ninguém.
+Fantasmagórico.
+João atravessa a rua.
+---
 EPÍLOGO
 ---
 que que você anda fazendo 
