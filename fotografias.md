@@ -4,6 +4,10 @@ title: Fotografias
 permalink: /fotografias/
 photos:
   - url: https://lh3.googleusercontent.com/pw/AP1GczPdvWSg4F6k3uiLuSA5yND7tOV3Gqkkf3oRUDR-bvxume-vb9bT9xXV1E8hdnp3cnLIMLAxfZhFbls2kEfQZiP6hF17x5Q6qKF_-YN1LtsOGG818nRB=w2400
+  - url: https://lh3.googleusercontent.com/pw/AP1GczOAb-0eC39V9jnQCljO-xiDNDxhSfSKeq-NMQSZSNonjcwxAc7FARjdoBiyu0FKxEgNfUM8PsNk7umXjABGPJ0W3XERLVbdsdvTasCxMqnk3i3Rrmiq=w2400
+  - url: https://lh3.googleusercontent.com/pw/AP1GczOAoHfzq0FvBmjga91kiAs2hvrwCA3Kv8HiTsqhc-CxrYhwB1w38Xdj27IKakIwrALMjEq3ycS4ZxFcobFWvjdcy3MbA-5z5DjiiHaq20JxNgtloFpb=w2400
+  - url: https://lh3.googleusercontent.com/pw/AP1GczPhBsxu7bBwUUHo5uVxxBWwY3tF1hfbQzst7eAwrceU2FgEGBNjSLIcUB7z6Oz-3vyRWfNIWYmNEEbASukEszHu_z1AmIzutPNnymriFQ8-UMJ_z_ov=w2400
+  - url: https://lh3.googleusercontent.com/pw/AP1GczOYtleD9VFnAd0KKWDE-3BRLZS3YjkbfSWGDxbEkiMJjwIzex-ANwWsIFjq62b6eP6IRankVulwOJQSmSg7X4yjZgK5Yu4tEWT7xJH2j6itXjlqbLvu=w2400
   - url: https://lh3.googleusercontent.com/pw/AP1GczOHmyl4inc9JP-A9HxpK7YcoDxIfsiKjYsiy_kXtAwcakKK-N_WC_Yf70w7-jDXUKzbwirrCQm1wAbDFIQT--RpDZe8pGMnQdMOC7QWQfCUJPP6ItIU=w2400
   - url: https://lh3.googleusercontent.com/pw/AP1GczNmQl07_zrfFHppgEbg0YnlcDMcPrY3IBQS-0mzDaiy-XHhp5NR_ZF1bWEyXo1htaZaoC9MY3xjMWdMa5ORJC3mb-qAffY8reK0-p8Mn7hI9xfz1SE5=w2400
   - url: https://lh3.googleusercontent.com/pw/AP1GczPzOeBJO4zyFd-6jneciiivTXx9LUlxvNH8hA_kRWFFl03fl_pHIwiuFAt1aSQ57jPg6VBTgcWujrOa_ZaRXFiIhRKzDxOy1mVLyP4l9q662Jm1vom7=w2400
