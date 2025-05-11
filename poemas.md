@@ -15,7 +15,7 @@ Queria que o Kieran Culkin estivesse aqui falando português
 Batom ao leite
 
 O Blues está em todo encanto
-E tá faltando vermelho
+E tá faltando vermelho.
 ---
 Eu tenho que ficar o tempo todo lendo
 Porque eu leio muito pouco.
