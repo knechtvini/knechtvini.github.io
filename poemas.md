@@ -7,7 +7,7 @@ Um Diagnóstico Capitalista
 
 Funcional por obrigação.
 ---
-Cresci está nascendo e é um artista...
+Cresci estou nascendo e é um artista...
 devo abordar?
 ---
 Queria que o Kieran Culkin estivesse aqui falando português
