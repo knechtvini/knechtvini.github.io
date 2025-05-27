@@ -1,6 +1,16 @@
 ---
 layout: default
 ---
+álcool pós medicação
+---
+ela está na mesa do lado
+é muito solo para quem deseja voar
+---
+será que a minha alma vai ser publicada?
+---
+saio daqui mais realista
+e pessimista
+---
 queria que o Kieran Culkin 
 estivesse aqui falando português
 ---
