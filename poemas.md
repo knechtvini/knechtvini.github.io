@@ -1,6 +1,58 @@
 ---
 layout: default
 ---
+eu precisava respirar algo melhor sobre você
+como eu seu que ousei sentir algo por você
+ou sei que eu não deveria sentir 
+sequer a falta de ar por você
+não basta ser asmático tem que existir amor
+eu não deveria sentir sequer um arrepio
+tudo vai piorar e estou mais calmo que ontem
+porque você está lendo hoje
+estou mais excitado hoje
+porque você vai ler amanhã
+verdade é que eu só sinto o que obsesso
+verdade é que eu só observo o que não tenho
+sequer a presença
+ou o que eu tenho em excesso
+até mesmo a ausência
+eu precisava surtar em dose dupla
+o doutor me disse o meu pulmão está bom
+e eu ainda não estou com pneumonia
+meus rascunhos não tem limite
+eu gostaria de estar dentro de você sabe
+para sair e entrar de novo e sair e entrar de novo 
+e sair e entrar de novo e sair e entrar de novo 
+e sair e entrar de novo e sair e entrar de novo 
+e sair e entrar de novo e sair e entrar de novo 
+e sair e entrar de novo e sair e entrar de novo
+e sair e entrar de novo e sair e entrar de novo 
+e sair e entrar de novo e sair e entrar de novo 
+e sair e entrar de novo e sair e entrar de novo 
+e sair e entrar de novo e sair e entrar de novo 
+e sair e entrar de novo e sair e entrar de novo 
+e sair e entrar de novo e sair e entrar de novo 
+e sair e entrar de novo e sair e entrar de novo 
+e sair e entrar de novo e sair e entrar de novo 
+e sair e entrar de novo e sair e entrar de novo 
+e sair e entrar de novo e sair e entrar de novo 
+e sair e entrar de novo e sair e entrar de novo 
+e sair e entrar de novo e sair e entrar de novo 
+e sair e entrar de novo e sair e entrar de novo 
+e sair e entrar de novo e sair e entrar de novo 
+e sair e entrar de novo e sair e entrar de novo 
+e sair e entrar de novo e sair e entrar de novo 
+e sair e entrar de novo e sair e entrar de novo 
+e sair e entrar de novo e sair e entrar de novo 
+e sair e entrar de novo e sair e entrar de novo 
+e sair e entrar de novo e sair e entrar de novo 
+e sair e entrar de novo e sair e entrar de novo 
+e sair e entrar de novo e sair e entrar de novo 
+e sair e entrar de novo e sair e entrar de novo 
+e sair e entrar de novo e sair e entrar de novo
+e então nos secar com papel higiênico 
+e assistir outro episódio de Normal People
+---
 as cores da França no seu corpo
 ---
 o sentimento é cítrico
