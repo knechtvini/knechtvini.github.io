@@ -1,6 +1,21 @@
 ---
 layout: default
 ---
+eu queria a liberdade da minha escrita
+---
+nada jesustifica
+---
+crise depressiva no meio do sexo
+---
+eu sou menor que um átomo seu
+---
+você me deixaria mais corcunda
+---
+você não deveria ter saído do meu roteiro
+---
+um funeral de celebridade
+o trânsito de NY
+---
 vou sair só de costume
 para ver ela dançando
 no seu próprio 
