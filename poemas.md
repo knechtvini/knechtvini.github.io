@@ -1,6 +1,18 @@
 ---
 layout: default
 ---
+já faz tanto tempo
+que não me sento
+para refletir 
+sobre a atual poesia
+---
+então assisto um artista
+e ganho mais tempo
+---
+então assisto um filme
+e não vejo a atriz
+na manhã seguinte
+---
 ele fez mais por mim em dois dias 
 do que o meu marido em dois 
 ou doze anos
