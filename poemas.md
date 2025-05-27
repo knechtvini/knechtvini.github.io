@@ -1,6 +1,21 @@
 ---
 layout: default
 ---
+as cores da França no seu corpo
+---
+o sentimento é cítrico
+---
+eu senti falta do rascunho
+---
+a tendência é o anoni
+mato
+---
+nem ao que me assassinasse 
+eu saberia odiar
+
+não guardaria rancor
+sequer do meu assassino
+---
 eu queria a liberdade da minha escrita
 ---
 nada jesustifica
