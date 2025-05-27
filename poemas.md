@@ -1,6 +1,24 @@
 ---
 layout: default
 ---
+queria que o Kieran Culkin 
+estivesse aqui falando português
+---
+batom ao leite
+---
+o blues está em todo encanto
+---
+está faltando vermelho
+---
+minha cidade não enche o estádio do meu time
+---
+DIAGNÓSTICO
+
+Funcional por obrigação
+---
+está nascendo uma nova poesia 
+devo abordar?
+---
 Eu gostei do poema, Vinícius, mas...
 você está desejando a minha morte, é isso mesmo?
 ---
