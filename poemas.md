@@ -1,6 +1,19 @@
 ---
 layout: default
 ---
+vou sair só de costume
+para ver ela dançando
+no seu próprio 
+ritmo cardíaco
+---
+falta volume no meu cabelo
+---
+tem que escrever berrando
+---
+o que eu não estou fazendo aqui?
+---
+é tudo tão fútil e tão especial
+---
 às vezes escrevo em público para ser nota
 ---
 para parecer mais niilista
