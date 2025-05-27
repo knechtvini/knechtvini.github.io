@@ -157,8 +157,20 @@ e sair e entrar de novo e sair e entrar de novo
 e sair e entrar de novo e sair e entrar de novo 
 e sair e entrar de novo e sair e entrar de novo 
 e sair e entrar de novo e sair e entrar de novo
+e sair e entrar de novo e sair e entrar de novo 
+e sair e entrar de novo e sair e entrar de novo 
+e sair e entrar de novo e sair e entrar de novo 
+e sair e entrar de novo e sair e entrar de novo
+e sair e entrar de novo e sair e entrar de novo 
+e sair e entrar de novo e sair e entrar de novo
+e sair e entrar de novo e sair e entrar de novo 
+e sair e entrar de novo e sair e entrar de novo
+e sair e entrar de novo e sair e entrar de novo 
+e sair e entrar de novo e sair e entrar de novo 
 e então nos secar com papel higiênico 
 e assistir outro episódio de Normal People
+
+- Já?
 ---
 as cores da França no seu corpo
 ---
