@@ -1,6 +1,17 @@
 ---
 layout: default
 ---
+obra-prima não escrita
+---
+me fode, palavra
+com a força que só você tem
+---
+esperamos que na segunda-feira
+você esteja recuperado
+do seu passado
+---
+poeta tem o olhar tatuagem
+---
 cada vez que escrevo
 escrevo para piorar
 e voltar
