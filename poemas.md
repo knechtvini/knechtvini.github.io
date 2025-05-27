@@ -1,6 +1,19 @@
 ---
 layout: default
 ---
+ele fez mais por mim em dois dias 
+do que o meu marido em dois 
+ou doze anos
+---
+já tanto tempo
+que me sento
+e não me sinto
+um escritor
+---
+já tanto tempo
+que não me vejo
+em outros espelhos
+---
 a folha rasga ao meio de produção
 ---
 o Batman é pobre na minha cidade
