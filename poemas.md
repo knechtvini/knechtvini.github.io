@@ -1,6 +1,10 @@
 ---
 layout: default
 ---
+às vezes escrevo em público para ser nota
+---
+para parecer mais niilista
+---
 álcool pós medicação
 ---
 ela está na mesa do lado
