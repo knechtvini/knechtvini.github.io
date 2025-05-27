@@ -1,6 +1,19 @@
 ---
 layout: default
 ---
+a folha rasga ao meio de produção
+---
+o Batman é pobre na minha cidade
+---
+lembra quando eu escrevia bem?
+hoje salto alto
+---
+acredito em acertar um verso de primeira
+---
+você precisa de ajuda da arte com urgência
+---
+triagem depois da consulta
+---
 eu precisava respirar algo melhor sobre você
 como eu seu que ousei sentir algo por você
 ou sei que eu não deveria sentir 
