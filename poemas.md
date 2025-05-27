@@ -1,6 +1,16 @@
 ---
 layout: default
 ---
+seu caso é cínico
+---
+poderíamos viver juntos por mil anos
+mesmo se eu te magoasse
+---
+1:00: você está proibida de me magoar
+---
+médico e poeta
+ópera
+---
 obra-prima não escrita
 ---
 me fode, palavra
