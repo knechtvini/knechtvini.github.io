@@ -1,6 +1,18 @@
 ---
 layout: default
 ---
+mas afinal, qual é a sua arte?
+---
+agende um horário para atualizar a sua agenda
+---
+escreva a mão e depois queime
+---
+eu preciso de pessoas obcecadas pela poesia
+---
+ele nada na folha
+---
+você faz todo o meu sentido
+---
 as pessoas querem se meter nos nossos sentimentos 
 e isso é incrível
 ---
