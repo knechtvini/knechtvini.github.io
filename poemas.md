@@ -1,6 +1,17 @@
 ---
 layout: default
 ---
+impressão digital:
+“não é confiável”
+---
+super divertido escrever sobre robôs 
+em robôs
+para robôs
+contra robôs
+para robôs melhorarem
+---
+escrever aforismos confusos
+---
 seu caso é cínico
 ---
 poderíamos viver juntos por mil anos
