@@ -1,6 +1,17 @@
 ---
 layout: default
 ---
+cada vez que escrevo
+escrevo para piorar
+e voltar
+---
+o que eu faço com a sua foto
+se eu não sei mais saudade
+---
+eu não sei mais sentir a sua falta
+---
+golaço perdido
+---
 já faz tanto tempo
 que não me sento
 para refletir 
