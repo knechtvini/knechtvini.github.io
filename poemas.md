@@ -1,6 +1,11 @@
 ---
 layout: default
 ---
+as pessoas querem se meter nos nossos sentimentos 
+e isso é incrível
+---
+vou me entregar de corpo e alma ao niilismo
+---
 impressão digital:
 “não é confiável”
 ---
