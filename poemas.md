@@ -1,6 +1,15 @@
 ---
 layout: default
 ---
+Senhor, o seu café esfriou. Gostaria de se retirar?
+---
+ontem eu escrevi um poema 
+para a garota que mais me magoou
+e foi incrível
+é mais ou menos assim:
+
+a partir de agora o seu nome é Cebola
+---
 mas afinal, qual é a sua arte?
 ---
 agende um horário para atualizar a sua agenda
