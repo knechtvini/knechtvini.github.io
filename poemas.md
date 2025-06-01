@@ -3,6 +3,21 @@ layout: default
 ---
 Senhor, o seu café esfriou. Gostaria de se retirar?
 ---
+Não é indireta se está óbvio que é para você.
+---
+Não estou tão envolvido
+Você sabe que não sou um grande tolo
+Não por você
+Você não me tem na sua mão
+Eu sei que isso não vai se prolongar
+But I'm in so deep 
+You know I'm such a fool for you
+You got me wrapped around your finger
+Do you have to let it linger?
+Do you have to, 
+do you have to, 
+do you have to let it linger?
+---
 ontem eu escrevi um poema 
 para a garota que mais me magoou
 e foi incrível
