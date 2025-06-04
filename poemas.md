@@ -21,29 +21,35 @@ do you have to let it linger?
 ontem eu escrevi um poema 
 para a garota que mais me magoou
 e foi incrível
-é mais ou menos assim:
+mais ou menos assim:
 
-a partir de agora o seu nome é Cebola
+a partir de agora 
+o seu nome 
+é Cebola
 ---
-mas afinal, qual é a sua arte?
+mas afinal 
+qual é 
+a sua 
+arte?
 ---
-agende um horário para atualizar a sua agenda
----
-escreva a mão e depois queime
----
-eu preciso de pessoas obcecadas pela poesia
+eu preciso de pessoas 
+obcecadas 
+pela poesia
 ---
 ele nada na folha
 ---
 você faz todo o meu sentido
 ---
-as pessoas querem se meter nos nossos sentimentos 
+as pessoas querem se meter 
+nos nossos sentimentos 
 e isso é incrível
 ---
-vou me entregar de corpo e alma ao niilismo
+vou me entregar 
+de corpo e alma 
+ao niilismo
 ---
-impressão digital:
-“não é confiável”
+Impressão digital:
+“Não é confiável”
 ---
 super divertido escrever sobre robôs 
 em robôs
@@ -55,9 +61,6 @@ escrever aforismos confusos
 ---
 seu caso é cínico
 ---
-poderíamos viver juntos por mil anos
-mesmo se eu te magoasse
----
 1:00: você está proibida de me magoar
 ---
 médico e poeta
@@ -65,23 +68,23 @@ médico e poeta
 ---
 obra-prima não escrita
 ---
-me fode, palavra
-com a força que só você tem
+me fode palavra
+com a força 
+que só você tem
 ---
 esperamos que na segunda-feira
 você esteja recuperado
-do seu passado
+de todo o seu passado
 ---
 poeta tem o olhar tatuagem
 ---
 cada vez que escrevo
 escrevo para piorar
-e voltar
+e sempre voltar
 ---
-o que eu faço com a sua foto
-se eu não sei mais saudade
----
-eu não sei mais sentir a sua falta
+o que faço com sua foto
+se não sei mais 
+sentir saudade
 ---
 golaço perdido
 ---
@@ -95,10 +98,11 @@ e ganho mais tempo
 ---
 então assisto um filme
 e não vejo a atriz
-na manhã seguinte
+na manhã do dia seguinte
 ---
 ele fez mais por mim em dois dias 
-do que o meu marido em dois 
+do que o meu marido 
+em dois 
 ou doze anos
 ---
 já tanto tempo
@@ -114,12 +118,17 @@ a folha rasga ao meio de produção
 ---
 o Batman é pobre na minha cidade
 ---
-lembra quando eu escrevia bem?
+lembra quando 
+eu escrevia bem?
 hoje salto alto
 ---
-acredito em acertar um verso de primeira
+acredito em acertar 
+um verso 
+de primeira
 ---
-você precisa de ajuda da arte com urgência
+você precisa 
+de ajuda da arte 
+com urgência
 ---
 triagem depois da consulta
 ---
@@ -202,42 +211,45 @@ eu saberia odiar
 não guardaria rancor
 sequer do meu assassino
 ---
-eu queria a liberdade da minha escrita
+eu quero a liberdade da minha escrita
 ---
 nada jesustifica
 ---
-crise depressiva no meio do sexo
+crise depressiva no meio da relação sexual
 ---
 eu sou menor que um átomo seu
 ---
 você me deixaria mais corcunda
 ---
-você não deveria ter saído do meu roteiro
+você não deveria 
+ter saído 
+do meu roteiro
 ---
 um funeral de celebridade
-o trânsito de NY
+um trânsito de NY
 ---
 vou sair só de costume
 para ver ela dançando
 no seu próprio 
 ritmo cardíaco
 ---
-falta volume no meu cabelo
----
 tem que escrever berrando
 ---
 o que eu não estou fazendo aqui?
 ---
-é tudo tão fútil e tão especial
+é tudo tão fútil 
+e tão especial
 ---
-às vezes escrevo em público para ser nota
+às vezes escrevo em público 
+para ser nota
 ---
 para parecer mais niilista
 ---
 álcool pós medicação
 ---
 ela está na mesa do lado
-é muito solo para quem deseja voar
+é muito solo 
+para quem deseja voar
 ---
 será que a minha alma vai ser publicada?
 ---
@@ -259,7 +271,8 @@ DIAGNÓSTICO
 
 Funcional por obrigação
 ---
-está nascendo uma nova poesia 
+está nascendo 
+uma nova poesia 
 devo abordar?
 ---
 Eu gostei do poema, Vinícius, mas...
