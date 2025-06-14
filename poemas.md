@@ -1,6 +1,38 @@
 ---
 layout: default
 ---
+Escolhe uma música e vence
+---
+Saiba separar a arte do ar
+
+Não
+---
+Livros enforcados na praça
+O suicídio da literatura
+---
+Uma boca usando 
+uma franja fajuta
+Lá na Segunda 
+Guerra Mundial
+---
+É engraçado eu sei
+Sentir que posso 
+ser racional com você
+Sendo completa mente 
+louco
+E lunático
+
+As pessoas interpretam 
+da pior forma
+E da melhor forma
+E ainda assim
+Elas erram
+---
+Ser ridicularizado 
+feito artista é fácil
+Eu quero ver é ter 
+a coragem de ser este ridículo
+---
 “Uma História Sobre Um Novo Super-Herói”
 
 o livro conta a história
