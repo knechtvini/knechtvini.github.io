@@ -21,7 +21,7 @@ ser racional com você
 Sendo completa mente 
 louco
 E lunático
-
+---
 As pessoas interpretam 
 da pior forma
 E da melhor forma
