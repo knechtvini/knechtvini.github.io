@@ -1,6 +1,15 @@
 ---
 layout: default
 ---
+“Uma História Sobre Um Novo Super-Herói”
+
+o livro conta a história
+de uma criança
+deficiente visual
+que descobre
+o superpoder
+de enxergar
+---
 AQUI A GENTE FALA ASSIM
 
 uma goma de bergamota 
