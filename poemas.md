@@ -1,6 +1,28 @@
 ---
 layout: default
 ---
+AQUI A GENTE FALA ASSIM
+
+uma goma de bergamota 
+no chão da escola
+uma goma de bergamota 
+no chão da escola
+abandonada e esmagada
+parecia muito 
+mas muito 
+com um camarão
+e isso foi a coisa mais poética
+que eu poderia ver 
+no momento
+que eu poderia escrever 
+no momento
+e eu não estou ficando louco
+imagina
+---
+Saiba separar a arte do ar
+
+Não
+---
 Senhor, o seu café esfriou. Gostaria de se retirar?
 ---
 Não é indireta se está óbvio que é para você.
