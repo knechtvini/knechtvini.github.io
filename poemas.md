@@ -1,7 +1,7 @@
 ---
 layout: default
 ---
-Escolhe uma música e vence
+Escolhe uma música e dan*ven*ce*
 ---
 Saiba separar a arte do ar
 
