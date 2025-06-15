@@ -1,6 +1,34 @@
 ---
 layout: default
 ---
+Os outros decidiram que eu quero morrer
+---
+Eu vou escrever 
+a minha biografia
+Acho que ninguém 
+melhor que eu
+---
+Ex poeta em atividade
+---
+Internado na minha 
+própria arte
+---
+Revolucionando o meu 
+estado de espírito
+---
+TRIÂNGULO
+
+Você não está 
+sendo sincera 
+com um de nós 
+três
+---
+Um fio do implante capilar 
+de artista é vendido 
+por 15 milhões de reais
+---
+Rede social é o diagnóstico
+---
 Escolhe uma música e dan*ven*ce*
 ---
 Saiba separar a arte do ar
