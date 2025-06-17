@@ -1,65 +1,65 @@
 ---
 layout: default
 ---
-Os outros decidiram que eu quero morrer
+os outros decidiram que eu quero morrer
 ---
-Eu vou escrever 
+eu vou escrever 
 a minha biografia
-Acho que ninguém 
-melhor que eu
+acho que ninguém 
+melhor do que eu
 ---
-Ex poeta em atividade
+ex poeta em atividade
 ---
-Internado na minha 
+internado na minha 
 própria arte
 ---
-Revolucionando o meu 
+revolucionando o meu 
 estado de espírito
 ---
 TRIÂNGULO
 
-Você não está 
+você não está 
 sendo sincera 
 com um de nós 
 três
 ---
-Um fio do implante capilar 
+fio de implante capilar 
 de artista é vendido 
-por 15 milhões de reais
+por 15 milhões de 
+reais
 ---
-Rede social é o diagnóstico
+rede social é o diagnóstico
 ---
-Escolhe uma música e dan*ven*ce*
+escolhe uma música e vence
 ---
-Saiba separar a arte do ar
+saiba separar a arte do ar
 
-Não
+não
 ---
-Livros enforcados na praça
-O suicídio da literatura
+livros enforcados na praça
+o suicídio da literatura
 ---
-Uma boca usando 
+uma boca usando 
 uma franja fajuta
-Lá na Segunda 
-Guerra Mundial
+lá na segunda 
+guerra mundial
 ---
-É engraçado eu sei
-Sentir que posso 
+é engraçado eu sei
+sentir que posso 
 ser racional com você
-Sendo completa mente 
+sendo completa mente 
 louco
-E lunático
 ---
-As pessoas interpretam 
+as pessoas interpretam 
 da pior forma
-E da melhor forma
-E ainda assim
-Elas erram
+e da melhor forma
+e ainda assim
+elas erram
 ---
-Ser ridicularizado 
+ser ridicularizado 
 feito artista é fácil
-Eu quero ver é ter 
-a coragem de ser este ridículo
+quero ver é a coragem 
+de ser o ridículo
 ---
 “Uma História Sobre Um Novo Super-Herói”
 
@@ -88,13 +88,9 @@ no momento
 e eu não estou ficando louco
 imagina
 ---
-Saiba separar a arte do ar
-
-Não
----
 Senhor, o seu café esfriou. Gostaria de se retirar?
 ---
-Não é indireta se está óbvio que é para você.
+não é indireta se está óbvio que é para você
 ---
 Não estou tão envolvido
 Você sabe que não sou um grande tolo
