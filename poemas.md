@@ -1,19 +1,97 @@
 ---
 layout: default
 ---
-os outros decidiram que eu quero morrer
+os paranoicos 
+continuam 
+me perseguindo
 ---
-eu vou escrever 
-a minha biografia
-acho que ninguém 
-melhor do que eu
+eu vou 
+escrever 
+a minha 
+biografia
+acho que 
+ninguém 
+melhor 
+do que 
+eu
 ---
-ex poeta em atividade
+aproveite 
+o feriado
+aproveite 
+o feriado
+para se 
+medicar
 ---
-internado na minha 
-própria arte
+ainda 
+acredito 
+no poder 
+da palavra 
+e da 
+terceira 
+taça de 
+vinho 
+duvidoso
 ---
-revolucionando o meu 
+estamos 
+com um 
+pequeno 
+probleminha 
+não se 
+preocupe 
+não envolve 
+você 
+pois você 
+é dos grandes
+---
+queria 
+escrever 
+em outro 
+momento 
+o que 
+sinto 
+agora
+queria 
+sentir 
+em outro 
+momento 
+o que 
+escrevo
+agora
+---
+procure 
+por ela 
+vocês 
+nunca 
+irão se 
+reencontrar 
+naquele 
+mesmo 
+estilo 
+---
+em breve 
+serei 
+anônimo 
+só que 
+dessa vez 
+de propósito 
+---
+nunca 
+serei 
+uma 
+data
+---
+os outros decidiram 
+que eu quero morrer
+---
+ex poeta 
+em atividade
+---
+internado 
+na minha 
+própria 
+arte
+---
+revolucionando meu 
 estado de espírito
 ---
 TRIÂNGULO
@@ -23,12 +101,15 @@ sendo sincera
 com um de nós 
 três
 ---
-fio de implante capilar 
-de artista é vendido 
-por 15 milhões de 
-reais
+fio de 
+implante capilar 
+de artista 
+é vendido 
+por 15 milhões 
+de reais
 ---
-rede social é o diagnóstico
+rede social é o 
+diagnóstico
 ---
 escolhe uma música e vence
 ---
@@ -36,36 +117,49 @@ saiba separar a arte do ar
 
 não
 ---
-livros enforcados na praça
-o suicídio da literatura
+livros 
+enforcados 
+na praça
+o suicídio 
+da literatura
 ---
 uma boca usando 
 uma franja fajuta
 lá na segunda 
 guerra mundial
 ---
-é engraçado eu sei
-sentir que posso 
-ser racional com você
-sendo completa mente 
+é engraçado 
+eu sei
+sentir que 
+posso ser 
+racional 
+com você
+sendo 
+completa 
+mente 
 louco
 ---
-as pessoas interpretam 
+pessoas interpretam 
 da pior forma
 e da melhor forma
 e ainda assim
 elas erram
 ---
 ser ridicularizado 
-feito artista é fácil
-quero ver é a coragem 
-de ser o ridículo
+feito artista 
+é fácil
+quero ver 
+é coragem 
+de ser 
+o ridículo
 ---
 “Uma História Sobre Um Novo Super-Herói”
 
-o livro conta a história
+o livro conta 
+a história
 de uma criança
-deficiente visual
+deficiente 
+visual
 que descobre
 o superpoder
 de enxergar
@@ -90,7 +184,10 @@ imagina
 ---
 Senhor, o seu café esfriou. Gostaria de se retirar?
 ---
-não é indireta se está óbvio que é para você
+não é indireta 
+se está 
+óbvio 
+que é para você
 ---
 Não estou tão envolvido
 Você sabe que não sou um grande tolo
@@ -105,13 +202,17 @@ Do you have to,
 do you have to, 
 do you have to let it linger?
 ---
-ontem eu escrevi um poema 
-para a garota que mais me magoou
+ontem escrevi 
+um poema 
+para a garota 
+que mais 
+me magoou
 e foi incrível
 mais ou menos assim:
 
-a partir de agora 
-o seu nome 
+a partir 
+de agora 
+seu nome 
 é Cebola
 ---
 mas afinal 
@@ -119,169 +220,137 @@ qual é
 a sua 
 arte?
 ---
-eu preciso de pessoas 
+preciso 
+de pessoas 
 obcecadas 
 pela poesia
 ---
 ele nada na folha
 ---
-você faz todo o meu sentido
+você faz todo 
+o meu sentido
 ---
-as pessoas querem se meter 
-nos nossos sentimentos 
-e isso é incrível
+as pessoas querem 
+se meter 
+nos nossos 
+sentimentos 
+e isso é 
+incrível
 ---
-vou me entregar 
-de corpo e alma 
+me entregar 
+de corpo 
+e alma 
 ao niilismo
 ---
 Impressão digital:
+
 “Não é confiável”
 ---
-super divertido escrever sobre robôs 
+escrever 
+sobre robôs 
 em robôs
 para robôs
 contra robôs
-para robôs melhorarem
+para robôs 
+melhorarem
 ---
-escrever aforismos confusos
+escrever aforismos 
+confusos
 ---
 seu caso é cínico
 ---
-1:00: você está proibida de me magoar
+1:00: você está proibida 
+de me magoar
 ---
 médico e poeta
 ópera
 ---
 obra-prima não escrita
 ---
-me fode palavra
-com a força 
-que só você tem
+esperamos que 
+na segunda-feira
+você esteja 
+recuperado
+de todo o 
+seu passado
 ---
-esperamos que na segunda-feira
-você esteja recuperado
-de todo o seu passado
+poeta tem o olhar 
+tatuagem
 ---
-poeta tem o olhar tatuagem
+cada 
+vez que 
+escrevo
+escrevo 
+para 
+piorar
+e sempre 
+voltar
 ---
-cada vez que escrevo
-escrevo para piorar
-e sempre voltar
----
-o que faço com sua foto
-se não sei mais 
-sentir saudade
+o que 
+faço 
+com sua 
+foto
+se não 
+sei mais 
+sentir 
+saudade
 ---
 golaço perdido
 ---
-já faz tanto tempo
-que não me sento
-para refletir 
-sobre a atual poesia
+já faz 
+tanto tempo
+que não 
+me sento
+para 
+refletir 
+sobre 
+a atual 
+poesia
 ---
-então assisto um artista
-e ganho mais tempo
+então assisto 
+um artista
+e ganho 
+mais tempo
 ---
-então assisto um filme
-e não vejo a atriz
-na manhã do dia seguinte
+então assisto 
+um filme
+e não vejo 
+a atriz
+na manhã 
+do dia 
+seguinte
 ---
-ele fez mais por mim em dois dias 
-do que o meu marido 
+ele fez mais 
+por mim 
+em dois dias 
+do que o 
+meu marido 
 em dois 
 ou doze anos
 ---
-já tanto tempo
-que me sento
-e não me sinto
-um escritor
+a folha rasga ao meio 
+de produção
 ---
-já tanto tempo
-que não me vejo
-em outros espelhos
----
-a folha rasga ao meio de produção
----
-o Batman é pobre na minha cidade
+o Batman é pobre 
+na minha cidade
+mas ele existe
 ---
 lembra quando 
-eu escrevia bem?
+eu escrevia 
+bem?
 hoje salto alto
 ---
-acredito em acertar 
+acredito 
+em acertar 
 um verso 
 de primeira
 ---
 você precisa 
-de ajuda da arte 
+de ajuda 
+da arte 
 com urgência
 ---
 triagem depois da consulta
----
-eu precisava respirar algo melhor sobre você
-como eu seu que ousei sentir algo por você
-ou sei que eu não deveria sentir 
-sequer a falta de ar por você
-não basta ser asmático tem que existir amor
-eu não deveria sentir sequer um arrepio
-tudo vai piorar e estou mais calmo que ontem
-porque você está lendo hoje
-estou mais excitado hoje
-porque você vai ler amanhã
-verdade é que eu só sinto o que obsesso
-verdade é que eu só observo o que não tenho
-sequer a presença
-ou o que eu tenho em excesso
-até mesmo a ausência
-eu precisava surtar em dose dupla
-o doutor me disse o meu pulmão está bom
-e eu ainda não estou com pneumonia
-meus rascunhos não tem limite
-eu gostaria de estar dentro de você sabe
-para sair e entrar de novo e sair e entrar de novo 
-e sair e entrar de novo e sair e entrar de novo 
-e sair e entrar de novo e sair e entrar de novo 
-e sair e entrar de novo e sair e entrar de novo 
-e sair e entrar de novo e sair e entrar de novo
-e sair e entrar de novo e sair e entrar de novo 
-e sair e entrar de novo e sair e entrar de novo 
-e sair e entrar de novo e sair e entrar de novo 
-e sair e entrar de novo e sair e entrar de novo 
-e sair e entrar de novo e sair e entrar de novo 
-e sair e entrar de novo e sair e entrar de novo 
-e sair e entrar de novo e sair e entrar de novo 
-e sair e entrar de novo e sair e entrar de novo 
-e sair e entrar de novo e sair e entrar de novo 
-e sair e entrar de novo e sair e entrar de novo 
-e sair e entrar de novo e sair e entrar de novo 
-e sair e entrar de novo e sair e entrar de novo 
-e sair e entrar de novo e sair e entrar de novo 
-e sair e entrar de novo e sair e entrar de novo 
-e sair e entrar de novo e sair e entrar de novo 
-e sair e entrar de novo e sair e entrar de novo 
-e sair e entrar de novo e sair e entrar de novo 
-e sair e entrar de novo e sair e entrar de novo 
-e sair e entrar de novo e sair e entrar de novo 
-e sair e entrar de novo e sair e entrar de novo 
-e sair e entrar de novo e sair e entrar de novo 
-e sair e entrar de novo e sair e entrar de novo 
-e sair e entrar de novo e sair e entrar de novo 
-e sair e entrar de novo e sair e entrar de novo
-e sair e entrar de novo e sair e entrar de novo 
-e sair e entrar de novo e sair e entrar de novo 
-e sair e entrar de novo e sair e entrar de novo 
-e sair e entrar de novo e sair e entrar de novo
-e sair e entrar de novo e sair e entrar de novo 
-e sair e entrar de novo e sair e entrar de novo
-e sair e entrar de novo e sair e entrar de novo 
-e sair e entrar de novo e sair e entrar de novo
-e sair e entrar de novo e sair e entrar de novo 
-e sair e entrar de novo e sair e entrar de novo 
-e então nos secar com papel higiênico 
-e assistir outro episódio de Normal People
-
-- Já?
 ---
 as cores da França no seu corpo
 ---
@@ -289,20 +358,27 @@ o sentimento é cítrico
 ---
 eu senti falta do rascunho
 ---
-a tendência é o anoni
+a tendência 
+é o anoni
 mato
 ---
-nem ao que me assassinasse 
-eu saberia odiar
-
-não guardaria rancor
-sequer do meu assassino
+nem ao que me 
+assassinasse 
+eu saberia 
+odiar
 ---
-eu quero a liberdade da minha escrita
+não guardaria 
+rancor
+sequer do 
+meu assassino
+---
+eu quero a liberdade 
+da minha escrita
 ---
 nada jesustifica
 ---
-crise depressiva no meio da relação sexual
+crise depressiva no meio 
+da relação sexual
 ---
 eu sou menor que um átomo seu
 ---
