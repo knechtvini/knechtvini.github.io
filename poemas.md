@@ -1,6 +1,18 @@
 ---
 layout: default
 ---
+STATIC BLOOM
+
+Todas as pessoas por quem você já sentiu atração amorosa na vida estão chegando.
+Uma a uma.
+Em ordem de intensidade.
+Os seus maiores amores aparecem primeiro.
+Mas não é um funeral — é uma festa. A sua grande festa.
+Teoricamente, você dançaria com a primeira.
+
+Mas, por algum motivo que ninguém sabe explicar,
+você dançou apenas com a última.
+---
 os paranoicos 
 continuam 
 me perseguindo
