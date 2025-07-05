@@ -1,6 +1,8 @@
 ---
 layout: default
 ---
+A morte te convida para ficar. Você não sabe o que a resposta significa.
+---
 STATIC BLOOM
 
 Todas as pessoas por quem você já sentiu atração amorosa na vida estão chegando.
