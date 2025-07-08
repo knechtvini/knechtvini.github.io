@@ -1,6 +1,15 @@
 ---
 layout: default
 ---
+ela me pediu notícias minhas
+pensava no fim respondi
+eu não quis ela quis conversar
+então perguntei em sussurro:
+— você não leu as notícias de hoje?
+numa manchete esquecida
+“morreu na madrugada passada
+invisível”
+---
 morri invisível
 ---
 eu não sabia dizer euforia
