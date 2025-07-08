@@ -1,6 +1,12 @@
 ---
 layout: default
 ---
+eu não sabia dizer euforia
+disse feliz demais
+— feliz demais? como assim 
+feliz demais?
+o médico ofendido
+---
 A morte te convida para ficar. Você não sabe o que a resposta significa.
 ---
 STATIC BLOOM
