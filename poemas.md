@@ -1,7 +1,7 @@
 ---
 layout: default
 ---
-O Poma Continua...
+O Poema Continua...
 
 em cada acidente cotidiano
 um artista emerge
