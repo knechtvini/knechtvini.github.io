@@ -1,6 +1,11 @@
 ---
 layout: default
 ---
+O Poma Continua...
+
+em cada acidente cotidiano
+um artista emerge
+---
 ela me pediu notícias minhas
 pensava no fim respondi
 eu não quis ela quis conversar
