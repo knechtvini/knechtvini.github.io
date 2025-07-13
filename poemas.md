@@ -1,6 +1,52 @@
 ---
 layout: default
 ---
+um dia uma 
+nave 
+pousou 
+na minha frente 
+e de lá 
+saiu um ser 
+de outro mundo era uma 
+criatura verde 
+e de cara perguntei
+quem eu sou 
+e de onde eu vim
+---
+procriação água benta & gospel
+---
+VOCÊ SABIA?
+
+poeta nunca erra 
+ou é licença poética 
+ou é neologismo
+---
+no restaurante ela pergunta 
+o que vamos pedir
+e ele responde 
+o de sempre saúde 
+paz e amor
+---
+burros são aqueles que 
+entendem uma poesia 
+de primeira
+---
+você está me ofendendo 
+
+por que
+
+eu não sei
+---
+perguntei para a vida 
+qual o próximo passo 
+o moonwalk 
+ela respondeu
+---
+me separei da minha 
+namorada imaginária 
+eu não estava sendo 
+verdadeiro
+---
 O Poema Continua...
 
 em cada acidente cotidiano
