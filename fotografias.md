@@ -29,7 +29,6 @@ photos:
   - url: https://lh3.googleusercontent.com/pw/AP1GczPVrEQg3G1BRGZOThq6VEY6GdB5C5XL_lOrtU3ri7-7sH74eXpDDZZ6GQiserAJ8seXvZAWlVPl4nW2bQjLt6m5TYtKvETo1SiZwNiulJYpdMxNKDvH=w2400
   - url: https://lh3.googleusercontent.com/pw/AP1GczPK8xhTSOiWALKgt-6k19YjVA5WZpudEWJh2iG0-JPuYFwNn26EAUpQHi6629GKadStvYlOxc8CC4MLHGPA4R3YS7UU1Irh1Pj1dPyyOyB2ElN8baYv=w2400
   - url: https://lh3.googleusercontent.com/pw/AP1GczMGSE4mobEQaNuAIImkwq4YhYwe269FV4zQwkDY8Ejtn9_N96TQy91fe0sgzjv0q9wAIBJThR3UxIon5vrpVwHW3iH_yaxKliOyXsifgBXMISAj1A2z=w2400
-  - url: https://lh3.googleusercontent.com/pw/AP1GczMOCWq-PD6O2e2YFuHlwlFDTFS7aHZyH5Zbcq2M3Zy_7aBw-VhmNJ11V7vZ-2FsAr6n0SrdXouPUGXNjar3K5ZB81GT0WH2x1cPlibvGvDAW_ynuAMy=w2400
   - url: https://lh3.googleusercontent.com/pw/AP1GczOMdlN0OHHc8hXRuhtdH8xDQ5_QbUcjfNvRehWAGzm3BgVGZG0m-JUIG6FzB0BP08gUk-gReSppXQV8wxzIpwgMKTapRiNGXgm4Pb19K9WCmXg1VXpG=w2400
   - url: https://lh3.googleusercontent.com/pw/AP1GczMqqSNRFZ9p_sFZzI1C8SueN0IoQZSBWbxg5Y6U3oRSvJI2lnX8vtioRkp1WdqQJojMeS6XD5xt3FCKiy8fgiBw_SbACm74WbO1oY6NVgDtYWBL_7vS=w2400
   - url: https://lh3.googleusercontent.com/pw/AP1GczO44mhAuIMNPRrSVMXvqlyOgRo2BojwKOhDcU1EghS_XqH8bqdyKt1LGvCAPcHzOOXRUnAxmnJp8efXC3d3PwkndxscVY4dLx9f7E_ZB7Y4lq9D623D=w2400
