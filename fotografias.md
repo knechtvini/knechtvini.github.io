@@ -3,6 +3,7 @@ layout: default
 title: Fotografias
 permalink: /fotografias/
 photos:
+  - url: https://lh3.googleusercontent.com/pw/AP1GczOsm8NliW3qAANdhkxJ1QbX9LPpYQtepPH8r8mKZD8hFTYZH9MftalBBxMOFixyijlvqsq9jfTqoxWKCcUM9DmSw_dxC0sxiJPiCaRKPownxZt1RR50=w2400
   - url: https://lh3.googleusercontent.com/pw/AP1GczOlfmFUnCQHn7beM2lKRPzNHC_Jil3mrgDKjhXTKQD7fdvAVYcZfM1K-65XI1ZMz_Rt1_1dDtkbXajyJi4J29ofnEHHsaI_Y9qRfFo9XqnulBGdyQjd=w2400
   - url: https://lh3.googleusercontent.com/pw/AP1GczN0jWYL9H3mmZXsW9gsVuyA07dsMKhavtRN0yYg627Ct6mbfjn8tPQoxbUjgBJ8E4J9jf6m3n1y-MO0ZvzbE9gBP6rE1zGPfVysw7I2hxefeXjtIS5P=w2400
   - url: https://lh3.googleusercontent.com/pw/AP1GczPdvWSg4F6k3uiLuSA5yND7tOV3Gqkkf3oRUDR-bvxume-vb9bT9xXV1E8hdnp3cnLIMLAxfZhFbls2kEfQZiP6hF17x5Q6qKF_-YN1LtsOGG818nRB=w2400
