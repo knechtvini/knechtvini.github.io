@@ -12,6 +12,8 @@ nas Fotografias do site
 Bye.
 Ah, foi o ChatGPT que escreveu. 
 ---
+I'm desperate for Kieran Culkin's hair.
+---
 um dia uma 
 nave 
 pousou 
