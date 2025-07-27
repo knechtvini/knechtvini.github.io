@@ -3,7 +3,8 @@ layout: default
 ---
 Hi! Passando aqui para dizer que
 a capa oficial de
-— Vinícius Knecht, "Amarelando blue". (Editora Bestiário; 1ª edição [2025])
+— Vinícius Knecht, "Amarelando blue". 
+(Editora Bestiário; 1ª edição [2025])
 está nas imagens do site
 ---
 um dia uma 
