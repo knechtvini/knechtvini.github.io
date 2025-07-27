@@ -1,11 +1,16 @@
 ---
 layout: default
 ---
-Hi! Passando aqui para dizer que
-a capa oficial de
-— Vinícius Knecht, "Amarelando blue". 
-(Editora Bestiário; 1ª edição [2025])
-está nas imagens do site
+Oi, sumidos! 
+Só passando pra avisar 
+— com zero modéstia — 
+que a capa oficial de
+Vinícius Knecht, "Amarelando blue"
+(Editora Bestiário; 1ª edição, 2025)
+já está brilhando (ou desbotando com classe) 
+nas Fotografias do site 
+Bye.
+Ah, foi o ChatGPT que escreveu. 
 ---
 um dia uma 
 nave 
