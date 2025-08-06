@@ -1,6 +1,10 @@
 ---
 layout: default
 ---
+LANÇAMENTO EM ESTRELA -RS
+Amarelando blue
+17.08.2025
+---
 Oi, sumidos! 
 Só passando pra avisar 
 — com zero modéstia — 
