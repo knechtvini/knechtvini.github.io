@@ -1,9 +1,9 @@
 ---
 layout: default
 ---
-LANÇAMENTO EM ESTRELA -RS
-Amarelando blue
+LANÇAMENTO Amarelando blue ESTRELA -RS
 17.08.2025
+Menos informações em breve.
 ---
 Oi, sumidos! 
 Só passando pra avisar 
