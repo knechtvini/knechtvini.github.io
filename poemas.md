@@ -1,7 +1,9 @@
 ---
 layout: default
 ---
-LANÇAMENTO Amarelando blue ESTRELA -RS
+LANÇAMENTO 
+Amarelando blue 
+ESTRELA -RS
 17.08.2025
 Menos informações em breve.
 ---
