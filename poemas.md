@@ -3,9 +3,9 @@ layout: default
 ---
 LANÇAMENTO 
 Amarelando blue 
-ESTRELA -RS
+DOMINGO
 17.08.2025
-Menos informações em breve.
+ESTRELA -RS
 ---
 Oi, sumidos! 
 Só passando pra avisar 
