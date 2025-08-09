@@ -23,6 +23,13 @@ nas Fotografias do site
 Bye.
 Ah, foi o ChatGPT que escreveu. 
 ---
+e eu que chutei um futuro diferente
+---
+acho que o que te faz única 
+é a única coisa que sei achar
+---
+pelo menos vou voar 3,8 segundos
+---
 levofloxacino alguém vai na sua festa? só o Paul McCartney eu nunca sei quando eu tô falando sério escrever poesia para ela comemorar nem parece que eu tô com uma pneumonia bacteriana passamos e o meu olhar entrou no seu Times New Roman parece diferente aqui I'm desperate for Kieran Culkin's hair com pneumonia comprando um Adidas eu sinto que estou flutuando você está bêbado então você não precisava ter respondido “eu sou todos os dias que você escolhe ignorar” passamos e o meu olhar entrou no seu eu nunca te tocaria tanto assim 500mg
 ---
 I'm desperate for Kieran Culkin's hair.
