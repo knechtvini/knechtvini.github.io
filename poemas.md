@@ -1,11 +1,16 @@
 ---
 layout: default
 ---
-LANÇAMENTO 
-Amarelando blue 
+CHEIRIN DE CAFÉ E POESIA
 DOMINGO
-17.08.2025
-ESTRELA -RS
+17.08.25
+LANÇAMENTO DO LIVRO
+AMARELANDO BLUE
+DE VINÍCIUS KNECHT
+14:30 ÀS 18:30
+NA CHEIRIN BÃO
+R. TIRADENTES, 232 - SALA 03 
+CENTRO, ESTRELA - RS
 ---
 Oi, sumidos! 
 Só passando pra avisar 
