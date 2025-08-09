@@ -23,6 +23,14 @@ nas Fotografias do site
 Bye.
 Ah, foi o ChatGPT que escreveu. 
 ---
+estou no refrão de uma arma
+---
+por que tudo gira em torno 
+do meu fracasso que projeto 
+no prédio vizinho?
+---
+por que tudo gira em torno de 23h?
+---
 e eu que chutei um futuro diferente
 ---
 acho que o que te faz única 
