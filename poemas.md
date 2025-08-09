@@ -23,6 +23,10 @@ nas Fotografias do site
 Bye.
 Ah, foi o ChatGPT que escreveu. 
 ---
+“Homem perde tragicamente o amor da sua vida e,
+no mesmo dia, recebe inesperadamente uma fortuna 
+de 1 bilhão de dólares”
+---
 tá aí uma obsessão saudável
 ---
 estou no refrão de uma arma
