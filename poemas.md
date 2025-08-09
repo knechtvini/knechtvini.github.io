@@ -23,9 +23,11 @@ nas Fotografias do site
 Bye.
 Ah, foi o ChatGPT que escreveu. 
 ---
+tá aí uma obsessão saudável
+---
 estou no refrão de uma arma
 ---
-roteirista em empresa Globo Rural
+roteirista em empresa Programa Globo Rural
 ---
 por que tudo gira em torno 
 do meu fracasso que projeto 
