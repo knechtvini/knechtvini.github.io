@@ -25,6 +25,8 @@ Ah, foi o ChatGPT que escreveu.
 ---
 estou no refrão de uma arma
 ---
+roteirista em empresa Globo Rural
+---
 por que tudo gira em torno 
 do meu fracasso que projeto 
 no prédio vizinho?
