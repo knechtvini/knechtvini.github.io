@@ -1,6 +1,12 @@
 ---
 layout: default
 ---
+DOMINGO 17.08.2025
+LANÇAMENTO
+LIVRO AMARELANDO BLUE
+DE VINÍCIUS KNECHT
+14:30 ÀS 18:30
+---
 Oi, sumidos! 
 Só passando pra avisar 
 — com zero modéstia — 
