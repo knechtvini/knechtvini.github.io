@@ -1,6 +1,12 @@
 ---
 layout: default
 ---
+queria andar na escuridão sem medo
+
+você nunca teve medo do escuro
+
+mas a escuridão teme a mim
+---
 DOMINGO 17.08.2025
 LANÇAMENTO
 LIVRO AMARELANDO BLUE
