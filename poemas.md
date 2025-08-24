@@ -2,6 +2,7 @@
 layout: default
 ---
 KNECHT VERSÃO BUKOWSKI
+
 poha você passou 
 todo esse tempo 
 fingindo que escrevia
