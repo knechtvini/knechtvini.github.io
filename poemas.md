@@ -1,6 +1,12 @@
 ---
 layout: default
 ---
+imagino que você 
+esteja fumando agora
+e escrevendo 
+as melhores coisas
+da minha vida
+---
 CONTEÚDO
 
 inté li gente viu
