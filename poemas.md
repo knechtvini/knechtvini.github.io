@@ -1,6 +1,28 @@
 ---
 layout: default
 ---
+KNECHT VERSÃO BUKOWSKI
+poha você passou 
+todo esse tempo 
+fingindo que escrevia
+me enganou 
+enganou a si mesmo hein
+agora não adianta
+cada linha sua é lixo ex-gosto
+apaga rasga joga no privado
+você sempre vai ser pouco
+mesmo que alguém morra 
+jurando o contrário
+bate uma duas ou três
+e dorme com a mão suja
+um belo fracassado 
+que nem sabe 
+o que o fracasso é
+mentiroso desde que
+mentiu pela primeira vez
+condenado a escrever mal
+até a última poha 
+---
 queria andar na escuridão sem medo
 
 você nunca teve medo do escuro
