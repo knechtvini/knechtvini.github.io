@@ -1,8 +1,8 @@
 ---
 layout: default
 ---
-imagino que você 
-esteja fumando agora
+imagino que agora 
+você esteja fumando
 e escrevendo 
 as melhores coisas
 da minha vida
