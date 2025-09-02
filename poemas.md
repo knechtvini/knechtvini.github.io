@@ -1,6 +1,13 @@
 ---
 layout: default
 ---
+o som foi idêntico a um peido
+então apertei a almofada outra 
+vez para deixar claro que não 
+foi peido todos pensaram que
+eu peidei duas vezes
+é assim que eu vejo a vida
+---
 CONTEÚDO
 
 inté li gente viu
