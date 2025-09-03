@@ -1,6 +1,10 @@
 ---
 layout: default
 ---
+Acho que eu preciso sentar e rever a minha vida.
+Estou sentado. 
+Que merda de cadeira que não gira.
+---
 o som foi idêntico a um peido
 então apertei a almofada outra 
 vez para deixar claro que não 
