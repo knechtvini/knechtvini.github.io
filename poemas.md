@@ -1,6 +1,10 @@
 ---
 layout: default
 ---
+hoje em dia encontrar 
+uma mulher que queira 
+ter filho é um parto
+---
 Acho que eu preciso sentar e rever a minha vida.
 Estou sentado. 
 Que merda de cadeira que não gira.
