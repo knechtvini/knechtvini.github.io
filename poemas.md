@@ -1,6 +1,18 @@
 ---
 layout: default
 ---
+SOBRE VIVÊ
+
+um artista não deveria 
+estar perdendo tanto 
+tempo em outra 
+realidade
+---
+já imaginou um 
+mundo onde 
+tudo fosse 
+real?
+---
 eu quero que você saiba 
 que eu nunca te escrevi 
 antes
