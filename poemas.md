@@ -1,6 +1,23 @@
 ---
 layout: default
 ---
+eu quero que você saiba 
+que eu nunca te escrevi 
+antes
+---
+quem foi que te fotografou Mariana?
+---
+poetas na prateleira dos filósofos
+---
+nenhum 
+crítico 
+tatuaria 
+“crítico”
+---
+não tem um Adidas 
+que preste nesta loja 
+capitalismo de merda
+---
 hoje em dia 
 encontrar 
 uma mulher 
