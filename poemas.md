@@ -1,6 +1,12 @@
 ---
 layout: default
 ---
+SEM ANOS DE SOLIDÃO
+
+você achou mesmo que
+não existiria um art
+insta na sua vida
+---
 SOBRE VIVÊ
 
 um artista não deveria 
