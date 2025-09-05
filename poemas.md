@@ -11,8 +11,8 @@ SOBRE VIVÊ
 
 um artista não deveria 
 estar perdendo tanto 
-tempo em outra 
-realidade
+tempo em outras 
+realidades
 ---
 já imaginou um 
 mundo onde 
