@@ -1,6 +1,21 @@
 ---
 layout: default
 ---
+eu queria muito cursar
+eu queria saber tocar
+eu queria falar
+eu queria tanto conhecer
+---
+você parou para escrever que
+---
+por que você não está fotografando 
+e barra ou fazendo uma selfie? eu 
+não sou bom o bastante?
+---
+você acha mesmo que 
+existe essa coisa de 
+“amor”?
+---
 SEM ANOS DE SOLIDÃO
 
 você achou mesmo que
