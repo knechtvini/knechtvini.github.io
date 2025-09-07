@@ -1,6 +1,8 @@
 ---
 layout: default
 ---
+por que só valorizam o artista depois que ele nasce?
+---
 amigo de verdade 
 a gente conta 
 nas asas
