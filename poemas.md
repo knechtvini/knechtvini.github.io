@@ -3,7 +3,7 @@ layout: default
 ---
 Por que só reconhecem o artista depois que ele nasce?
 ---
-amigo de verdade 
+amigos de verdade 
 a gente conta 
 nas asas
 ---
