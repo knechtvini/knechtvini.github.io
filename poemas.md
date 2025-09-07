@@ -3,35 +3,28 @@ layout: default
 ---
 Por que só reconhecem o artista depois que ele nasce?
 ---
-amigos de verdade 
-a gente conta 
+amigos de verdade a gente conta 
 nas asas
 ---
-eu poderia aparar 
-a sua franja até 
-não poder 
-mais
+eu poderia aparar a sua franja 
+até não poder mais
 ---
-eu poderia muito 
-bem ser do bem
----
-eu poderia muito 
-bem ser ruim
+eu poderia muito bem 
+ser ruim com poder
 ---
 eu queria muito cursar
 eu queria saber tocar
 eu queria falar
 eu queria tanto conhecer
 ---
-você parou para escrever que
+você já parou para escrever que
 ---
 por que você não está fotografando 
-e barra ou fazendo uma selfie? eu 
-não sou bom o bastante?
+e/ou fazendo uma selfie? 
+eu não sou bom o bastante?
 ---
-você acha mesmo que 
-existe essa coisa de 
-“amor”?
+você acha mesmo que existe 
+essa coisa de “amor”?
 ---
 SEM ANOS DE SOLIDÃO
 
@@ -46,10 +39,8 @@ estar perdendo tanto
 tempo em outras 
 realidades
 ---
-já imaginou um 
-mundo onde 
-tudo fosse 
-real?
+já imaginou um mundo onde 
+tudo fosse real?
 ---
 eu quero que você saiba 
 que eu nunca te escrevi 
