@@ -1,6 +1,21 @@
 ---
 layout: default
 ---
+amigo de verdade 
+a gente conta 
+nas asas
+---
+eu poderia aparar 
+a sua franja até 
+não poder 
+mais
+---
+eu poderia muito 
+bem ser do bem
+---
+eu poderia muito 
+bem ser ruim
+---
 eu queria muito cursar
 eu queria saber tocar
 eu queria falar
