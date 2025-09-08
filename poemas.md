@@ -1,6 +1,15 @@
 ---
 layout: default
 ---
+“Nada neste mundo pode substituir a persistência. 
+O talento não pode. Nada é mais comum do que 
+homens talentosos fracassados.” 
+(Calvin Coolidge, 1925)
+
+“Na minha vida, escrever será sempre prioridade. 
+E todo o resto será escrito.” 
+(Vinícius Knecht, 2025)
+---
 Por que só reconhecem o artista depois que ele nasce?
 ---
 amigos de verdade a gente conta 
