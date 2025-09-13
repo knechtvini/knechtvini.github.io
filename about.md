@@ -15,4 +15,4 @@ Em 2025, Vinícius lançou seu terceiro livro, Amarelando blue (Editora Bestiár
 <br>
 ### Contato  
 📧 Email: vknecht@gmail.com  
-📸 Instagram: @vaogogo
+📸 Instagram: @knechtvinicius
