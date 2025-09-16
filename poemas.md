@@ -1,6 +1,22 @@
 ---
 layout: default
 ---
+liguei o fogo
+as panelas 
+pegaram fogo
+é assim que eu vejo a vida
+---
+por que morrer 
+se vamos viver
+do mesmo?
+---
+poesia mais econômica
+---
+de onde você tira tudo isso?
+
+é aí que eu mostro 
+meu melhor sorriso
+---
 “Nada neste mundo pode substituir a persistência. 
 O talento não pode. Nada é mais comum do que 
 homens talentosos fracassados.” 
