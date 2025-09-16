@@ -1,6 +1,25 @@
 ---
 layout: default
 ---
+viu só o que você me fez falar? pede desculpa
+---
+A PREOCUPAÇÃO
+
+fiquei sabendo que 
+estou com câncer 
+você está bem?
+---
+PAIS E FILHOS
+
+como você pode ser 
+tão ingrato? 
+a gente paga até 
+o seu Diersmann
+---
+é assustador e já não surpreende
+que alguém só exista de fato
+se está numa rede social
+---
 liguei o fogão
 as panelas 
 pegaram fogo
