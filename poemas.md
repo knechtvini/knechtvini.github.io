@@ -1,6 +1,13 @@
 ---
 layout: default
 ---
+alguém acendeu a lua 
+de forma tão exagerada
+eu poderia reclamar 
+de qualquer coisa
+agora que estou sem você
+como nunca estive antes
+---
 viu só o que você me fez falar? pede desculpa
 ---
 A PREOCUPAÇÃO
