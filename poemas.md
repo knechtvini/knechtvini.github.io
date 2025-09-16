@@ -1,7 +1,7 @@
 ---
 layout: default
 ---
-liguei o fogo
+liguei o fogão
 as panelas 
 pegaram fogo
 é assim que eu vejo a vida
