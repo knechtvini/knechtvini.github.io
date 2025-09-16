@@ -40,7 +40,7 @@ poesia mais econômica
 ---
 de onde você tira tudo isso?
 
-é aí que eu mostro 
+é só aí que eu mostro 
 meu melhor sorriso
 ---
 “Nada neste mundo pode substituir a persistência. 
