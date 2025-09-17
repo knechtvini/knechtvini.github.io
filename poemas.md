@@ -16,21 +16,9 @@ fiquei sabendo que
 estou com câncer 
 você está bem?
 ---
-PAIS E FILHOS
-
-como você pode ser 
-tão ingrato? 
-a gente paga até 
-o seu Diersmann
----
 é assustador e já não surpreende
 que alguém só exista de fato
 se está numa rede social
----
-liguei o fogão
-as panelas 
-pegaram fogo
-é assim que eu vejo a vida
 ---
 por que morrer 
 se vamos viver
@@ -40,8 +28,8 @@ poesia mais econômica
 ---
 de onde você tira tudo isso?
 
-é só aí que eu mostro 
-meu melhor sorriso
+e é só aí que eu mostro 
+meu único melhor sorriso
 ---
 “Nada neste mundo pode substituir a persistência. 
 O talento não pode. Nada é mais comum do que 
