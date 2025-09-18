@@ -1,6 +1,134 @@
 ---
 layout: default
 ---
+um poeta pode ser 
+extremamente perigoso
+nas suas últimas
+semanas
+---
+quando estou escrevendo demoro mais para gozar
+---
+superpoder já tenho invisibilidade 
+só não sou nenhum super-herói
+---
+pretensioso seria
+seguir carreira solo 
+com a mesma banda
+---
+BRAZIL
+
+criança pedindo dinheiro
+em semáforo no Acre
+gera revolta
+nas redes sociais
+
+“este vagabundo deveria estar trabalhando”
+---
+o que choca menos
+a sociedade que
+um galinha?
+---
+você ainda fuma? 
+
+não
+só quando eu tento parar
+---
+risível se opor
+ao humor chorável 
+se rir da delinquência
+---
+eu sou escritor
+
+hum e você ganha dinheiro com isso?
+
+sim inclusive alcancei
+o meu primeiro milhão 
+com a poesia
+---
+com estes passinhos o tempo não praça
+---
+CAPITALISMO
+
+até o meu último fio de cabelo
+vou comprar o shampoo mais caro
+da farmácia
+---
+CAPITALISMO
+
+pode ir passando tudo rápido
+
+pode me matar 
+mas por favor 
+eu imploro
+não leve meu iPhone
+---
+Mario pelo menos assinava
+as provas de matemática 
+eu errava ou esquecia
+---
+SMARTPHONES
+
+amei a companhia de vocês 
+a meia companhia de vocês
+---
+ah vai ler um Mário 
+
+(destratou)
+
+Mario não tem acento
+
+(corrigiu)
+---
+EUA
+
+suspeito por andar embriagado
+em sua bicicleta é preso nos EUA 
+nesta quarta-feira polícia alega
+que o sujeito pego em flagrante 
+era preto
+---
+JIM & PAM
+
+entre quatro paredes 
+quebrando a quarta parede
+---
+ainda não sei o estado
+que vou estar depois 
+de morto
+---
+estou no controle mas ele está 
+desconectado do videogame 
+sem eu saber
+é assim que eu vejo a vida
+---
+desistiu dos seus sonhos?
+
+acho que eu só parei de ser 
+tão ambiciosa sabe
+---
+artistas locais levam
+os outros artistas 
+locais para o pessoal
+---
+escreveria esta poesia Rimbaud escreveu antes
+---
+amiga você terminou com o Vinícius? 
+você não o amava?
+
+eu deixei para a próxima
+---
+um dia uma nave pousou
+na minha frente e de lá 
+saiu um ser de outro mundo 
+era uma criatura verde 
+e de cara perguntei 
+quem eu sou e de onde eu vim
+---
+filmaços de cigarros
+---
+inimigo não declarado ainda
+pode ser seu amigo declare-se
+---
 AGORA QUE EU PASSARINHO…
 
 acho que agora que ele morreu 
