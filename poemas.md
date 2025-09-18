@@ -1,6 +1,104 @@
 ---
 layout: default
 ---
+eu não ronco eu passo o trator
+nos pesadelos
+---
+o cosmos nos diz que somos
+mais conectados com a internet 
+do que com o Universo
+---
+o louco inventa 
+um carro voando
+o gênio cria
+o carro que voa
+---
+cu que não tem assento
+---
+pessoas nunca perdem
+a oportunidade de falar mal 
+dos melhores amigos
+para estranhos em festas
+---
+temo que teimo com teimosos
+---
+pessoas limpando mais suas casas 
+do que tomando banho
+---
+no restaurante ela pergunta
+o que vamos pedir e ele responde
+o de sempre saúde paz e amor
+---
+nem tudo é sobre
+a gente às vezes
+é literalmente 
+tudo
+sobre a gente
+---
+AQUI A GENTE FALA ASSIM
+
+uma goma de bergamota 
+no chão da escola 
+uma goma de bergamota 
+no chão da escola 
+abandonada esmagada 
+parecia muito
+mas muito 
+com um camarão
+e isso foi a coisa
+mais poética
+que eu poderia ver no momento 
+que eu poderia escrever no momento
+e eu não estou ficando louco 
+imagina
+---
+please welcome back to the program THE STROKES
+---
+ser motivo das gargalhadas das amigas
+da sua namorada
+---
+não pegaria muito bem para mim 
+nossa história ser escrita por você
+---
+eu já li o texto três vezes
+e ainda não entendi
+
+eu só precisei ler uma vez
+para não entender
+---
+se formos apenas
+um conjunto de átomos 
+aleatórios no universo 
+então existir faz todo o sentido
+---
+rinietzsche da poeira das bibliotecas
+---
+apetite de ler devorando mangás
+---
+a reunião social
+a crise de ansiedade 
+se trancar 
+no banheiro local 
+respirar
+sentir 
+respirar 
+sentir
+odores
+---
+aquele aposentado que tem mais ambição
+---
+custou Karl ser Marx? 
+---
+a única coisa que não sei poupar 
+é dinheiro
+---
+quando um artista tem 
+um tempinho livre
+ele faz mais arte
+---
+você não precisa lidar comigo
+só quero ser lido
+---
 uma crítica negativa? 
 por fim alguém me entendeu
 ---
