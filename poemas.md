@@ -1,6 +1,105 @@
 ---
 layout: default
 ---
+se você cruzasse hoje 
+com a sua esposa 
+na rua
+você a cumprimentaria?
+---
+a vaca estava o 
+tempo todo re 
+moendo o
+past
+---
+andei pensando melhor em tudo
+o que você me disse e acho que 
+realmente
+eu tenho toda a razão
+---
+calado você é um poeta 
+
+sim
+---
+preferi outro caminho 
+peguei um desvio 
+de conduta
+---
+conservadorismos modernos con tradições
+---
+ao persistirem alguns médicos 
+as consultas poderão ser 
+sintomáticas
+---
+está na Caras que o hype não vale a pena
+---
+saiba como enlouquecer um homem entre
+quatro paredes exiba Interestelar
+do Christopher Nolan para ele
+---
+procriação água benta & gospel
+---
+o sucesso estava tão bom
+que não vi o tenho passar
+---
+como não deixar para depois
+se o capitalismo não deixa
+fazer agora
+---
+problemas com as drogas? 
+não se preocupe
+nós podemos lhe ajudar 
+com um preço
+muito mais em conta
+---
+o pó criticando a fumaça
+---
+por que pisar em uma peça de ego dói tanto
+---
+a natureza humana 
+promove condições 
+de trabalho 
+visando sempre
+
+O VERDE
+---
+este poeminho se chama
+LEONARDO DICAPRIO
+
+o sim você já tem
+---
+Charles Bukowski elitismo
+literário com alto teor 
+alcoólico
+---
+você consegue deixar o sexo mais cristão?
+---
+meu cachorro pensa que é cachorro
+---
+VOCÊ SABIA?
+
+poeta nunca erra 
+ou é licença
+poética ou é
+neologismo
+---
+papai é domingo calvo
+---
+prova de vida é uma prova
+com consulta
+---
+esta é a minha letra? melhor que
+Champagne Supernova do Oasis
+---
+a estrela mais próxima da Terra é o Sol 
+mentira
+é o David Bowie
+---
+inventar a roda aprender
+a manipular o fogo desbravar
+os sete mares e foder
+---
+você é um desses que não me desce
+---
 eu não ronco eu passo o trator
 nos pesadelos
 ---
