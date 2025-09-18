@@ -1,6 +1,10 @@
 ---
 layout: default
 ---
+- O que você está fazendo?
+- Ouvindo Beatles.
+- E está gostando?
+---
 alguém acendeu a lua 
 de forma tão exagerada
 eu poderia reclamar 
