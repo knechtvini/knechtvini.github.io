@@ -1,6 +1,151 @@
 ---
 layout: default
 ---
+CONFORTO PARA UMA VELHINHA 
+DE NOVENTA E NOVE ANOS 
+DE IDADE
+
+“a senhora é muito forte 
+vai viver até os cem anos”
+---
+desculpa por você me aguentar
+---
+Vinícius é encontrado apaixonado
+em sua casa
+aos trinta e três anos de idade
+por causas naturais
+---
+estava no 
+fundo do poço 
+e lá também
+havia uma 
+igreja
+---
+ele é tão ridículo me convidou 
+para sair de novo acredita
+
+e o que você respondeu 
+
+que sim né
+---
+posso não ser do tipo
+sentimental mas tenho 
+piscina em casa
+---
+PAUTA
+
+homem mostra seu 
+órgão genital 
+para mulher 
+em restaurante 
+é que ela estava 
+muito apaixonada
+e pediu para ver
+---
+não se preocupe se o nosso primeiro 
+encontro for uma tragédia eu te darei
+outra oportunidade
+
+e se o segundo também for 
+---
+gostos se discutem
+---
+GERMANO
+
+impressionante como nossos bichinhos 
+sentem quando estamos tristes
+outro dia flagrei meu gato
+ligando para o meu ps 
+pspsiquiatra
+---
+olha filho ele está fazendo arte na praça
+
+acho que ele tá passando vergonha mamãe
+---
+hoje é um dia muito especial 
+você vai morrer e nós vamos 
+celebrar a vida
+---
+bocejou na missa 
+missão cumprida
+---
+Kieran Culkin você
+poderia ser meu amigo?
+e falar em português
+---
+perguntei para 
+a vida qual
+o próximo passo
+o moonwalk 
+ela respondeu
+---
+estou na lista dos 
+sete bilhões melhores
+poetas do mundo
+---
+a melancolia é boa de cama
+---
+desculpa eu pensei sem falar
+---
+me separei
+da minha namorada 
+imaginária
+eu não estava 
+sendo verdadeiro
+---
+SLOGAN PARA PSICÓLOGOS
+
+“Eu me devo explicações.”
+---
+o que o gato diria 
+se pudesse falar
+perguntou o cachorro
+---
+A MULHER-MARAVILHA
+
+seria vergonhoso 
+salvar o mundo 
+mal vestida
+---
+você gosta de poesia? é a única coisa
+que eu sei fazer na vida
+
+não
+---
+APLICATIVO DE NAMORO
+
+“no cardápio parecia maior”
+---
+coincidências para dizer que acertei
+---
+Vinícius não fique tão triste 
+nós cogitamos lhe convidar
+---
+cigarro traga poesia
+---
+eu sou nova neste ramo 
+de flores
+---
+o amor faz até uma cebola chorar
+---
+você é tão linda
+
+que gentil são meus olhos
+---
+as pessoas não têm mais
+medo de se relacionar 
+elas têm fobia
+---
+TERROR MODERNO
+
+Eu Sei O Que Vocês Fizeram No Amor Passado
+---
+certo dia flagrei minha dor 
+na cama com meu melhor poema
+---
+motorista flagrado bêbado 
+enquanto não dirigia
+---
 você só diz eu te amo entre “aspas”
 ---
 a companhia pareceu 
