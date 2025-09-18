@@ -1,8 +1,121 @@
 ---
 layout: default
 ---
-felicidade
-não traz dinheiro
+ELOGIOS CONTEMPORÂNEOS
+
+“ele é tão artista”
+---
+é crédito ou plágio?
+---
+o IML sequestrou o meu corpo 
+---
+mais biblio
+menos bíblia
+---
+POPULAR
+
+camisa
+do seu time 
+em promoção 
+por 549,99
+---
+CARTA DO DESCOBRIMENTO
+
+meu deus plagiei 
+Pero Vaz
+de Caminha
+---
+chefe eu poderia trabalhar 
+em dobro amanhã?
+é que minha vida pessoal 
+está uma merda
+---
+ISTO NÃO É POESIA
+---
+a vida
+é uma piada 
+e por isso 
+vale a pena
+---
+louco
+não medicado 
+tem a droga 
+da razão
+---
+AMBIGUIDADE
+
+não há 
+tantos 
+inimigos 
+assim
+---
+VEÍCULOS
+
+artista rebaixado 
+por veículos 
+de imprensa
+---
+não sou preguiçoso não estou 
+deprimido sequer doente 
+apenas estou encamado
+---
+CORTA PARA:
+INTERIOR. APARTAMENTO DE ASSASSINO – NOITE
+
+ASSASSINO. Não somos tão terríveis quanto as as- 
+sassinadas pensavam.
+---
+Eu acho que a gente podia...
+
+CORTA PARA
+INTERIOR. VOZ DELA – NOITE
+
+VOZ DELA. Eu só consigo te ver como amigo, Vinícius...
+---
+a vaga foi pro bêjo
+---
+como estava o funeral do Vinícius 
+
+não tinha nem wi-fi você acredita
+---
+amar não é decoreba
+---
+Querido,
+Como você está? 
+Eu havia esquecido 
+Completamente 
+Da sua existência
+
+Ass: I. W.
+---
+ladies and gentleman it’s THE STROKES
+---
+é impressionante como você é bom
+naquilo que você faz vejo que estuda 
+muito trabalha duro parece determinado 
+até mesmo obcecado mas eu lhe 
+pergunto qual é o segredo?
+
+100% Jesus
+---
+Maria dizia 
+eu te amo 
+para Pedro
+que respondia 
+para Paulo
+---
+tenho sobrado pra cachorro
+---
+CONTINHO DE TERROR
+
+um morto senta 
+na praça 
+afinal de contos 
+não dá para
+lhe seguir
+o tempo todo
+---
+felicidade não traz dinheiro
 ---
 delinquente cai
 em golpe das fake news 
