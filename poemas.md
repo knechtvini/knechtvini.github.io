@@ -1,6 +1,51 @@
 ---
 layout: default
 ---
+PLOT TWIST
+
+no labirinto da memória 
+labirintite 
+então estou fugindo
+do Jack Nicholson
+---
+o que eu não estou fazendo aqui? 
+---
+tudo tão fútil e tão especial
+---
+POESIA CAUSA CÂNCER DE PULMÃO
+
+POESIA ENVELHECE 
+
+POESIA BROCHA 
+
+POESIA SOFRE 
+
+POESIA ADOECE 
+
+POESIA INFARTA 
+
+POESIA MATA
+---
+leia um livro agora 
+senão você vai morrer
+---
+homem é solto
+após pagar 
+aliança
+de 15 mil
+---
+benzedeira ou benzetacil 
+ver preço pesquisar
+---
+você está me escondendo alguma coisa 
+
+é só uma aliança amor
+
+você vai me pedir em casamento 
+eu não acredito
+
+uma aliança com o partido comunista amor
+---
 REDE DE CASA
 
 notarão seu sumiço 
