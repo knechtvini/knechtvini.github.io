@@ -1,6 +1,127 @@
 ---
 layout: default
 ---
+politicamente correto não leva humor a sério
+---
+mais receio que humor
+---
+na aula de hoje trataremos 
+do discernimento 
+necessário para distinguir
+o politicamente incorreto do 
+humor apropriado por movimentos 
+de extrema-direita
+---
+cheguei em um velório
+me perguntaram se eu estava
+na lista de convidados
+---
+não é desemprego é só um isolamentinho domiciliar
+---
+filme aborda história de artista gaúcho poeta que
+era admirado na rua onde morava pelo fato de não 
+trabalhar e fazer muito barulho
+---
+TUDO GOSTOSO – RECEITA BELO SIMPLES E FOFO
+
+Ingredientes (1 poção)
+
+1 e como isso te faz sentir? vamos explorar isso melhor 
+2 me fale mais sobre isso o que você acha que 
+isso significa para você? 
+isso faz sentido para você?
+1 perceba como seu corpo reage a isso o que você pode 
+aprender com essa experiência? você já passou por algo parecido antes?
+4 o que você diria para um amigo na mesma situação?
+você está se cobrando demais? a mudança começa
+com pequenos passos o que está sob seu controle nessa situação? 
+1 seu pensamento está baseado em fatos ou suposições?
+3 o passado não pode ser mudado mas podemos ressignificá-lo 
+autocuidado não é egoísmo
+
+Modo de despreparo 33 anos
+---
+Vinícius você já declarou que busca o reconhecimento 
+e que sempre se sentiu invisível no meio artístico 
+mas o que você faz para mudar isso?
+
+bem recentemente eu aumentei
+o tamanho da minha letra
+---
+todas as vozes que eu ouço 
+na minha cabeça garantem
+eu não sou louco
+---
+já tenho vergonha de ler
+o que estou escrevendo 
+neste exato poema
+---
+parece estar tudo bem até eu 
+desconfiar que está apenas 
+parecendo
+---
+viria ao meu funeral se eu
+a convidasse pessoalmente?
+---
+ele não é bom ator ele só é desinibido
+---
+se Deus existisse hoje
+sem terapia Ele seria 
+Ateu
+---
+paga mais caro pela pirataria 
+do que pagaria ao próprio artista
+---
+a alma saiu para comprar cigarro
+---
+ursinho Tédio
+---
+as noites na abalada
+---
+não sou a pessoa
+mais solitária do 
+mundo graças aos 
+ácaros que vivem
+dentro do meu 
+travesseiro
+---
+80% dos desastres poéticos
+ocorrem por falas humanas
+---
+fazem de tudo para não fazer nada
+---
+psicanalista cobra por explicações
+---
+pinturas nunca serão ex tintas
+---
+conheci o amor da minha vida no
+iPhone 12
+---
+eu sou o Banksy
+---
+o psicanalista vai lhe ajudar 
+a contar todos os motivos que 
+te fazem sofrer sem motivos 
+por 200 contos
+---
+criatividade não é prática 
+criatividade não é prática 
+criatividade não é prática
+
+o que você está fazendo? 
+
+aperfeiçoando minha escrita 
+
+repetindo a mesma frase?
+---
+estou em todas as 
+bancas da cidade 
+bancando
+
+O IDIOTA
+---
+você acredita em Zeus?
+---
 se você cruzasse hoje 
 com a sua esposa 
 na rua
