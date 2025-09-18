@@ -1,6 +1,146 @@
 ---
 layout: default
 ---
+que que você anda fazendo 
+por que você fala tanto
+em patrulha como você é 
+burro cara
+que poesia absurda são os 
+seus leitores
+ou é a sua própria arte 
+o seu serviço
+de vigilância você escreve
+de uma maneira muito burra
+---
+e o final e o final
+todos nós sabemos
+um novo começo 
+se não para nós 
+para os outros
+---
+bom caminhar 
+ao seu lado 
+porque você 
+faz pausas
+e me ensina 
+o que é
+correr 
+a favor do tempo
+---
+a voz veio 
+das nuvens 
+fim da linha 
+poeta
+e então 
+subi 
+disfarçado 
+ainda assim 
+desconfiado
+---
+Vinícius Knecht o que é a poesia? 
+
+a poesia está em todas as artes
+a poesia está na arquitetura na literatura na música 
+na dança no cinema no teatro nas artes plásticas nas 
+esculturas nas pinturas nos desenhos a poesia é a 
+produção mesmo que inconsciente de obras formas ou 
+objetos a poesia é não apenas a expressão da subjetividade 
+humana mas a explicação ou a mera interpretação da mesma
+---
+o importante é dar
+o último passo
+---
+ABUJAMRA
+Vinícius Knecht o que é a poesia?
+
+VINÍCIUS
+é o dever de ver é o observar
+o reparar reparar para observar 
+e reparar para consertar
+
+ABUJAMRA
+Vinícius o que é a poesia?
+
+VINÍCIUS
+hum expressar o que ainda não foi expresso 
+e impresso anotar o que não foi notado
+
+ABUJAMRA
+o que é… a poesia?
+
+VINÍCIUS
+certo poesia são partículas de luz 
+e partículas mensageiras fótons 
+e glúons
+
+ABUJAMRA
+você vem com essa para cima de mim?
+
+(risos)
+
+vem cá e me dá um abraço
+---
+por que você fez isso? sério
+
+porque... você sabe... 
+acredito que ninguém pensaria 
+que eu faria
+---
+na escuridão do atempo
+por que é escuro à noite
+os minutos finais da juventude 
+a eternidade
+os minutos finais da coragem 
+o medo
+os minutos finais dos pensamentos 
+as lembranças
+os minutos finais das lembranças 
+última visão
+os minutos finais do amor 
+o cinema
+os minutos finais do silêncio 
+os pensamentos
+os minutos finais da história 
+o tempo
+os minutos finais do medo 
+a coragem
+os minutos finais da eternidade 
+a juventude
+os minutos finais do cinema 
+o amor
+última visão noite ele diz 
+noite ela diz 
+noite eles dizem
+por que é tão escuro 
+durante o dia 
+a morte
+---
+nunca é demais plantar 
+um museu numa estrela
+---
+somos artistas Vinícius nós não 
+passamos por borboletas como se 
+fôssemos formiguinhas e nós 
+jamais ofenderíamos as formigas
+---
+me deixo nas mãos da arte
+---
+brindamos com cacos de vidro
+---
+Vinícius sentiu que algo de bom 
+estava prestes a acontecer saiu 
+da cama vestiu a sua melhor roupa 
+e caminhou até o parque e algo de 
+bom aconteceu Vinícius saiu da 
+cama vestiu a sua melhor roupa 
+e caminhou até o parque
+---
+meu sonho era ser poeta 
+agora é ser anjo
+---
+foi perfeito mas
+eu esperava mais
+---
 - O que você está fazendo?
 - Ouvindo Beatles.
 - E está gostando?
