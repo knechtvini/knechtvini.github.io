@@ -1,6 +1,67 @@
 ---
 layout: default
 ---
+pobre Gatsby
+---
+e foi então que Deus inventou 
+que Deus existe
+---
+hoje em dia pessoas já discordam das perguntas
+---
+gostaria humildemente 
+me retratar aqui mas
+não sou nenhum 
+pintor
+---
+você é o meu chuchu 
+
+e você é o meu pepino
+---
+Menos informações em breve.
+---
+SOBRE O ATUAL ESTADO DA POÉTICA
+
+você gosta de uma prosa? 
+
+Prozac?
+---
+ouço os vizinhos cochicharem tanto 
+porque na verdade estão gritando
+---
+a cada dez minutos uma mulher é entediada
+---
+únicos artistas locais 
+reconhecidos nas pequenas 
+cidades do interior 
+são os turistas
+---
+começou a circular nas redes mentes
+quadradas
+---
+a única inteligência 
+que um escritor pode 
+subestimar é
+a sua
+---
+comida ou sexo? 
+
+sexo
+
+sexo ou poesia? 
+
+bah
+---
+você ainda acredita em Deus? 
+
+(o padre responde que sim) 
+
+vai passar
+---
+ENTREVISTA DE EMPREGO
+
+mas verdadeira até
+uma cobra-coral é
+---
 um poeta pode ser 
 extremamente perigoso
 nas suas últimas
