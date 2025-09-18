@@ -1,6 +1,105 @@
 ---
 layout: default
 ---
+atenção, crianças! prestem muita atenção.
+na aula de hoje, vamos falar sobre as incríveis 
+redes sociais. 
+porque, como todos sabem,
+é claro, vocês só vão ser alguém na vida se tiverem 
+um monte de redes sociais. 
+não adianta, meus queridos,
+se vocês não estiverem atualizando os seus perfis
+o tempo todo, postando cada segundo da sua vida… 
+porque, obviamente, 
+a verdadeira medida do sucesso é o número 
+de seguidores que vocês têm.
+então, lembrem-se:
+se não estiverem conectados 24 horas por dia, 
+atualizando suas redes e contando para todo mundo
+o que estão fazendo a cada momento, pode esquecer. 
+vocês simplesmente não serão ninguém.
+
+(com Inteligência Artificial)
+---
+nenhum humano possui mais 
+autoconhecimento que uma 
+pomba
+---
+e ela tem um carrão 
+com aquele seu 
+ka belo
+---
+Vinícius Knecht dispensa apresentações
+pois ninguém se importa realmente 
+em conhecê-lo
+---
+nas mãos 
+ao pé
+da letra
+
+ARTE
+---
+ela está sempre atrás de mim 
+
+está te perseguindo?
+
+não você não entendeu 
+eu sou a marionete
+---
+na sede
+da empresa 
+tomei 
+providências
+---
+rima não
+é solução 
+mas eu 
+detesto 
+dizer
+não
+---
+estarei chorando 
+mas saiba 
+que isso será
+o máximo
+---
+brincando de esconde-esconde 
+em poesias
+---
+capitalismo
+te massacrando 
+de felicidade
+---
+o blues tá em todo encanto 
+---
+tá faltando vermelho
+---
+bem lá bem lá
+no interior 
+transformam 
+estrelas 
+em estrelenses
+---
+o passarinho 
+é o melhor 
+amigo
+do homem
+---
+rotina esconde rotas
+---
+meu negócio é poesia
+e eu não ganho nada 
+com isso
+---
+candidato confirma turnô
+veja datas locais 
+e horrores
+---
+psicóloga narcisista 
+explica
+como identificar 
+um narcisista
+---
 PLOT TWIST
 
 no labirinto da memória 
