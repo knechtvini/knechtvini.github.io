@@ -1,6 +1,147 @@
 ---
 layout: default
 ---
+uma crítica negativa? 
+por fim alguém me entendeu
+---
+vocês terminaram 
+tão bem
+é este o término 
+que eu quero para mim
+---
+saí
+do armário 
+e entrei
+nas estantes
+---
+AMOUR
+
+sinto que posso ser careca com você
+---
+estou vendo trilhos onde não trem
+---
+o ateu naquele avião caindo
+tem mais medo da morte que 
+supostamente crê em um Deus
+e na queda crentes 
+também morrerão
+---
+tropecei nela dançamos para disfarçar
+---
+um carro escrito detetive está me seguindo
+---
+furtar o carro da polícia 
+sofrer acidente na frente
+do hospital
+---
+vendi a minha arma para o Diabo
+---
+como você consegue ter uma pele tão bonita
+
+são seus óleos
+---
+peço desculpa por você ser assim
+---
+você tá ligado que você apagou
+---
+burros são aqueles 
+que entendem 
+uma poesia
+de primeira
+---
+eu disse 
+que seria
+diferente mas 
+em nenhum 
+momento
+eu disse que 
+seria melhor
+---
+live de velório
+---
+não aguenta meia-horinha de poesia
+---
+malditos versos que aparecem durante banhos
+---
+tragicômico seria
+cama de casal num 
+quarto de hospital
+---
+ela me juntou do chão
+e me colocou no lixo
+---
+escrever poesia
+é mastigar palavras 
+como quem come 
+comida alienígena
+---
+durante a terapia o psicólogo
+teve uma crise de ansiedade 
+logo tratei de acalma-lo
+---
+a babá disse que o bebê bebe bába
+---
+éramos
+apenas garotos 
+se perguntando 
+como chegar 
+nas garotas 
+hoje apenas 
+homens vendendo
+suas guitarras 
+abandonadas
+---
+você está me ofendendo 
+
+por que
+
+eu não sei
+---
+você acha que existe vida em outro poema?
+---
+o azul do semáforo
+---
+papai existem crianças com trinta anos
+que ainda escrevem poesias?
+---
+eu te amo 
+
+eu também?
+---
+eu não quero mais nadar com você
+---
+talvez você se encontre aqui Vitória
+---
+vida me deu um pé
+na bunda então virei
+um moribundo
+---
+TAPETE
+
+não prepare a bagunça
+---
+mostre um documento por gentileza 
+
+tudo bem toma aqui
+
+isso é uma carta de amor Vinícius
+---
+meu amor está em outro estado 
+
+entendo relacionamento à distância 
+é sempre complicado
+
+não
+ela mora aqui mesmo está em outro
+estado civil é casada
+---
+amei
+por certezas 
+vivi
+por incertezas 
+morri
+por engano
+---
 a melhor comida 
 do mundo 
 é a sua
