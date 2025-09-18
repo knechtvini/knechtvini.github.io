@@ -47,8 +47,7 @@ produção mesmo que inconsciente de obras formas ou
 objetos a poesia é não apenas a expressão da subjetividade 
 humana mas a explicação ou a mera interpretação da mesma
 ---
-o importante é dar
-o último passo
+o importante é dar o último passo
 ---
 ABUJAMRA
 Vinícius Knecht o que é a poesia?
@@ -135,8 +134,10 @@ bom aconteceu Vinícius saiu da
 cama vestiu a sua melhor roupa 
 e caminhou até o parque
 ---
-meu sonho era ser poeta 
-agora é ser anjo
+meu sonho 
+era ser poeta 
+agora 
+é ser anjo
 ---
 foi perfeito mas
 eu esperava mais
