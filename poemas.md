@@ -1,6 +1,111 @@
 ---
 layout: default
 ---
+felicidade
+não traz dinheiro
+---
+delinquente cai
+em golpe das fake news 
+e acaba espalhando 
+notícia verdadeira
+---
+proclamar a independência alcoólica 
+---
+“não gosto muito de futebol
+mas nada contra o racismo”
+---
+um peixe nada 
+como um dia 
+após o outro
+---
+Deputado Vinícius Knecht cria 
+projeto de lei “Lei A.”
+---
+o louco diz 
+que é um
+viajante do tempo
+o gênio é aquele 
+que cria
+uma máquina do tempo
+---
+e me conta eles ficam juntos no final? 
+
+no final todo mundo morre meu amor
+---
+do xadrez 
+para choque 
+mata
+que pena
+---
+a lua pisou no amor
+pela primeira vez no dia  / /	 
+mas foi tudo inventado
+e o Stanley Kubrick 
+que fez aquelas filmagens
+---
+MONÓ LOGO
+
+para quem não sabe o Vini foi
+---
+você é a favor da escala
+ao Everest?
+---
+MODÉSTIA PARTE
+
+modéstia parte fizemos
+grandes inimigos temos 
+que reconhecer
+---
+CRÍTICA CONSTRUTIVA
+
+“belo concreto”
+---
+um fantasma que 
+não aguenta mais 
+o que não vê
+---
+sombrio demais para chegar nela
+---
+abordar missão
+---
+é muito solo
+para quem 
+deseja voar
+---
+atiro
+a última flor
+e erro o alvo
+---
+defunto não 
+faz piada
+com corpo
+---
+os seus inimigos 
+por sorte
+sobreviveram
+---
+EU AINDA ESTOU LENDO ISSO?
+---
+CHAPLIN
+
+no meu próximo filme mudo
+---
+é a sua sétima esposa mas 
+talvez o seu grande amor
+---
+acordo
+entre multidão 
+e silêncio 
+durmo com
+o Mick Jagger
+---
+não invente de dar muita corda 
+para músicos
+---
+você é a favor de humanizar as pessoas?
+
+desculpa não estudei economia
+---
 atenção, crianças! prestem muita atenção.
 na aula de hoje, vamos falar sobre as incríveis 
 redes sociais. 
