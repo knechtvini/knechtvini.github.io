@@ -1,6 +1,74 @@
 ---
 layout: default
 ---
+você só diz eu te amo entre “aspas”
+---
+companhia
+pareceu tão boa
+na verdade foi 
+você 
+fazendo o papel
+da companhia
+---
+maturidade é saber
+a hora certa de voltar 
+para o colo da sua mãe 
+e chorar
+---
+você já faz tanto tempo 
+parece que foi outrem
+---
+TROTE UNIVERSITÁRIO
+
+lembro quando participei 
+do trote universitário ligaram-me
+se passando por uma Universidade 
+dizendo que passei no vestibular
+---
+mágoa você mede com trégua
+---
+se amor tivesse 
+cheiro 
+seria cheiro
+de bergamota
+---
+quem é você para julgar você
+---
+era psicólogo e poeta
+não podia ler mentes
+sem seus óculos
+---
+paixão é amor entre aspas e beijos
+---
+você sabe qual
+o super-herói 
+preferido
+da depressão
+e da ansiedade?
+
+O SUPER-AR
+---
+ainda serei um figurante 
+recebendo o Oscar
+---
+ele disse que quer voltar comigo
+
+o que eu respondo
+
+que quer voltar sem ele ué
+---
+sorriu de saudade 
+faltando um ente
+---
+então meu caro poeta sobre 
+o seu diagnóstico infelizmente 
+trata-se de pneumoultramicroscopicossilicovulca- 
+noconiótico
+---
+a palavra neologismo 
+faz com que palavras 
+sejam infinitas
+---
 ELOGIOS CONTEMPORÂNEOS
 
 “ele é tão artista”
