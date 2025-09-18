@@ -1,6 +1,160 @@
 ---
 layout: default
 ---
+a melhor comida 
+do mundo 
+é a sua
+e eu posso provar
+---
+o lanche predileto 
+do escritor
+é o mil-folhas
+---
+oi como eu estou? 
+
+hum bem e eu? 
+
+bem melhor
+---
+infiltrado naquele 
+hospício na verdade
+eu era um pirata
+---
+bom dia dr. está melhor hoje?
+---
+esta é a hora em que a gente ora?
+---
+morte acabando com despertadores
+---
+ser rejeitado como artista 
+um prazer para poucos
+---
+o que te faz se sentir em casa
+a companhia ou a cama?
+---
+corria atrás
+dos meus sonhos 
+numa esteira elétrica
+é assim que eu vejo a vida
+---
+A PROVOCAÇÃO
+
+Abujamra o que é a morte?
+
+(em memória de Antônio Abujamra) 
+---
+cocaína está em fim de carreira
+---
+está decidido eu vou me matar 
+
+você vai desse jeito?
+
+sim por que? estou feio? 
+
+não você está ótimo
+---
+por que você escreve desse jeito 
+
+por que você lê desse jeito
+---
+quando viu o preço do 
+imóvel ficou imóvel
+---
+nunca trate como biblioteca 
+quem te trata como livraria
+---
+quais são os panos para o futuro
+---
+ela dá opinião sobre tudo 
+menos sobre ela 
+dando opinião sobre tudo
+---
+acho que vamos deixar o Vinícius 
+de fora da festa
+
+por que
+
+porque você sabe ele vive se vitimizando 
+dizendo que nunca é convidado para 
+as festas
+---
+nas virtudes
+do interesse próprio 
+o que faz uma pessoa 
+parecer
+sexualmente 
+atraente
+segundo a ciência?
+ser cientista
+---
+poeta precisa acordar 
+novinho em folhas
+---
+não sou paciente diagnosticado 
+sou doente com certificado
+---
+você começa a se sentir velho
+quando percebe mais maturidade 
+que os seus pais
+---
+eu e minha ex-namorada hoje somos
+grandes amigos ela me chama pelo 
+apelido carinhoso ‘corninho’
+e diz que aprendeu muito comigo
+---
+Jô Soares
+não querendo 
+interromper
+a sua morte
+mas já 
+interrompendo
+
+(em memória de Jô Soares)
+---
+APOSENTAR
+
+ah! pô! sentar?
+---
+acabei de contar
+uma história sem 
+começo meio nem 
+fim 
+enquanto você 
+lia esse poema
+---
+todo mundo quando diz 
+eu não sou um astro 
+do rock ‘n’ roll 
+diz com alguma 
+esperança
+---
+foi amor à última vista 
+---
+eu seria do tipo que 
+pediria autógrafos 
+aos fãs
+---
+brigamos e acabei dormindo
+no sofá da sala estava tão 
+frio meu amor veio me cobrir
+de porrada
+---
+Freud tratava o seu gato
+---
+amiga você ficou sabendo do Vinícius?
+
+sim amiga que ele está melhor eu fico 
+muito feliz pela sua recuperação eu 
+não esperava sabe
+
+amiga ele se matou ontem
+---
+como foi a viagem?
+
+preciso ver as minhas fotos 
+porque sinceramente eu não 
+me recordo amiga
+---
 CONFORTO PARA UMA VELHINHA 
 DE NOVENTA E NOVE ANOS 
 DE IDADE
