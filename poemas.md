@@ -1,6 +1,96 @@
 ---
 layout: default
 ---
+AGORA QUE EU PASSARINHO…
+
+acho que agora que ele morreu 
+já podemos ler o que ele escreveu
+vocês não acham
+---
+eles querem democracia igualdade social
+direitos e inclusão para minorias práticas 
+de liberdades direito à vida à segurança à 
+propriedade todos iguais perante a lei você 
+acredita nisso alguns até falam em equidade 
+representantes que combatem a corrupção 
+contribuem com o acesso à educação desonram 
+nossas filhas ensinam elas a ler e escrever 
+direitos humanos ausência de classes sociais 
+uma constituição eles são doentes doentes
+ou pior do que isso
+
+ELES SÃO COMUNISTAS
+---
+rir pra não RIP
+---
+leitor na obrigação de despertar 
+insiste ler dormindo
+---
+então qual o tamanho 
+do seu documento 
+no World
+---
+olhando minhas fot. de quando 
+eu era criança engraçado 
+parece que eu era mais velho
+---
+Mario disse que um cachorro serve 
+para a gente falar sozinho
+não seria mais fácil ser louco
+sem precisar de um cachorro
+---
+dá para sentir daqui
+seu bafo de ligação 
+para ex
+---
+o humor paciente
+não funciona muito 
+bem na terapia
+---
+você não tem medo que a vida acabe do nada?
+
+eu tenho medo de aviso
+---
+da academia saí de fininho
+---
+vou contar meus 
+sonhos em forma
+de piada para que
+você não ache tão 
+engraçado
+---
+noticiário esportivo in
+forma de circo
+---
+ódiododiadia
+---
+privilégio cósmico de não existir neste
+meio artístico
+---
+músico escrevendo para
+si maior
+---
+pão e wi-fi
+---
+bebê não consegue dormir 
+porque mãe grita carneirinhos
+---
+gente antiga olhando apenas 
+para o seu próprio bingo
+---
+DEU A LOUCA NOS FILÓSOFOS (2025)
+Comédia/Romance/Fantasia/Drama/Mistério
+
+Tenso, logo excito. Verse-te a ti mesmo.
+A tristeza depende de nós mesmos.
+A vida é a flor para a qual o amor é o meu. 
+O que sabemos é um sêmen; o que ignoramos é um oceano.
+A vida não examinada não vale um diagnóstico.
+Não existe evento favorável para quem não sabe onde sai.
+A única coisa que sei é que nadar de costas sei. 
+O que não me mata, me torna mais rio.
+O homem é condenado a ser live.
+---
 politicamente correto não leva humor a sério
 ---
 mais receio que humor
