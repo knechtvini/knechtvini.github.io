@@ -1,6 +1,113 @@
 ---
 layout: default
 ---
+REDE DE CASA
+
+notarão seu sumiço 
+mesmo só no seu 
+emprego
+---
+ChatGPT melhore o poema: EU TE ODEIO!!!
+---
+você é muito talentoso
+
+obrigado acho que é 
+a minha invocação
+---
+e qual é a sua história? 
+
+você tem tempo? 
+
+todo
+
+então vá aproveita-lo 
+pois eu não tenho
+---
+quebrei o pé caminhando
+e isso diz tudo sobre 
+um ossinho
+do meu pé direito 
+
+pensou que eu faria
+uma analogia?
+---
+ele não dirige em cidade pequena
+---
+percebo 
+detalhes 
+que nem são 
+tão 
+detalhes 
+assim
+---
+eu sou uma bicha no mato
+---
+OPINIÕES CONTEMPORÂNEAS
+
+“Dostoiévski é superestimado”
+---
+se eu
+não dormir 
+agora
+eu perco 
+o bônus 
+amanhã
+---
+saiba separar 
+a arte do ar
+
+não
+---
+eu vou escrever 
+a minha biografia 
+acho que ninguém 
+melhor 
+que eu
+---
+aproveite o feriado 
+aproveite o feriado 
+para se medicar
+---
+ainda acredito 
+no poder
+da palavra
+e da terceira 
+taça 
+de vinho 
+duvidoso
+---
+estamos com um pequeno probleminha
+não se preocupe 
+não envolve você 
+pois você é dos grandes
+---
+queria escrever
+em outro momento 
+o que sinto
+agora 
+queria sentir
+em outro momento 
+o que escrevo 
+agora
+---
+não procure 
+por ela 
+vocês nunca irão 
+se reencontrar 
+naquele
+mesmo estilo
+---
+em breve 
+serei 
+anônimo
+só que 
+dessa vez
+de propósito
+---
+nunca serei uma data
+---
+os paranoicos continuam me perseguindo
+---
 que que você anda fazendo 
 por que você fala tanto
 em patrulha como você é 
