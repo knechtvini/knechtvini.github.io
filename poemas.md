@@ -1,6 +1,82 @@
 ---
 layout: default
 ---
+foi amor à última vista
+---
+quinze goles de café
+para saber que 
+te quero
+---
+você é exatamente como alguém que 
+desejo mas talvez eu não queira 
+alguém que seja exatamente
+como alguém que desejo
+---
+vocês se entenderam? 
+
+não mas nós rimos muito
+---
+do teu lado não tenho 
+tamanho tamanho é o 
+amor que tenho
+---
+só temos real conexão des 
+conectados
+---
+fazer um filme sobre nossa história 
+antes que vire uma novela
+---
+escrever um livro contar
+ao mundo quem é você e
+se perder na conta
+---
+sempre li o meu nome em azul
+e o seu em vermelho
+---
+passado dependente de Marias e Josés
+---
+NOTAS SOBRE ELA
+
+ela não vai querer você 
+só porque você escreve 
+sobre ela
+---
+não era insônia 
+era vigília para a saudade
+---
+tédio a dois nunca é tédio
+---
+primeiro o zíper ou primeiro o botão
+---
+novas saudades virão
+---
+SEXO EM CRASE
+
+deixar a vontade à vontade
+---
+há muitas coisas acontecendo dentro
+de mim que não têm nome mas
+todas elas têm fome
+---
+sabe aquela pessoa que você ama 
+e não fala isso para ela
+
+ela já morreu no futuro
+---
+saudade vem de dentro ou vem de fora?
+---
+quanta vezes precisa voltar 
+para que não seja mais 
+volta
+---
+amor não é duas pessoas sendo tudo uma
+para a outra amor é bem menos que isso
+---
+acreditar que é mesmo amor 
+só acredito quando não estou 
+acreditando que está 
+mesmo acontecendo
+---
 és fogo quando tu me chamas
 ---
 nalguns silêncios amor 
