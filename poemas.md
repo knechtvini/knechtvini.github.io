@@ -1,6 +1,125 @@
 ---
 layout: default
 ---
+se não 
+escrevemos 
+as nossas 
+próprias 
+histórias
+ao menos 
+uma vez 
+alemos
+
+SIGNIFICADO DE ALEMOS
+
+alemos vem do verbo alar 
+o mesmo que ergamos 
+puxemos elevemos
+subamos icemos
+
+SIGNIFICADO DE ALAR
+
+dar asas elevar erguer alar 
+o espírito às regiões 
+do belo
+---
+porque agora acabou 
+para você e eu para
+o adeus final 
+para
+
+O ADEUS INICIAL*
+---
+pessoas não são infinitas mas 
+suas almas se expandem 
+o tempo todo
+---
+80s
+
+enfrentar a pista descobrir
+na discoteca blecaute agitado 
+nocauteado num globo espelhado 
+vendo-se só para
+
+DANÇAR QUEEN FEITO UMA RAINHA
+---
+tendo alcançado um brilho muito intenso 
+objeto que mais brilha no céu noturno 
+depois da lua o nosso amor visível 
+a verso nu
+---
+algo catastrófico aconteceu no 
+sistema solar eu me apaixonei 
+por ela e correr não adianta
+ria neste caso
+---
+nem tudo é o que aparece
+---
+o Toby era o meu maior hobby
+---
+atualmente se interessa mais 
+por ufologia que por romance
+---
+ler um bom livro é como você 
+vestir a melhor capa para 
+ficar em vida
+---
+bilhões e bilhões de poesias 
+atraversando seu corpo 
+enquanto você lê 
+essa poesia
+---
+conhecemos mais o espaço
+e o oceano do que 
+a poesia
+---
+deixe o meu dia mais leve 
+para onde você estiver
+---
+canto ela arranjo namorada 
+gosto da melodia me
+instrumenta
+---
+plantas com anos neste ramo
+---
+ERA UMA VEZ
+
+o dia em que o ser humano 
+percebeu que abre mão
+de abrir asas
+---
+paixão tirou os sapatos 
+para não fazer barulho 
+não teve jeito o amor 
+acordou
+---
+há coisas tão tão poéticas
+que simplesmente não cabem
+na poesia
+---
+nunca teve primeiras intenções
+---
+JUSTIÇA COM AS PRÓPRIAS MÃES
+
+ah se o mar fosse no feminino...
+---
+eu te amo
+
+eu não seria tão idiota 
+de acreditar nisso
+
+viu só eu não te dei amor 
+mas te dei sabedoria
+---
+um ingresso num amor ou
+um ingresso para assistir 
+a estreia de Titanic
+no cinema em 1998?
+---
+seus olhos eles são 
+tão lindos quanto
+o seu olhar
+---
 AMOUR
 
 clamor orgíaco da solidão
