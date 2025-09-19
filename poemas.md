@@ -1,6 +1,128 @@
 ---
 layout: default
 ---
+às vezes sinto que a vida
+é como se fosse um ídolo 
+chutando seu próprio fã
+---
+artista trabalha na vida
+para quem se atrapalha na vida
+---
+escrevo na condição de sobrevivente
+---
+no final 
+da sua
+última carta 
+dizia que
+nem a arte
+lhe fazia mais 
+sentido
+---
+exausto de folhas em branco
+---
+depressão e criatividade se separam 
+após doze anos de relacionamento
+---
+artista sofre pra cachorro 
+rato
+leão 
+formiga 
+passarinho…
+---
+vesti minha melhor roupa 
+para a festa
+a dor pensou 
+que foi para ela
+---
+sobe o preço da poesia 
+---
+condeno ataques de pânico
+---
+PÂNICO
+
+meu medo dirigiu-se às vias
+respiratórias
+---
+PÂNICO
+
+tanto gatilho que
+me sinto um 
+arsenal
+---
+sorteei minha alma
+os vencedores 
+não quiseram 
+receber o prêmio
+---
+me enfrento todos os dias
+costumo perder
+---
+da noite 
+para o dia 
+percebi 
+que meus objetivos 
+não eram
+meus sonhos
+---
+depender 
+de dom
+e vocação 
+é algo
+extremamente 
+perigoso
+---
+uma voz gritando 
+na minha cabeça
+você não vai conseguir
+eu vou deixá-la rouca
+---
+venci a depressão 
+fiquei em terceiro lugar
+---
+amei o jeito que você me abandonou
+---
+me tiro na cabeça
+---
+elogiando minha poesia 
+estava indiretamente 
+elogiando minha dor
+---
+anjo na guitarra 
+você chegou no solo 
+antes que eu
+---
+conheça os novos nem-nem
+nem reconhecimento 
+nem respeito
+---
+você não tem vergonha
+de chegar aqui 
+deprimido desse jeito
+---
+por deus nunca iniciar 
+seu nome 
+com letra maiúscula
+---
+DEPRESSÃO
+
+com o astigmatismo 
+pude ver
+três luas 
+olha só
+---
+poeta acamado pelo público
+---
+num mundo distópico
+eu faço sucesso
+---
+estou sofrendo tanto 
+
+mas está bem escrito?
+---
+pode ficar lá fora um pouquinho? 
+não quero que você me veja 
+tomando medicamentos
+---
 a diferença era que 
 ele só a visitava 
 no sol
