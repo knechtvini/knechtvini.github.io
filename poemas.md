@@ -1,6 +1,115 @@
 ---
 layout: default
 ---
+JULGAMENTO CANCELADO
+
+com seus olhos 
+com suas mãos 
+cometeu a arte
+de um escrivão
+---
+você com alguma sombra
+de dúvidas é uma das 
+melhores pessoas que 
+nunca conheci em toda 
+a minha vida
+---
+esta música me lembra você 
+
+sério? agora ela me lembra você
+---
+brecha para amor
+de brechó
+---
+POEMA DE TRÊS TÍTULOS
+
+P.S EU TE ODEIO
+
+você fede a perfume Chanel nº 5 
+você é tão ridícula quanto Marilyn Monroe
+você soa tão sem graça quanto Jim Carrey
+você dirige tão mal quanto Tarantino 
+você escreve tão mal quanto Kafka 
+você toca e canta insuportavelmente quanto os Beatles
+você pinta tão cafona quanto Van Gogh
+
+EU ME ODEIO
+---
+dei cem por cento de mim 
+ela deu noventa e nove
+decidi pôr um fim
+---
+de date p/ hate
+---
+O ROMÂNTICO E O ROMANCISTA
+
+você escreve para criar um amor
+ou você escreve para corrigir 
+um amor?
+---
+no Majestic não saí do meu quarto já sabia 
+que o dia estava lindo lá fora
+---
+em Saint Remy de Provence quando olhava para fora
+da janela o mais importante era o que estava 
+dentro de mim
+---
+a poesia nos fez suar
+a noite inteira
+o que isso soa
+para você
+---
+ela é bonita demais para ele você não acha
+
+você tem noção do talento que ele tem?
+---
+dos olhos que quero nunca sou vista
+para amar dos olhos que me querem
+já nem estou mais aqui
+---
+&u e &u
+---
+por que todo amor 
+que me aparece 
+parece com o
+
+CAVALO DE TROIA
+---
+vamos começar do zero?
+
+não nós vamos começar do dez
+---
+CORPO VIOLÃO
+
+você é mais difícil
+que pestana para 
+iniciantes
+---
+hoje o que temos de mais íntimo 
+não é o beijo
+o sexo
+a conexão 
+a troca de vulnerabilidade
+é a senha
+---
+ouça bem você é melhor que
+o solo de Comfortably Numb
+---
+por fim 
+sempre 
+pôr um fim
+---
+alguém – me – explica todo este negócio
+que é o amor nos tempos de capitalismo
+---
+então choque a sociedade com amor beleza 
+arte cultura romance acolhimento social 
+resistência
+porque um mundo que se choca com isso está 
+doente e precisa de um
+
+TRATAMENTO DE CHOQUE
+---
 Eu me Ode e eu quero mor.
 ---
 a campainha lhe tocava 
