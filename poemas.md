@@ -1,6 +1,90 @@
 ---
 layout: default
 ---
+és fogo quando tu me chamas
+---
+nalguns silêncios amor 
+precisa falar mais alto
+---
+amor é bem mais complexo que 
+separe-se
+---
+viajamos e moramos na viagem
+---
+ME CHAME PELO SEU NOME
+
+se me chamares pelo
+seu nome eu vou olhar 
+antes
+---
+acordar num amor é um acordo entre
+duas partes
+---
+amor dispensa curiosos
+---
+amor que toca
+a companhia e 
+sai correndo
+---
+amor oscila entre desejo e oscilação
+---
+amar sem anestesia geral
+---
+ela me encolheu virei seu a 
+feto
+---
+traição quatro rodas
+---
+há lilás não quero te verde novo
+---
+achei que viria um amor
+meu time foi campeão do mundo
+achei que viria um amor ganhei 
+na mega-sena
+---
+asar no amor
+---
+amor líquido sem álcool
+---
+oi nós nos conhecemos?
+
+não mas eu te sigo nas 
+ruas
+---
+a manhã em que ela nunca mais voltou
+---
+claro que te amo mas
+vou fazer o meu feijão 
+com arroz
+---
+nosso amor foi uma febre
+---
+ÓCULOS
+
+olhar sem armação
+---
+já vi tantas Cenas de um Casamento 
+que o amor não me faz mais piscar
+
+(em memória de Ingmar Bergman)
+---
+lembra quando corri até a parada 
+para te encontrar antes de entrar
+no ônibus mas você já estava 
+dentro do táxi
+é assim que eu vejo a vida
+---
+então ouço Bee Gees
+e lembro do meu amigo 
+que está mais aqui
+---
+SENTIMENTO VERMELHO
+
+esta é a parte do livro
+em que escrevo
+
+come on baby blue
+---
 GETTING INTO THE SWING... 
 (AND KINGS OF CONVENIENCE)
 
