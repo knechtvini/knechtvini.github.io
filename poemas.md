@@ -1,6 +1,97 @@
 ---
 layout: default
 ---
+1994
+
+talvez apenas 
+meus amigos
+me animam mais 
+que Friends
+
+e olhe lá
+---
+qual o maior sentimento da humanidade
+na sua opinião
+
+a fé 
+ainda
+---
+uma das coisas 
+que mais odeio
+na vida 
+é me sentir 
+superior 
+a alguém
+---
+escrevendo poesia com a
+asa direita quebrada
+---
+as pessoas 
+interpretam 
+da pior forma 
+e da melhor forma 
+e ainda assim 
+erram
+---
+CHANDLER MURIEL BING
+
+The one with the Friends’ soul Matty,
+
+I can’t write this script. 
+Sorry.
+
+(em memória de Matthew Perry)
+---
+estou com depressão 
+me anima depressa
+---
+bem o que posso dizer 
+acredite 
+poucas vezes
+você vai ouvir 
+de um artista 
+talvez por sorte 
+suicídio não vai ser 
+a causa da minha morte
+---
+não exigem dos seus Deuses
+o que exigem dos ateus
+---
+pintam mês de amarelo 
+na hora de salvar vida 
+de alguém ao lado 
+
+amarelam
+---
+alguém favor faça cócegas nos meus poemas
+mais tristes
+---
+um artista 
+que consegue 
+criar
+e trabalhar 
+com o seu 
+próprio **ego 
+nunca vai
+se sentir
+*****pregado
+---
+por que existem tantas pedras 
+nos trilhos de trans?
+---
+tive um quadro 
+que nunca tratei 
+plantas 
+que nunca plantei
+---
+então Vinícius eu vou pedir 
+que você faça um novo exame
+
+qual doutor uma autópsia
+---
+não riam do meu humor 
+mas riam dos meus sonhos
+---
 PIPOCA
 
 imenso taBUH! 
