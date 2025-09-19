@@ -1,6 +1,132 @@
 ---
 layout: default
 ---
+eu não quero que a minha filha 
+chegue perto
+da sua poesia 
+você entendeu
+---
+sangro antes mesmo
+de tocar nos cacos de vidro
+---
+vou engolir suas cinzas 
+---
+desamor pelo destino 
+como é simples
+e ameno 
+se tornar 
+o que não se é
+---
+ponto de fuga artística 
+voltar-se para dentro
+---
+não fornecia esclarecimento a respeito
+impressões sucintas mesmo na comunidade 
+literária especialmente amorosa
+nunca chamou atenção
+---
+só tentando não tropeçar 
+enquanto não escrevo
+---
+faço justiça com minhas próprias imaginações
+---
+espelho da minha vida 
+interior 
+passivo de herói 
+apenas ter
+mero efeito 
+de construção artística
+como forma de
+
+IMPERFEIÇÕES
+---
+escritos em excesso 
+sinto-me lutando
+pela inexistência
+---
+você prendeu minha solidão 
+que me era tão violenta
+---
+quando não dói lembro o tanto que doía
+---
+do parto parti para
+a parte que parte
+---
+tenho tanto o que temo que tenho
+---
+se tudo isso 
+passar 
+saibam que 
+me precipitei
+
+O PRECIPÍCIO
+---
+sinto que só apanhava de
+cinto
+---
+em cactos de vidro
+plantão 24h 
+de poesia
+---
+ela estava ali para
+proteger-me de si
+---
+eu pensando nela 
+ela pensando nela
+---
+crise existencial ultrapassa
+crise econômica
+---
+amor minha palavra pré 
+ferida
+---
+teu futuro te condena
+---
+poeta apanha da vida
+e poesia é aplaudida
+---
+chega uma hora que morrer enjoa
+---
+SENSÍVEL
+
+não saberia sequer 
+entrar
+num ringue
+---
+eis que em 
+todos esses anos 
+o monstro morava
+em cima da cama
+---
+olhar para o céu 
+amortece medo da 
+morte
+---
+poesia deveria ser tiro
+no peito de quem usa colete
+à prova de balas
+---
+é como se o olho mágico 
+fosse de fora para dentro
+---
+morte é escrever poesia à lápide
+---
+sentia que era o melhor paciente 
+que os meus problemas 
+através da forma 
+que eu contava 
+eram os mais interessantes
+---
+do fundo do poço 
+passou a ver
+as pessoas 
+lá de cima
+---
+somos uma obra de morte
+---
+finada poesia
+lhe entrego um poeta
+---
 às vezes sinto que a vida
 é como se fosse um ídolo 
 chutando seu próprio fã
