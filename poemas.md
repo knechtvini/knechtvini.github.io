@@ -1,6 +1,185 @@
 ---
 layout: default
 ---
+se não existe existo
+sou autobiográfico 
+na minha
+
+FICÇÃO CIENTÍFICA
+---
+poesia é teste de defesa planetária
+---
+O CLÁSSICO
+
+existe poeta 
+de uma poesia 
+só?
+---
+poesia é a verdadeira 
+natureza do tempo com
+legenda sincronizada
+---
+mistério mistério 
+esta falta de 
+crédito
+---
+poeta naturezado 
+lá de Mario Quintana
+---
+ser criando respostas menti 
+rosas para perguntas in 
+ventadas
+---
+não fazem ideia 
+com que livros 
+estão li 
+dando
+---
+no processo da sua invisibilidade 
+artista é a luz que vem trazendo
+
+SUPERPODERES
+---
+por que você acha que virou poeta 
+
+você está pronta?
+acho que virei poeta por esperar 
+sempre dez vezes ou mais que 
+o esperado
+---
+nave da NASA colide com futuro 
+de forma inesperada na missão 
+ART
+---
+o que é a poesia
+
+poesia é autora da telescópia 
+do universo
+---
+poeta é a que le que faz
+copo d’água em tempestade
+---
+nalgum 
+provérbio 
+os olhos
+são janelas 
+da alma 
+poetas pre 
+ferem que 
+sejam portas
+---
+fechava olhos numa busca do infinito
+ou recusa do finito
+---
+necessidade da escrita necessidade de 
+ser artista necessidade de dizer 
+algo como se fosse
+
+O PRIMEIRO E O ÚLTIMO SER HUMANO
+---
+escrevo desde que 
+não me conheço 
+por gente
+---
+olhar para o mundo e pensar eu sou 
+a pessoa mais criativa
+da minha história
+---
+RELIGIÃO
+
+todos os caminhos me levam
+amim!
+---
+ROTINA
+
+é muito importante que você acorde 
+para a vida no segundo certo
+---
+Eles nunca tiveram tanto tanto medo 
+da arte
+---
+poeta tem
+a mesmíssima 
+respons 
+habilidade
+dos passarinhos
+---
+no mínimo rir no máximo ch 
+orar
+---
+arte é forma ilimitada de sermos 
+outros
+---
+confie apenas em três tipos de poetas
+os que estão sofrendo os que estão 
+amando ou os que estão os dois
+---
+nada se cria sem estar em contato 
+com tudo aquilo que não existe
+---
+TEMPOS SOMBRIOS DE
+
+não ouvi
+mas ouvi falar 
+não li
+mas li sobre
+---
+papai como faz pra ser poeta 
+
+fingindo ser poeta filho
+---
+folhear árvores e árvores e árvores
+e árvores
+---
+e os animais estão comentando
+---
+FOBIA
+
+numa História não se
+cobra ingresso 
+se arranha passagem
+---
+foi tão bom que eu nem escrevi
+---
+tatuadora autoral assina suas tatuagens
+---
+lápide é marcada com logotipo
+---
+estar só sendo cinema to
+graficamente amado
+---
+um pai morre no parto 
+---
+poesia de cada dia nos dai o tempo
+---
+a tarde talvez fosse mais amarela
+não fosse o
+
+BLUE
+---
+papai conta uma história para que
+eu acorde
+---
+prefiro quando você escreve sobre amor 
+porque assim eu rio do seu jeito 
+de sentir dor
+---
+poesia é o denominador comum
+---
+TALENTO GRAVE
+
+disputa de amores termina em arte
+e talento grave em Estrela
+---
+escrever sem qualquer 
+forma de anestesia
+---
+QUINTANA
+
+pássaro 
+presente 
+e futuro
+---
 pobre Gatsby
 ---
 amor não é disciplina 
