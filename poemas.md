@@ -1,6 +1,90 @@
 ---
 layout: default
 ---
+ela pensa em mim e não se toca
+---
+amava ela nunca
+me senti tão nervoso 
+na vida meu papel
+estava acabando
+---
+HISTÓRIA DE UM ROMANCE MODERNO
+
+Erra uma vez… 
+Fim.
+---
+MARIETA
+
+poeta que se preza amor
+vira título
+---
+nostalgia põe saudade para dormir
+---
+nunca alimente amor
+sem apetite
+---
+tropeçamos na vida deitamos 
+no chão fizemos amor
+para disfarçar
+---
+você me lembra alguém
+lembrei
+você me lembra você
+do passado
+---
+minha sensibilidade olha minha intensidade 
+que toca minha depressão que beija minha 
+ansiedade que penetra minha
+
+ARTE
+---
+como acordar para a vida sem regular
+o sonho
+---
+no final das contas você acaba ficando
+com aquele que estiver mais
+
+- próximo!
+---
+seu corpo um mirante
+---
+seu sussurro no meu ouvido
+um refrão
+---
+o truque da vovó
+é costurar
+o tricô com
+a linha
+do tempo
+---
+visitei seu coração para minha 
+surpresa não havia ninguém 
+em casa
+---
+não confie tanto nos seus olhos
+---
+especialistas analisam em que
+circunstância ainda é 
+recomendado amar
+---
+MADRUGADAS
+
+amor que horas parece agora
+---
+explique se há alguma intensidade 
+considerada “normal” e como eu 
+faço para medi-la
+---
+não lembrava mais
+o seu rosto 
+mas ainda lembrava 
+quanto a amava
+---
+A NOSSA LIGAÇÃO
+
+coração chama chama 
+e ninguém atende
+---
 entre fique na vontade 
 não repara estou te 
 amando está uma 
