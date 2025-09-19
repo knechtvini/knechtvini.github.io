@@ -1,6 +1,78 @@
 ---
 layout: default
 ---
+não tinha medo de nomear o que sentia
+o medo era sobrenomear
+---
+então me conta sobre você
+o que você faz
+
+características que me colocam 
+no espaço-tempo ou quem eu sou 
+e sobre o autoconhecimento que 
+eu adquiri em mais de trinta 
+anos?
+---
+em sorrisos de adeuses 
+não aparecem dentes 
+podres dentes tortos
+ou amarelados conheça
+as possíveis causas
+e tratamentos
+
+É POSSÍVEL SALVÁ-LOS?
+---
+sinto muita pena em mim
+---
+seja apenas mais dois 
+neste mundo nem que 
+apenas mais uma vez
+---
+vamos lá escreva tudo para fora
+---
+outro dia eu li a pergunta
+quando a pessoa cai muito
+o que pode ser eu sorri 
+até conseguir levantar
+nova mente
+---
+metafísica conta que serei
+seu anjo arte conta que serei
+seu fantasma ciência afirma 
+que serei uma espécie de 
+seu satélite
+---
+não é justo comigo 
+ser justo com você
+no momento
+---
+amores Made in China
+---
+só um feto provocava afeto
+---
+você é tudo que eu quero 
+
+você é tudo que eu tenho
+---
+antigamente no polo sul
+da lua hoje mais no
+polo dance
+---
+você fala comigo com mais 
+pontos que vírgulas;
+---
+brota mais pra dentro
+---
+você me ama? onde? 
+eu eu não consigo vê-lo 
+tocá-lo senti-lo
+
+sim amo
+amo na Fossa das Marianas
+
+não posso fazer nada com 
+as suas palavras vazias
+---
 se não 
 escrevemos 
 as nossas 
