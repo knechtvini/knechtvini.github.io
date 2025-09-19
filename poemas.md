@@ -1,6 +1,116 @@
 ---
 layout: default
 ---
+comecei a escrever 
+porque queria ajudar
+a pessoa mais triste 
+e solitária 
+que eu conhecia 
+na minha vida 
+eu
+---
+lembro muito bem do dia
+em que a melancolia 
+criticou o amor
+“ele é tão melancólico”
+---
+já imaginou morrer
+no dia mais feliz 
+da sua vida
+---
+futuro que eu quero esquecer
+---
+estou no fundo do posso
+---
+ele tenta atropelar passarinhos 
+porque tem certeza de que nunca
+vai alcança-los
+---
+não adianta nada estar preso no paraíso
+---
+olhei para o céu 
+para sofrer 
+caiu a pena de um anjo
+acho que a gente sofre parecido
+---
+sempre preparado 
+para o pior 
+chega o pior 
+e sempre
+me surpreende
+---
+CRIANÇAS
+
+infância muito mais feliz 
+quando era muinto
+---
+sentimos mais que os outros 
+ou os outros 
+não querem falar
+sobre isso?
+---
+homens também sentem que não sentem
+---
+as piores despedidas 
+são sempre aquelas 
+que acontecem
+---
+escrever para cicatrizar
+---
+não deixe que o seu dia estrague
+a sua vida não deixe que a sua vida 
+estrague o seu dia
+---
+me entrego e sempre me pego de volta
+---
+parecia que ele 
+estava sempre
+se despedindo 
+do mundo
+e isso
+o encantava
+---
+Vinícius esgotado em menos de 
+trinta e três anos 
+considera-se
+sucesso de bilheteria
+---
+machuca-se fácil
+aquele que veste 
+muitas armaduras
+---
+escrevo por aparelhos 
+---
+a dor perde a criatividade com arte
+---
+SAUDADE
+
+quando tudo final 
+mente em caixa
+---
+AUTOAJUDA
+
+o mais importante não é vencer a depressão
+o mais importante é competir
+---
+RD – Recursos Desumanos 
+---
+tu tropeças teatrais
+---
+DSM-5 edição de bolso
+---
+fantasmas assustam 
+apenas quando 
+você também
+for um deles
+---
+DEPRESSÃO
+
+mais goteiras dentro
+que chuva fora
+---
+Deus sabe o que Diabos tinha na cabeça
+---
 CORTA PARA:
 INTERIOR. APARTAMENTO DE LINDA – NOITE
 
