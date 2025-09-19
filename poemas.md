@@ -1,6 +1,116 @@
 ---
 layout: default
 ---
+preciso construir 
+um cemitério 
+para passarinhos 
+que não seja
+no chão
+
+eu não entendo isso não faz
+o menor sentido Vinícius
+
+você não entende mamãe
+eu preciso encontrar 
+Matilde Campilho
+é a única maneira 
+que eu encontrei a
+
+POESIA
+---
+as janelas 
+cumprirão apenas 
+um papel 
+decorativo 
+na casa
+
+(para Van Gogh)
+---
+a medida 
+de um QI 
+raramente
+se assemelha 
+ao diâmetro 
+da alma
+---
+deixando a Terra pintada 
+de sangue 
+derramou o azul
+---
+abandonou a página abandonou todo o passado
+---
+sentava na frente 
+para me sentir
+o piloto 
+hoje sento na frente 
+para ser
+o primeiro 
+a ir embora
+---
+nos chamam de 
+loucos 
+mas o que esses 
+normais 
+estão fazendo 
+que preste
+---
+PAIS E FILHOS
+
+você não pensou em nós 
+antes de ter depressão?
+---
+minha mãe me penteou minha poesia me enterrou
+---
+azar na vida sorte na arte
+---
+tenho que anunciar
+a gravidez 
+da velha poesia 
+tenho que anunciar
+a insônia 
+do sol
+o bocejo 
+da chuva
+a sombra 
+do mosquito 
+um amor 
+de castigo
+a idade 
+da solidão 
+e todas as solidões 
+sem sentido 
+---
+minha infância teve a voz dos meus olhos
+---
+a morte acordou comigo 
+e fomos passear
+no último passeio 
+eu já desconfiava
+e isso 
+ninguém ficou sabendo
+---
+sinto muito mas já escreveram isso 
+
+do mesmo jeito que eu senti?
+---
+por que você ainda escreve poesia?
+
+acredito que é minha maneira diária 
+de me despedir
+eternamente
+---
+os pobres morrem de fome
+em massas
+---
+será que 
+vou assistir 
+o seu show 
+ou será que 
+finalmente 
+eu vou aprender
+a não dançar 
+no final
+---
 SEIS
 
 decidi que meu sangue 
