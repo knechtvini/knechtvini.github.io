@@ -1,6 +1,89 @@
 ---
 layout: default
 ---
+AMOUR
+
+clamor orgíaco da solidão
+---
+AMOUR
+
+do gozo ao catarro
+---
+desligava todas as luzes no entanto
+no momento em que penetrava fechava
+os olhos
+---
+“verdade que consegui fazê-lo chorar?”
+repetia dezenas e dezenas de vezes 
+como quem ganhara o Prêmio Nobel
+---
+gemido ecoava poesia orquestrada
+---
+pulando acerca de
+---
+a paleta de cores de uma mulher
+---
+você é uma página do World
+---
+ter o poder de prever você
+---
+ele estava apenas correndo na sua frente
+ou ele estava fugindo de você?
+---
+lamento você fala comigo 
+com sintomas e não com 
+sentimentos
+---
+suas infidelidades não 
+eram tão dramáticas 
+mais do gênero fantasia
+---
+sempre te amei Pierrot 
+
+meu nome é Ferdinand
+---
+tripulação da alma amor comandante
+---
+vertigem ou desejo imenso de cair 
+confiando que Ele a salvasse ou 
+pelo menos a levantasse
+---
+RELACIONAMENTO SÉRIO CTRL+C 
+CTRL+V RELACIONAMENTO SÉRIO
+---
+Vinícius ameaça se amar
+---
+depois de Paulo Leminski ficou claro para mim
+eu não tinha outra escolha eu tinha que criar 
+Toda Poesia minha própria Bíblia
+---
+celebrar-me-ei-a-mando-você
+---
+falando tanto sobre amor faltando tanto amor
+---
+amar por precaução 
+---
+quando encontrares um amor continue
+a procur ares amor neste mesmo amor
+---
+o talento é a melhor
+maquiagem do mundo
+---
+o talento é a melhor
+maquiagem do mundo
+e não precisa ser 
+artista para ter 
+talento
+---
+INTIMIDADE
+
+querer saber
+o que não se 
+quer saber
+---
+quero ser orgulho do meu estado 
+de espírito
+---
 primeiros encontros maiores despedidas
 ---
 eu poderia escrever aquilo que você 
