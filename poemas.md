@@ -1,6 +1,73 @@
 ---
 layout: default
 ---
+primeiros encontros maiores despedidas
+---
+eu poderia escrever aquilo que você 
+gostaria de ler mas daí talvez
+você não goste
+---
+você está proibido de escrever 
+qualquer coisa a meu respeito
+---
+não seria assim
+do mesmo jeitinho
+se não fosse
+
+O CINEMA
+---
+vamos colocar
+um ponto inicial 
+na nossa história
+.
+---
+a solidão deve partir de você
+---
+saudade exige que amor se
+retrate
+---
+no escuro ficou bem claro que
+ficar duro era moleza
+---
+acordei ao som
+de passarinhos 
+cantando Wonderwall
+---
+se bem me lembro no final ela disse
+que eu sou uma pessoa incrível
+eu vou repetir para vocês
+bem entenderem
+
+“no final”
+---
+quando estou não consigo acreditar
+que estou quando não mais estou
+não consigo acreditar que 
+já estive
+---
+melhores amigos 
+participação especial:
+
+AMOR
+---
+poeta naturezado 
+lá de Manoel de Barros
+---
+POESIA
+
+vestir palavras para chegar 
+em casa e despi-las
+---
+você é a primeira vez que 
+escrevo isso
+e não vou repetir
+---
+antigamente amor caía de penhasco 
+era socorrido com vida
+---
+musa inspiração prec
+Isa dizer não
+---
 ela pensa em mim e não se toca
 ---
 amava ela nunca
