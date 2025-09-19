@@ -1,6 +1,105 @@
 ---
 layout: default
 ---
+ela disse que minhas maiores qualidades 
+são meus defeitos vai entender
+---
+divagar com o amor 
+---
+não suporto mais amar só
+e apenas através de artes
+---
+eu não sou céu a mar 
+---
+se eu não tenho certeza que é você
+eu decido que é você
+---
+inspirado em você não
+para você
+---
+se eu seguisse meu caminho eu teria
+que escrever por você?
+---
+velho demais para correr por você
+---
+no interior não há pousadas 
+com exceção dos passarinhos
+---
+ela é melhor do que
+eu tinha certeza
+---
+AMOR LÍQUIDO SEM ÁLCOOL
+
+ontem jorrava saliva
+na minha boca hoje 
+somos a letra de
+Somebody That I Used To Know
+---
+assim que entrei pensei
+te ver saindo ao te sair 
+imagem de você voltando
+não havia segurança
+---
+passei a dar o seu sorriso
+---
+espere para onde vocês estão levando
+o corpo dela
+---
+todas estão vestindo sua máscara 
+e isso diz muito sobre a
+moda contemporânea
+---
+tenho sido seu tecido
+---
+ontem ele mandou flores 
+
+vocês combinam
+
+mas ele não é atencioso 
+nem carinhoso
+
+eu estou falando das flores
+---
+conforme flores com forma
+de flores em flores para 
+que eu consiga apanhar 
+sozinho
+---
+juntos compomos um soninho até
+o nascer do sol
+---
+antes adiavam um pouco as penas dos poetas
+---
+não lembro Absolut amente nada
+que eu li ou escrevi por trás
+dos msmsmeus*(?) ERROR
+olhos
+---
+te bêjo palavra
+---
+falo dos olhos dela 
+ela muda de assunto 
+e fala dos meus
+---
+escreverei cada vez melhor 
+você querendo ou não 
+você nunca vai me amar 
+mesmo querendo
+---
+nós sempre vamos sair no auge
+---
+você é a tradusol do que é o luar
+---
+NÃO MONOGAMIA
+
+não foi a melhor traição que você já sofreu?
+
+SIM!
+---
+emprestou-se de corpo
+e alma agora daria a mão
+para estar de volta
+---
 você mostrou sua cidade 
 eu mostrei meu mundo 
 e sempre vou me perdoar por isso
