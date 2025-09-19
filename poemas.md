@@ -1,6 +1,37 @@
 ---
 layout: default
 ---
+pobre Gatsby
+---
+amor não é disciplina 
+amor é costume
+---
+escreveu porque ao menos 
+cogitou sentir
+---
+era real mente atraente porque 
+estava na cara que não falava 
+tudo o que sabia sabe
+---
+parecia que viria um poema 
+era só a vizinha
+
+IRACEMA
+---
+quebrei um silêncio montei 
+vários silenciozinhos
+---
+MÃOS CRUZADAS
+
+o chão encanta tanto 
+amada
+---
+Atraversando as tuas… 
+---
+beber café para dormir 
+escrever poesia para 
+não amar tão cedo
+---
 JULGAMENTO CANCELADO
 
 com seus olhos 
