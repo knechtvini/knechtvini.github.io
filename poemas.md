@@ -1,6 +1,21 @@
 ---
 layout: default
 ---
+pobre Gatsby
+---
+a melhor terapia é a terapia
+---
+talvez você se encontre aqui Isabela
+---
+Senhor, o seu café esfriou. 
+Gostaria de se retirar?
+---
+adultos ficam tão maduros 
+tão maduros 
+que acabam ficando podres
+---
+vocês têm dado meus primeiros passos
+---
 transforme traumas em alívio 
 transforme traumas em alívio 
 transforme traumas em alívio
