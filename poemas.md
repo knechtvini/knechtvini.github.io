@@ -13,9 +13,8 @@ O CLÁSSICO
 
 existe poeta de uma poesia só?
 ---
-poesia é a verdadeira 
-natureza do tempo com
-legenda sincronizada
+poesia é a verdadeira natureza do tempo 
+com legenda sincronizada
 ---
 mistério mistério 
 esta falta de 
