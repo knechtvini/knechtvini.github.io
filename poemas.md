@@ -1,6 +1,102 @@
 ---
 layout: default
 ---
+GETTING INTO THE SWING... 
+(AND KINGS OF CONVENIENCE)
+
+no isolamento da noite se encontram 
+desses desencontros ele tem voz
+de fantasma em sussurros do além 
+ela tem voz de anjo em melodias celestiais
+ele pensa que está vivo no frenesi das sombras
+ela pensa que está morta no lamento
+dos suspiros então esta noite entre 
+perpétuas e murinhos
+eles vão dançar o bom e velho rei da conveniência 
+ressoando cada um à sua maneira em um dueto figurado 
+ele ecoa notas perdidas assombrado pelo passado 
+ela entoa harmonias transcendendo o presente 
+mas qual é a diferença então esta noite 
+a pista é o palco deles onde todos os mistérios 
+se movimentam 
+“porque eu não li nenhum livro o ano inteiro 
+e o único filme que eu vi não gostei nem um pouco 
+eu prefiro dançar a conversar com você”
+---
+um segundo após um século de amor
+---
+deixa um escritor inspirado 
+o deixando sem palavras
+---
+me arrependo de amar você
+---
+nunca sinta alguém por
+sentimentos de outros
+---
+PRELIMINARES
+
+promessa de prazer não quero ouvir 
+mais um arrepio uma chama mais que 
+as outras sus surra num embriagado 
+amarrado e desvendado agora começa
+a boca dela... 
+a voz dela...
+o que entra nela...
+o que sai dela... 
+uma poesia
+---
+LAS POESIAS
+
+vocês já sabem o que acontece
+em Poesias não fica só
+em Poesias
+---
+amor feijão com maionese
+---
+você entendeu tudo errado
+
+você disse com todas as letras o tempo todo 
+que queria morar comigo ter filhos comigo
+que me amava e que queria ficar comigo 
+para sempre
+
+mas não literalmente Vinícius 
+você confundiu as coisas
+---
+olha eu sei as coisas não têm sido fáceis
+entre a gente por isso decidi fazer algo 
+diferente comprei duas passagens para 
+Paris
+
+eu não sei onde você quer chegar com isso 
+Vinícius
+
+PARIS!
+---
+dos melhores arrependimentos
+ter entrado em você
+---
+abanar meu corpo pois estou toda sua
+---
+AMORES MODERNOS
+
+amei te conhecer sério
+e então
+então estava pensando 
+será que poderíamos 
+dar um tempo?
+---
+sentimentos errados
+em artistas certos
+---
+tua boca tuas pernas 
+teu cabelo teu sexo 
+meus olhos minha poesia 
+líquida minha poesia 
+mais lúcida que nosso amor
+---
+pombos abandonados
+---
 ela disse que minhas maiores qualidades 
 são meus defeitos vai entender
 ---
