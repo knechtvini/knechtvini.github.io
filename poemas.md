@@ -1,6 +1,52 @@
 ---
 layout: default
 ---
+entre fique na vontade 
+não repara estou te 
+amando está uma 
+bagunça
+---
+descobri não me apaixonava por mim 
+porque não queria nada sério
+---
+tomara que o amor nunca mais 
+encoste um dedo em você
+---
+não sei se fui o melhor ou 
+apenas o preferido
+---
+você não quer me conhecer melhor
+você só quer pistas para 
+solucionar poesia
+---
+JULIA DREAM
+
+trocamos olhares agora 
+tenho olhos azuis
+---
+ANTES DO AMANHECER
+
+perguntas despidas são mais importantes 
+do que respostas vestidas para impressionar
+---
+muito amor pouca mídia
+---
+talvez você se encontre aqui Vivian
+---
+AMOR
+
+aquilo que supera amizade
+---
+AMIZADE
+
+aquilo que supera amor
+---
+espere só mais um pouquinho a noite
+não está escura o bastante para nós 
+dois
+---
+você não sabe com quem está amando
+---
 foi amor à última vista
 ---
 quinze goles de café
