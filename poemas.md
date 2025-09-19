@@ -1,6 +1,112 @@
 ---
 layout: default
 ---
+transforme traumas em alívio 
+transforme traumas em alívio 
+transforme traumas em alívio
+---
+O TITANIC
+
+para saber o rumo 
+que vou tomar 
+preciso saber
+do rumo 
+de outras pessoas
+---
+lá no interior 
+bem lá no interior 
+minha vida sempre foi 
+motivo de piada
+---
+O SHOW DE
+
+nunca fui amor
+de ninguém só
+entretenimento
+---
+quando 
+me vejo 
+apenas
+lembranças 
+me sinto 
+bonito
+---
+homem único animal 
+que aprecia ver 
+outra alma 
+incen 
+dia
+ndo
+---
+eu juros a tristeza
+e a melancolia moram
+nos meus olhos mas
+vejam bem elas sempre 
+moraram
+e hoje cobro bem caro 
+o aluguel
+---
+às vezes lembram quem nunca fui
+e me esqueço
+---
+sou fantasma inútil onde pousam anjos
+---
+muitos torcem pelo seu fracasso 
+outros lutam por ele
+---
+não é vergonha pedir ajuda 
+não é vergonha implorar ajuda 
+não é vergonha exigir ajuda
+---
+você nunca esteve preocupada 
+em saber como eu estava
+você só esteve curiosa 
+em saber se eu 
+ainda
+estava vivo
+---
+não está pior porque está sendo filmado 
+está pior – e – está sendo filmado
+---
+dinheiro compra euforia
+que compra ganância que
+compra guerras que vende 
+doenças que com o tempo
+tenta comprar o tempo
+---
+lutam melhor 
+os que tiveram 
+os piores 
+pesadelos
+---
+não me mato 
+me floresto
+---
+guitarras do Kurt Cobain ainda estão afinadas
+---
+todas as vezes em que penso desistir
+repito a frase
+você não precisa decidir isso agora 
+você não precisa decidir isso agora 
+você não precisa decidir isso agora
+---
+a baleia disse
+para nunca subesti 
+mar alguém que 
+mesmo numa pro 
+funda depressão
+
+Continua…
+---
+pessoas costumam ficar
+o tempo todo lembrando 
+que falhei
+daí me sinto
+na obrigação 
+de lembra-las 
+que também falharam
+e detesto ter que fazer isso
+---
 1994
 
 talvez apenas 
