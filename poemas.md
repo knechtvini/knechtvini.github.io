@@ -1,6 +1,110 @@
 ---
 layout: default
 ---
+meus livros serão 
+compartilhados 
+pelo Sol
+daqui a bilhões de anos 
+a evolução de uma estrela 
+com a sua morte
+---
+às vezes um pai au 
+sente é sempre pres 
+ente
+---
+você me pregou
+de surpresa 
+agora tenho que 
+sofrer mais rápido
+---
+sempre me escondi bem lá
+no fundo esperando 
+me encontrar
+---
+mas calma você não precisa
+se apavorar pois até
+o momento não detectaram
+nenhuma estrela 
+com condições de se tornar 
+uma supernova
+nas redondezas da Terra
+a mais próxima que tivemos 
+explodiu-se
+em 5 de abril de 1994
+---
+você está estritamente proibida
+de desenvolver uma depressão 
+neste ambiente de trabalho
+---
+chuva para secar as lágrimas
+---
+um filme dramático 
+que virou comédia 
+por ser um péssimo filme
+é assim que eu vejo a vida
+---
+exibiam seus 
+desprezos 
+inúmeras fotos
+de jovens mulheres 
+velhas esposas 
+cotidianamente 
+na guerra 
+fotografias 
+ao fundo tanques
+de lavar roupas 
+limpas
+---
+estou em ruínas 
+há mais de trinta anos 
+alma mutilada 
+mente não restaurada 
+conservado em ruínas
+para que ninguém
+possa culpar-me 
+de não ter
+sofrido o bastante
+---
+esperando-a se confessar mais fraca
+---
+torturar o Diabo seria pecado? 
+---
+maior facilidade em engolir comprimidos maiores
+---
+Kundera disse que poder viver 
+apenas uma vida é como não
+viver nunca 
+Vinícius disse que morrer
+apenas uma vez na vida
+é como não morrer nunca
+---
+escrevo compulsiva 
+mente para me sentir 
+menos consciente
+---
+se está melhor talvez já nem percebe
+---
+sentimos tão pouco e pessoas nos dão menos
+---
+sua sensibilidade
+olha para sua intensidade 
+que toca sua depressão 
+que beija sua ansiedade 
+que penetra na sua arte
+---
+por que você não consegue criar outras personagens
+
+porque todas acabariam sendo eu mesma
+---
+eu mesmo já morri 
+aos trinta 
+e virei um urubu
+sobrevoando 
+atrás de 
+poesias mortas 
+que nunca foram
+veladas
+---
 longe de serem 
 mais sensatos 
 depois de mortos 
