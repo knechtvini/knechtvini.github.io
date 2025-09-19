@@ -1,6 +1,82 @@
 ---
 layout: default
 ---
+acadêmico estudioso dedicado 
+visitou dezenas 
+de clínicas psiquiátricas 
+todas elas paciente
+---
+morrendo fazendo o que mais gosto viver
+---
+cada um com 
+a sua utopia 
+a minha é sobreviver
+---
+como a natureza ousa invadir os humanos
+---
+ALHO E ÓLEO SOBRE TELA
+
+Nome: Pedra
+Data: No meu caminho
+---
+A PEDRA
+
+sempre lembro de uma amável e magnífica frase de Goethe
+que me inspira nos dias mais bem-aventurados 
+e com tamanha emoção reflito
+“muitas vezes gostaria de rasgar o peito e golpear o crânio
+por sermos tão poucos uns para os outros”
+
+acho que o caminho é por aí
+---
+oportunidade de ouro
+para você ficar mais pobre
+---
+você tem dom vocação muito talento
+
+você está sendo injusta com meu sofrimento
+---
+sem se despedir
+de ninguém porque
+há mais de vinte anos 
+que vive ali 
+sente-se sozinho
+---
+espécie de poesia nativa
+que reconstitua o sentimento 
+que foi destruído
+---
+DEPRESSÃO
+
+por Ana Claudia Quintana Arantes Henry Charles Bukowski
+e Vinícius Knecht
+
+é claro que você já ouviu que
+a depressão é o câncer da alma
+
+2.
+eu gostaria de escrever para o pássaro azul 
+que está se sentindo
+o pássaro mais solitário do mundo 
+neste momento 
+eu diria fique aí eu vou lhe mostrar
+o mundo olhe este mundo 
+que não merece ver você
+
+1.
+Ana Claudia encontrou a melhor explicação de depressão 
+imagine então uma pessoa curada do câncer 
+que se sente completamente infeliz
+estando viva
+
+3.
+crises periódicas do fígado 
+pulei do décimo quarto salário 
+é claro que você já ouviu 
+que a depressão é o câncer da alma 
+e se eu rastejasse direto para as suas pernas... 
+veria então… o que eu vejo agora?
+---
 preciso construir 
 um cemitério 
 para passarinhos 
