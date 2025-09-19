@@ -1,6 +1,16 @@
 ---
 layout: default
 ---
+CORTA PARA:
+INTERIOR. APARTAMENTO DE LINDA – NOITE
+
+LINDA. Precisamos conversar. Eu tenho algo.
+VINÍCIUS. O que houve?
+LINDA. Acabou, Vini... eu quero terminar. 
+VINÍCIUS. Mas aconteceu alguma coisa? 
+Sério. Não precisava disso.
+LINDA. É só uma lembrancinha...
+---
 acadêmico estudioso dedicado 
 visitou dezenas 
 de clínicas psiquiátricas 
