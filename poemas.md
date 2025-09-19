@@ -1,6 +1,54 @@
 ---
 layout: default
 ---
+você mostrou sua cidade 
+eu mostrei meu mundo 
+e sempre vou me perdoar por isso
+---
+sabe você é uma pes soa boa demais
+para mim
+
+então o que fazer para me tornar pior
+---
+Eu gostei do poema, Vinícius, mas... 
+você está desejando a minha morte, 
+é isso mesmo?
+---
+JULIETTE BINOCHE
+
+então assisto um filme
+e não vejo 
+a atriz
+na manhã do dia seguinte
+---
+não estou tão envolvido 
+você sabe que não sou um grande tolo 
+não por você você não me tem na sua mão
+eu sei que isso não vai se prolongar 
+But I’m in so deep
+You know I’m such a fool for you 
+You got me wrapped around your finger
+Do you have to let it linger? 
+Do you have to,
+do you have to,
+do you have to let it linger
+---
+STATIC BLOOM
+
+Todas as pessoas por quem você 
+já sentiu atração amorosa
+na vida estão chegando.
+Uma a uma.
+Em ordem de intensidade. 
+Os seus maiores amores aparecem primeiro.
+Mas não é um funeral
+— é uma festa.
+A sua grande festa. 
+Teoricamente, você dançaria com a primeira.
+Mas, por algum motivo 
+que ninguém sabe explicar, 
+você dançou apenas com a última.
+---
 pobre Gatsby
 ---
 a melhor terapia é a terapia
