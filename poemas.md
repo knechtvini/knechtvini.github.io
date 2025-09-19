@@ -1,6 +1,119 @@
 ---
 layout: default
 ---
+SEIS
+
+decidi que meu sangue 
+de inocência
+aos sorrisos dos olhos
+virão no dia 
+do meu aniversário 
+estou velho demais
+para impedir
+anseio pelo descanso 
+e que não chegue
+no meio da noite 
+então lamente 
+apenas duas vezes 
+no mesmo dia
+---
+seria clichê demais terminar mal
+no final
+---
+morte es cura
+---
+a dor está no ar
+---
+a minha sorte 
+que não alcanço 
+o teto
+e não dou corda 
+para as cadeiras
+---
+o fim de um
+novo começo
+o começo de 
+um novo fim
+---
+se eu escrever não chores não 
+é só poesia
+---
+tenho cicatrizes imaginárias
+---
+O QUADRO
+
+como você decora 
+tudo que você sente
+---
+mamãe um dia entenderá 
+que eu poderia 
+ter partido
+muito antes
+---
+estou guardado nas nuvens 
+do seu drive
+---
+de vez em quando sinto 
+a sua falta por ex
+nas novas despedidas 
+atuais rejeições 
+humilhações
+você costumava estar lá
+---
+confesse você chorou com outro ontem
+---
+você me preparou um belo café 
+mas não me preparou para 
+terminar
+---
+é hora de bater o ponto
+.
+..
+é hora de ir para casa 
+é hora de bater as asas
+o céu espera a coragem.. .
+---
+este poeta não me passa 
+uma energia muito boa
+
+é muita gente deve ter 
+morrido ali dentro
+---
+no meu aniversário 
+ela deu um passado
+de presente
+---
+um ridículo
+com repertório ;)
+---
+fizemos tantos planos
+e agora penso em um plano 
+para estar em outro plano
+---
+saiu da sala do psicólogo 
+a mãe que conseguiu ouvir 
+tudo lá do lado de fora e 
+não fazia ideia de como 
+era lá dentro disse
+“você não deveria ter dito aquilo”
+---
+o que vocês ainda esperam de mim
+eu já não escrevi o insuficiente?
+---
+livro conta a história 
+de uma criança deficiente 
+visual que descobre
+o superpoder
+de poder enxergar
+---
+O Poema Continua...
+
+em cada acidente cotidiano
+um artista emergê
+---
+A morte te convida para ficar.
+Você não sabe o que a resposta significa.
+---
 pobre Gatsby
 ---
 e foi então que Deus inventou 
