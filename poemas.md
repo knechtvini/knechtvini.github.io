@@ -1,7 +1,129 @@
 ---
 layout: default
 ---
-eu não quero que a minha filha 
+longe de serem 
+mais sensatos 
+depois de mortos 
+em cima d’eles 
+imitações de palácios 
+ostentando 
+supostas 
+importâncias
+---
+depressão versa sobre 
+não conseguir ouvir
+seus próprios silêncios
+---
+súbitas ondas de ódio
+o mar é tão gentil...
+---
+atualmente o mais triste 
+plantado naquele cemitério
+---
+amar você foi ir até o hospital 
+por conta de uma espinha
+e ser internado
+---
+queria tanto não ter o que dizer
+naquele instante
+---
+nos extremismos 
+luz intensa que cega
+ou escuridão total
+---
+era como ter sua mãe
+no ventre e ouvi-la 
+implorar
+para que ele
+não abandonasse 
+sua alma
+era como ter sua mãe
+no ventre e ouvi-la 
+gargalhar 
+para que sua alma
+não o abandonasse
+---
+teve oito pretendentes
+
+o primeiro era mais bonito
+o segundo mais espirituoso
+o terceiro mais rico
+o quarto mais esportivo
+o quinto de uma família melhor
+o sexto lhe recitava versos que criara 
+até publicar o seu terceiro livro
+o sétimo viajara pelo mundo inteiro
+o oitavo era o mais viril dos homens 
+
+adivinhe o primeiro a ser rejeitado
+
+dica 
+todos se ajoelhavam da mesma maneira
+mas só um tinha... belas bolhas...
+---
+fizeram um filho sem dizer uma só palavra
+---
+pus-me na 
+sua sombra 
+e o sol
+desaparecera 
+ponha-se
+no meu lugar
+---
+amor NO SIGNAL
+---
+eu vou do inferno ao seu
+---
+não tinha 
+a menor ideia
+de qual olhar
+e o que 
+aquele olhar
+lhe ameaçava 
+mas instintivamente 
+cismava
+em tentar 
+se defender
+---
+ainda que sus
+surrando 
+era ordem
+---
+arremessaram uma corda 
+para tirar 
+aquele artista 
+do fundo do poço 
+mas ele usara
+da forma mais triste
+---
+era dia claro a razão ven 
+céu
+---
+eu sinto muito a sua fala
+---
+parei de ficar
+jogando as coisas 
+por aí 
+porque sou 
+muito frágil
+---
+dores passando pano 
+para outras dores
+---
+Vinícius Knecht anuncia que
+vai se aposentar como poeta 
+porque Xavier Dolan
+vai se aposentar como cineasta
+
+POR FALTA DE APOIO
+---
+me questiono 
+se minhas poesias
+são ruins 
+e eu sei que não são
+---
+eu não quero 
+que a minha filha 
 chegue perto
 da sua poesia 
 você entendeu
