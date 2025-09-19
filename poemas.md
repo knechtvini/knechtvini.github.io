@@ -11,9 +11,7 @@ poesia é teste de defesa planetária
 ---
 O CLÁSSICO
 
-existe poeta 
-de uma poesia 
-só?
+existe poeta de uma poesia só?
 ---
 poesia é a verdadeira 
 natureza do tempo com
