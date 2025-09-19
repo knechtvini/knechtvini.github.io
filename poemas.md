@@ -1,6 +1,31 @@
 ---
 layout: default
 ---
+River Phoenix certo dia escreveu
+corra para o resgate com amor
+e paz se seguirá 
+
+eu seguiria com 
+corra para o amor com ódio
+e amor te perseguirá
+---
+a arte nunca começou
+---
+até um bicho lida com a arte
+---
+hoje artistas pioram 
+suas artes para 
+fazer mais 
+sucesso
+---
+tempo em tempo 
+mim a mim
+anos e anos 
+tantos e tantos
+mins
+---
+distraídos escreveremos
+---
 se não existe existo
 sou autobiográfico 
 na minha
