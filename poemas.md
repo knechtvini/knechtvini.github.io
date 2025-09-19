@@ -1,6 +1,165 @@
 ---
 layout: default
 ---
+a diferença era que 
+ele só a visitava 
+no sol
+e ela visitava ele 
+no atemporal
+---
+adultos brincam de esconde- 
+esconde para chorar
+em banheiros
+---
+FLASHBACK ANTES DA MORTE
+
+melhores momentos 
+ou maiores arrependimentos?
+---
+só precisava me esconder mas só tinha meu corpo
+---
+dancei com depressão 
+me senti herói
+de guerra
+
+UNDER PRESSURE
+---
+Querida,
+Você está esperando o amor 
+E não a morte.
+
+Ass: V.K.
+---
+pode ler minha mente 
+mas não uso vírgulas
+---
+acabei de receber a notícia 
+de que ele se matou estou 
+em choque
+
+mas ele se vitimizava 
+o tempo todo né amiga
+---
+olha para ele ele está visivelmente deprimido
+
+hum não acho que esteja tão visível assim
+---
+vendendo minha arte 
+tanto quanto 
+dizem que Van Gogh 
+vendia a sua
+---
+quem sou eu 
+para falar assim
+comigo desse jeito
+---
+não basta ser pesadelo 
+tenho que estar 
+num labirinto
+---
+para alguns solitários 
+noites serão 
+mais lembradas 
+que companhias
+---
+você vive com sono Vinícius?
+
+na verdade eu vivo com ansiedade
+e falta de ar você respira fundo 
+quando boceja e joga mais oxigênio 
+nos pulmões ou seja
+eu bocejo para respirar melhor 
+entendeu agora
+---
+frestas da janela 
+festas da solidão
+---
+RADIOHEAD EM RIMA
+
+Let Down 
+no meu funeral
+---
+DOIS DIAS ANTES DA PRÓXIMA CONSULTA
+
+“Droga Agora Começou A Tocar Hallelujah 
+Versão De Jeff Buckley” 
+
+“ Droga Agora Começou A Tocar Hurt
+Versão De Johnny Cash”
+---
+DOIS DIAS ANTES DA PRÓXIMA CONSULTA
+
+Já É Quarta-Feira 
+E Não Escrevi Nada 
+Que Preste Na Vida
+---
+então eu vim tentar
+a terapia 
+para ver se ela
+me supera
+---
+se a vista da janela 
+for assustadora 
+faça de conta que 
+é um quadro
+---
+medo de descobrir 
+os segredos
+da vida 
+e a vida 
+me punir por isso
+---
+um dia um passarinho me contou 
+que voar nunca foi 
+um sonho dele
+---
+um dia o mar me disse que
+no fundo ser alguém 
+é saber mergulhar
+---
+a poesia não me paga
+mas também não me apaga
+---
+depressão e ansiedade juntas
+é esconder-se de um ladrão 
+que acabou de te roubar 
+no mesmo lugar 
+em que o ladrão
+está se escondendo
+---
+quanto às suas dores 
+quem vai falar delas 
+senão você?
+---
+dos piores inimigos 
+dificilmente ficaremos sabendo
+---
+comuniquem minha família 
+meus amigos e demais conhecidos 
+que ainda estou para nascer
+---
+papai por que às vezes os amigos somem?
+perguntei a mim 
+fingindo ter um filho
+---
+DESCARTO O SEGUINTE POEMA
+
+penso que logo logo vou existir
+---
+penso logo desisto 
+---
+ao vivo
+nem sempre 
+é mais colorido
+---
+era poeta e ninguém fazia muita questão
+---
+ele perdoa 
+pessoas 
+sem que elas 
+tenham pedido 
+desculpa
+---
 comecei a escrever 
 porque queria ajudar
 a pessoa mais triste 
