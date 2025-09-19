@@ -1,6 +1,75 @@
 ---
 layout: default
 ---
+PIPOCA
+
+imenso taBUH! 
+rápido limpo e indolor
+poesia no papel de vítima 
+entretom naturalista 
+antientretenimento
+puro observador sensível 
+e sombrio 
+talento pre co çando
+a garganta 
+morbidez ou poesia 
+ombro deslocado da realidade
+louco excesso de lucidez 
+hipersensibilidade ao mundo 
+um abraço de des
+pedida
+de monóxido de carbono 
+
+(em memória de Yoñlu)
+---
+a morte foi uma surpresa 
+com alarmes tocando
+No Surprises
+---
+artista que só
+tentava chamar 
+atenção de todo 
+aquele mundo
+que sempre 
+fazia questão
+de mata-lo
+---
+é real mas não significa que você precisa sentir
+---
+você já reparou que as pessoas 
+não estão falando muito sobre?
+
+não
+
+é porque você não reparou
+---
+toda a vida dele era escrita
+e apagaram
+---
+amigo imaginário da infância voltou armado
+---
+PÂNICO
+
+sentir coração 
+uma Ferrari 
+descontrolada 
+batendo em ar…es
+---
+fotografias tirando pessoas
+---
+emoções públicas e emoções privadas
+---
+querida seja a melhor paciente
+com o tempo você será apenas 
+cliente
+---
+seu animal político apenas um animal
+---
+doutor eu tenho quanto tempo de morte
+---
+no trabalho o chefe chama a atenção
+“se liga nisso você anda sempre desligada”
+---
 meus livros serão 
 compartilhados 
 pelo Sol
