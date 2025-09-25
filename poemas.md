@@ -5,6 +5,14 @@ Qual o sentido da vida?
 
 Sim.
 ---
+por que 
+não podem 
+viver de 
+suas escritas
+como 
+antigamente 
+viviam?
+---
 River Phoenix certo dia escreveu
 corra para o resgate com amor
 e paz se seguirá 
