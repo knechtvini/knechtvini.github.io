@@ -1,6 +1,10 @@
 ---
 layout: default
 ---
+Qual o sentido da vida?
+
+Sim.
+---
 River Phoenix certo dia escreveu
 corra para o resgate com amor
 e paz se seguirá 
