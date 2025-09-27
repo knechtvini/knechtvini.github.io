@@ -5,6 +5,12 @@ Qual o sentido da vida?
 
 Sim.
 ---
+Parem De Pedir Experiência Vocês Não Têm Vergonha Na Cara? (2025, A24)
+---
+- Estarei em média pelas 20 horas lá! Até! Abraço!
+---
+Empresta Uma Folha Eu Quero Escrever Um Livro
+---
 por que 
 não podem 
 viver de 
