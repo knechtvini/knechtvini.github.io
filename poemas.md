@@ -3,6 +3,18 @@ layout: default
 ---
 estou começando a achar que eu te imagino o tempo todo
 ---
+Ele é aquele cara cujos pais queriam que chegasse antes das 6h em casa.
+---
+Vinícius escrevendo poesia me dá mais cinco anos de vida. 
+
+Assinado: Vinícius K.
+---
+Uma vez fiquei tão chapado que comecei a chorar por causa do talento da Caroline.
+---
+E foi nesse olhar que o nosso amor passou de razoável para brilhante.
+---
+Não aceite menos que Beatles. Feliz aniversário.
+---
 Deixe o solo de Comfortably Numb até terminar o último sexo. 
 E daí sim, poderei me despedir com toda a força.
 ---
