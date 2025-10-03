@@ -1,6 +1,11 @@
 ---
 layout: default
 ---
+estou começando a achar que eu te imagino o tempo todo
+---
+Deixe o solo de Comfortably Numb até terminar o último sexo. 
+E daí sim, poderei me despedir com toda a força.
+---
 se eu posso voar deixa eu acreditar
 ---
 Sou apenas um espírito sob efeito de remédios controlados.
