@@ -1,6 +1,16 @@
 ---
 layout: default
 ---
+Duas almas que são imperfeitas uma para a outra.
+---
+poesia me deixe em paz eu também tenho uma vida
+---
+É injusto como tantas pessoas tão talentosas não podem existir.
+---
+aqui cada detalhe passa despercebido enquanto vivo
+---
+não se preocupe com a hora agora você vai morrer
+---
 Qual o sentido da vida?
 
 Sim.
