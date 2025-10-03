@@ -1,6 +1,13 @@
 ---
 layout: default
 ---
+se eu posso voar deixa eu acreditar
+---
+Sou apenas um espírito sob efeito de remédios controlados.
+---
+Na hora de finalizar... Na hora de entregar o livro... 
+A história é outra.
+---
 Duas almas que são imperfeitas uma para a outra.
 ---
 poesia me deixe em paz eu também tenho uma vida
@@ -19,6 +26,8 @@ enquanto dança
 eu quis dizer 
 enquanto canta
 ---
+escreva por mim eu preciso de outra coisa
+---
 Qual o sentido da vida?
 
 Sim.
@@ -36,6 +45,9 @@ suas escritas
 como 
 antigamente 
 Vivian
+---
+hoje o dia tá produtivo 
+mas já passou da meia-noite
 ---
 River Phoenix certo dia escreveu
 corra para o resgate com amor
