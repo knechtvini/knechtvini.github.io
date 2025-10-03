@@ -19,7 +19,7 @@ Vinícius escrevendo poesia me dá mais cinco anos de vida.
 
 Assinado: Vinícius K.
 ---
-Uma vez fiquei tão chapado que comecei a chorar por causa do talento da Caroline.
+Uma vez fiquei tão chapado que comecei a chorar por causa do talento da Clarice.
 ---
 E foi nesse olhar que o nosso amor passou de razoável para brilhante.
 ---
