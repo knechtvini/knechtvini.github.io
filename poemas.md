@@ -11,6 +11,14 @@ aqui cada detalhe passa despercebido enquanto vivo
 ---
 não se preocupe com a hora agora você vai morrer
 ---
+parece que ela 
+está sorrindo 
+para mim 
+enquanto dança 
+
+eu quis dizer 
+enquanto canta
+---
 Qual o sentido da vida?
 
 Sim.
