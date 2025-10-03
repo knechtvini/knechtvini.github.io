@@ -1,9 +1,19 @@
 ---
 layout: default
 ---
+ORGASMO É OVERDOSE DE POESIA
+---
 estou começando a achar que eu te imagino o tempo todo
 ---
 Ele é aquele cara cujos pais queriam que chegasse antes das 6h em casa.
+---
+eu quero que você termine a minha poesia com a mesma sensação 
+de quando você acaba de sair de um banho relaxante e vai dormir 
+em uma cama com um conjunto de travesseiros e lençóis novos.
+---
+o que foi
+
+nada não apenas estou olhando para a sua alma
 ---
 Vinícius escrevendo poesia me dá mais cinco anos de vida. 
 
@@ -35,6 +45,8 @@ aqui cada detalhe passa despercebido enquanto vivo
 ---
 não se preocupe com a hora agora você vai morrer
 ---
+O vilão pode acertar a qualquer momento.
+---
 parece que ela 
 está sorrindo 
 para mim 
@@ -44,6 +56,8 @@ eu quis dizer
 enquanto canta
 ---
 escreva por mim eu preciso de outra coisa
+---
+será que eu posso falar? hoje eu comemoro minha morte
 ---
 Qual o sentido da vida?
 
