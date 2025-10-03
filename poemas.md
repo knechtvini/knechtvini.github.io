@@ -1,7 +1,14 @@
 ---
 layout: default
 ---
-ORGASMO É OVERDOSE DE POESIA
+beijo poesia sublingual
+---
+PROMOÇÃO
+
+Livro Amarelando blue
+De 239,90 por 70,00
+---
+orgasmo é overdose de poesia
 ---
 estou começando a achar que eu te imagino o tempo todo
 ---
@@ -64,6 +71,8 @@ Qual o sentido da vida?
 Sim.
 ---
 Parem De Pedir Experiência Vocês Não Têm Vergonha Na Cara?
+---
+Não Vou Pausar Minha Playlist Para Escutar O Teu Grito De Socorro
 ---
 - Estarei em média pelas 20 horas lá! Até! Abraço!
 ---
