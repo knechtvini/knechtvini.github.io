@@ -5,7 +5,7 @@ Qual o sentido da vida?
 
 Sim.
 ---
-Parem De Pedir Experiência Vocês Não Têm Vergonha Na Cara? (2025, A24)
+Parem De Pedir Experiência Vocês Não Têm Vergonha Na Cara?
 ---
 - Estarei em média pelas 20 horas lá! Até! Abraço!
 ---
@@ -17,7 +17,7 @@ viver de
 suas escritas
 como 
 antigamente 
-viviam?
+Vivian
 ---
 River Phoenix certo dia escreveu
 corra para o resgate com amor
