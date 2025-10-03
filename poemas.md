@@ -1,6 +1,11 @@
 ---
 layout: default
 ---
+Lançamento de Amarelando blue (Editora Bestiário) 
+e sessão de autógrafos com Vinícius Knecht 
+na Feira do Livro de Porto Alegre 2025
+12 de novembro, às 19h.
+---
 beijo poesia sublingual
 ---
 PROMOÇÃO
