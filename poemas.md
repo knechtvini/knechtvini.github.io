@@ -1,10 +1,11 @@
 ---
 layout: default
 ---
+PROGRAMAÇÃO VINÍCIUS KNECHT
 FEIRA DO LIVRO DE PORTO ALEGRE 2025
-Lançamento de Amarelando blue
+Lançamento de AMARELANDO BLUE
 e sessão de autógrafos
-12/11 19:00
+12/11/2025 QUARTA-FEIRA 19:00
 ---
 beijo poesia sublingual
 ---
