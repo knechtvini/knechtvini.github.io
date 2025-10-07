@@ -9,7 +9,7 @@ e sessão de autógrafos
 
 12/11/2025 QUARTA-FEIRA 19:00
 
-+ distribição de exemplares gratuitos
++ distribuição de exemplares gratuitos
 ---
 beijo poesia sublingual
 ---
