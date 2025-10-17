@@ -31,47 +31,65 @@ De 239,90 por 70,00
 ---
 orgasmo é overdose de poesia
 ---
-estou começando a achar que eu te imagino o tempo todo
+estou começando a achar que eu 
+te imagino o tempo todo
 ---
-Ele é aquele cara cujos pais queriam que chegasse antes das 6h em casa.
+Ele é aquele cara cujos pais queriam 
+que chegasse antes das 6h em casa.
 ---
-eu quero que você termine a minha poesia com a mesma sensação 
-de quando você acaba de sair de um banho relaxante e vai dormir 
-em uma cama com um conjunto de travesseiros e lençóis novos.
+eu quero que você termine a minha poesia 
+com a mesma sensação de quando você 
+acaba de sair de um banho relaxante 
+e vai dormir em uma cama com um conjunto 
+de travesseiros e lençóis novos.
 ---
-o que foi
-
-nada não apenas estou olhando para a sua alma
+— o que foi?
+— nada não. só estou olhando para a sua alma.
 ---
-Vinícius escrevendo poesia me dá mais cinco anos de vida. 
+Vinícius escrevendo poesia 
+me dá mais cinco anos de vida. 
 
 Assinado: Vinícius K.
 ---
-Uma vez fiquei tão chapado que comecei a chorar por causa do talento da Clarice.
+Uma vez fiquei tão chapado que 
+comecei a chorar por causa do 
+talento da Clarice.
 ---
-E foi nesse olhar que o nosso amor passou de razoável para brilhante.
+E foi nesse olhar que o nosso amor 
+passou de razoável para brilhante.
 ---
-Não aceite menos que Beatles. Feliz aniversário.
+Não aceite menos que Beatles.
 ---
-Deixe o solo de Comfortably Numb até terminar o último sexo. 
-E daí sim, poderei me despedir com toda a força.
+Deixe o solo de Comfortably Numb 
+até terminar 
+o último sexo. 
+E daí sim, poderei me despedir 
+com toda a força.
 ---
-se eu posso voar deixa eu acreditar
+se eu posso voar 
+deixa eu acreditar
 ---
-Sou apenas um espírito sob efeito de remédios controlados.
+Sou apenas um espírito sob efeito 
+de remédios controlados.
 ---
-Na hora de finalizar... Na hora de entregar o livro... 
+Na hora de finalizar... 
+Na hora de entregar o livro... 
 A história é outra.
 ---
 Duas almas que são imperfeitas uma para a outra.
 ---
-poesia me deixe em paz eu também tenho uma vida
+poesia me deixe em paz 
+eu também tenho uma vida
 ---
-É injusto como tantas pessoas tão talentosas não podem existir.
+É injusto como tantas pessoas tão talentosas 
+não podem existir.
 ---
-aqui cada detalhe passa despercebido enquanto vivo
+aqui cada detalhe passa 
+despercebido enquanto 
+vivo
 ---
-não se preocupe com a hora agora você vai morrer
+não se preocupe com a hora 
+agora você vai morrer
 ---
 O vilão pode acertar a qualquer momento.
 ---
@@ -85,19 +103,24 @@ enquanto canta
 ---
 escreva por mim eu preciso de outra coisa
 ---
-será que eu posso falar? hoje eu comemoro minha morte
+será que eu posso falar? 
+hoje eu comemoro minha morte
 ---
-Qual o sentido da vida?
-
-Sim.
+— qual o sentido da vida?
+— sim.
 ---
-Parem De Pedir Experiência Vocês Não Têm Vergonha Na Cara?
+Parem De Pedir Experiência 
+(Vocês Não Têm Vergonha Na Cara?)
+2025 ‧ Drama ‧ 1h 44m
 ---
-Não Vou Pausar Minha Playlist Para Escutar O Teu Grito De Socorro
+Não Vou Pausar Minha Playlist 
+Para Escutar O Teu Grito 
+De Socorro
 ---
-- Estarei em média pelas 20 horas lá! Até! Abraço!
+Estarei em média pelas 20 horas lá! Até! Abraço!
 ---
-Empresta Uma Folha Eu Quero Escrever Um Livro
+Empresta Uma Folha Eu 
+Quero Escrever Um Livro
 ---
 por que 
 não podem 
