@@ -22,8 +22,27 @@ e sessão de autógrafos
 
 + distribuição de exemplares gratuitos
 ---
-eles tiveram a oportunidade de entrar hoje 
-no antigo Titanic fictício que nunca afundou 
+Este poema se chama “Segue o roteiro”
+
+eles tiveram 
+a oportunidade 
+    de entrar hoje 
+no antigo 
+Titanic fictício 
+    que nunca afundou 
+---
+Este poema talvez vai se chamar 
+“Interpretando Euphoria”
+
+então ele escreve
+e canta uma música para ela 
+— e só
+das duas uma
+ou a série não deixa claro
+se o personagem está interessado 
+romanticamente nela
+ou então o personagem ainda 
+não sabe disso
 ---
 beijo poesia sublingual
 ---
