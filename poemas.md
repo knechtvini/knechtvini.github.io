@@ -44,6 +44,29 @@ romanticamente nela
 ou então o personagem ainda 
 não sabe disso
 ---
+eu não estou aguentando 
+de tanta dor de cabeça
+mas eu não consigo parar 
+de conversar contigo
+ele diz 
+eu também tô com dor 
+de cabeça e sono mas 
+parece que tem mil 
+coisas pra falar
+ela diz
+tem tem mesmo
+ele diz
+eu vou me mudar pra SC
+ela diz 
+mas a gente acabou de se 
+conhecer
+ele diz
+eu gosto de coisas velhas 
+ela diz
+eu também amo a minha 
+avó 
+ele diz
+---
 beijo poesia sublingual
 ---
 PROMOÇÃO
