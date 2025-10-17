@@ -31,7 +31,7 @@ no antigo
 Titanic fictício 
     que nunca afundou 
 ---
-Este poema talvez vai se chamar 
+Este poema talvez se chame
 “Interpretando Euphoria”
 
 então ele escreve
