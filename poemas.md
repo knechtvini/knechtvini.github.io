@@ -3,11 +3,11 @@ layout: default
 ---
 PROGRAMAÇÃO VINÍCIUS KNECHT
 
-Lançamento de Amarelando blue
 LAJEADO RS UNIVATES
+Lançamento de AMARELANDO BLUE
 
 DOMINGO 19.10.25 
-NO EVENTO GRAMADO CULTURAL 
+GRAMADO CULTURAL
 15h às 19h
 
 + distribuição de exemplares gratuitos
