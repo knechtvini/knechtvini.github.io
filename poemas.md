@@ -3,6 +3,17 @@ layout: default
 ---
 PROGRAMAÇÃO VINÍCIUS KNECHT
 
+Lançamento de Amarelando blue
+LAJEADO RS UNIVATES
+
+DOMINGO 19.10.25 
+NO EVENTO GRAMADO CULTURAL 
+15h às 19h
+
++ distribuição de exemplares gratuitos
+---
+PROGRAMAÇÃO VINÍCIUS KNECHT
+
 FEIRA DO LIVRO DE PORTO ALEGRE 2025
 Lançamento de AMARELANDO BLUE
 e sessão de autógrafos
