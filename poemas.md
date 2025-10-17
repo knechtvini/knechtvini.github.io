@@ -22,6 +22,9 @@ e sessão de autógrafos
 
 + distribuição de exemplares gratuitos
 ---
+eles tiveram a oportunidade de entrar hoje 
+no antigo Titanic fictício que nunca afundou 
+---
 beijo poesia sublingual
 ---
 PROMOÇÃO
