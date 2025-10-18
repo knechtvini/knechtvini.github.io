@@ -4,6 +4,7 @@ title: Fotografias
 permalink: /fotografias/
 photos:
   - url: https://lh3.googleusercontent.com/pw/AP1GczOsm8NliW3qAANdhkxJ1QbX9LPpYQtepPH8r8mKZD8hFTYZH9MftalBBxMOFixyijlvqsq9jfTqoxWKCcUM9DmSw_dxC0sxiJPiCaRKPownxZt1RR50=w2400
+  - url: https://lh3.googleusercontent.com/pw/AP1GczPYfE80lWyyKb4-cczvAyPYBS8oaspFMHqO-lTWp9EbygA_BGlQtG76YSqIJsjAIP8tNNe1ui0UVbuskSIfQ1MSXaDP5iT4YM0IP34l-QWt34gUhdvJ=w2400
   - url: https://lh3.googleusercontent.com/pw/AP1GczPdvWSg4F6k3uiLuSA5yND7tOV3Gqkkf3oRUDR-bvxume-vb9bT9xXV1E8hdnp3cnLIMLAxfZhFbls2kEfQZiP6hF17x5Q6qKF_-YN1LtsOGG818nRB=w2400
   - url: https://lh3.googleusercontent.com/pw/AP1GczN7K4zByCXdmFyNiE79K-tRmoIXczPIHnmKf4-C4rjHMEbAQHHLeFMZO5q52HeKK8Ep1kaYZSgOxNvNbZKxxyKXH8nIKJyQRd_r-PKajKPpJqp04C-6=w2400
   - url: https://lh3.googleusercontent.com/pw/AP1GczOG21NS5Otmn8SxdDnFai8ZjXi5DksQKaYo5p2l5WB7MUa_Fz4CKU3yoSY9haWQY3ia355EdBRZuVi4Ojw2q1Ys71A-fH3N_y_s6TN37zFmk8oNpoFw=w2400
