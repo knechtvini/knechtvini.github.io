@@ -1,8 +1,6 @@
 ---
 layout: default
 ---
-PROGRAMAÇÃO VINÍCIUS KNECHT
-
 LAJEADO RS UNIVATES
 Lançamento de AMARELANDO BLUE
 
@@ -12,8 +10,6 @@ GRAMADO CULTURAL
 
 + distribuição de exemplares gratuitos
 ---
-PROGRAMAÇÃO VINÍCIUS KNECHT
-
 FEIRA DO LIVRO DE PORTO ALEGRE 2025
 Lançamento de AMARELANDO BLUE
 e sessão de autógrafos
@@ -72,7 +68,7 @@ beijo poesia sublingual
 PROMOÇÃO
 
 Livro Amarelando blue
-De 239,90 por 70,00
+De 239,90 por 60,00
 ---
 orgasmo é overdose de poesia
 ---
