@@ -29,6 +29,12 @@ Comfortably Numb.
 
 Já imaginou poder dançar no seu próprio palco?
 ---
+— qual o conselho que você daria para 
+quem quer escrever um livro? 
+para começar.
+— para começar, nunca faça essa pergunta 
+a outro escritor.
+---
 eu acho que conheci uma Pessoa
 ---
 LAJEADO RS UNIVATES
