@@ -18,6 +18,17 @@ eu menti.
 eu não vou ao psicólogo. 
 eu vou ao psiquiatra.
 ---
+Imagine que seu pai é o David Gilmour. 
+Tipo, o melhor guitarrista da história. 
+E você está no palco fazendo o backing vocal para ele. 
+E ele sorri para você. 
+E tudo isso acontece enquanto vocês tocam 
+uma das melhores músicas já feitas. 
+
+Comfortably Numb. 
+
+Já imaginou poder dançar no seu próprio palco?
+---
 eu acho que conheci uma Pessoa
 ---
 LAJEADO RS UNIVATES
