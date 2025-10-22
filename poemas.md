@@ -1,20 +1,26 @@
 ---
 layout: default
 ---
+FEIRA DO LIVRO DE PORTO ALEGRE 2025
+Lançamento de AMARELANDO BLUE
+e sessão de autógrafos
+
+12/11/2025 QUARTA-FEIRA 19:00
+
++ distribuição de exemplares gratuitos
+---
+eu menti. 
+eu não vou ao psicólogo. 
+eu vou ao psiquiatra.
+---
+eu acho que conheci uma Pessoa
+---
 LAJEADO RS UNIVATES
 Lançamento de AMARELANDO BLUE
 
 DOMINGO 19.10.25 
 GRAMADO CULTURAL
 15h às 19h
-
-+ distribuição de exemplares gratuitos
----
-FEIRA DO LIVRO DE PORTO ALEGRE 2025
-Lançamento de AMARELANDO BLUE
-e sessão de autógrafos
-
-12/11/2025 QUARTA-FEIRA 19:00
 
 + distribuição de exemplares gratuitos
 ---
