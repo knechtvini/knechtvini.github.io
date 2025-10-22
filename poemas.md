@@ -9,6 +9,15 @@ e sessão de autógrafos
 
 + distribuição de exemplares gratuitos
 ---
+acho que hoje eu quero mais alguém 
+que confie em mim do que alguém 
+em quem eu possa confiar
+---
+hoje somos julgados até 
+por um choro bem dado
+---
+nunca foi tão fácil ser insuficiente
+---
 QUIERO CAFÉ
 
 — o que você gostaria de pedir?
