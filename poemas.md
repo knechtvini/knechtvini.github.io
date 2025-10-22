@@ -9,6 +9,11 @@ e sessão de autógrafos
 
 + distribuição de exemplares gratuitos
 ---
+QUIERO CAFÉ
+
+— o que você gostaria de pedir?
+— um café. não é óbvio?
+---
 eu menti. 
 eu não vou ao psicólogo. 
 eu vou ao psiquiatra.
