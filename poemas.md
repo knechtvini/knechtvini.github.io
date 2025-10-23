@@ -9,6 +9,13 @@ e sessão de autógrafos
 
 + distribuição de exemplares gratuitos
 ---
+na cena ele está sozinho no bar
+escrevendo o que acontece literalmente
+e muitas coisas estão acontecendo
+e o texto vai ficando (adjetivo aqui)
+
+mas é tudo apenas uma cena
+---
 — eu quero te ajudar.
 — você não quer me ajudar. 
 acredite.
