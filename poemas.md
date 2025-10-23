@@ -27,6 +27,11 @@ acho que hoje eu quero mais alguém
 que confie em mim do que alguém 
 em quem eu possa confiar
 ---
+— oi, amiga. que saudade eu sentia.
+sempre gostei tanto de você. você sabe.
+você deu uma engordadinha, né?
+como andam as coisas? conta tudo!
+---
 hoje somos julgados até 
 por um choro bem dado
 ---
