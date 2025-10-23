@@ -16,6 +16,12 @@ e o texto vai ficando (adjetivo aqui)
 
 mas é tudo apenas uma cena
 ---
+— manda algo que você escreveu há pouco?
+qualquer coisa, o que for.
+tô numa crise depressiva. sério.
+ler quem eu conheço me faz bem.
+— não me sinto à vontade pra compartilhar.
+---
 — eu quero te ajudar.
 — você não quer me ajudar. 
 acredite.
