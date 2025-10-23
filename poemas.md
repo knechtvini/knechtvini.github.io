@@ -9,6 +9,13 @@ e sessão de autógrafos
 
 + distribuição de exemplares gratuitos
 ---
+— eu quero te ajudar.
+— você não quer me ajudar. 
+acredite.
+— tá. querer eu não quero. 
+mas eu quero que você ache 
+que eu quero te ajudar.
+---
 acho que hoje eu quero mais alguém 
 que confie em mim do que alguém 
 em quem eu possa confiar
