@@ -9,6 +9,39 @@ e sessão de autógrafos
 
 + distribuição de exemplares gratuitos
 ---
+perco o amor
+mas não perco o poema
+---
+“I'm Vengeance. I Am The Shadows.”
+
+eu começo o poema
+pelo fim do encontro
+ela vai pra uma festa de halloween
+e ele volta pra casa
+pra assistir The Batman
+e então o poema continua
+eles falam sobre a morte
+num jantar com um hambúrguer
+dividido ao meio
+ele satisfeito
+já está completamente apaixonado
+ela obcecada
+pelo seu melhor amigo
+ex melhor amigo
+não vale a própria sombra
+enfim eles se despedem
+pela última vez
+ele volta pra casa
+e decide tirar a própria vida
+ela já está sabendo em choque 
+é claro
+e tudo fica ainda mais escuro
+e então
+na mesma noite
+ela se apaixona por ele
+já está completamente obcecada
+depois de ler isso.
+---
 na cena ele está sozinho no bar
 escrevendo o que acontece literalmente
 e muitas coisas estão acontecendo
