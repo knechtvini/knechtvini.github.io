@@ -73,6 +73,14 @@ depois de ler isso.
 minhas palavras você 
 nunca vai superar
 ---
+minha psicóloga insistia que 
+eu estudasse neurociência
+falava dos tantos cursos 
+gratuitos online
+meu psicólogo disse que 
+eu tinha potencial para 
+escrever contos eróticos
+---
 na cena ele está sozinho no bar
 escrevendo o que acontece literalmente
 e muitas coisas estão acontecendo
