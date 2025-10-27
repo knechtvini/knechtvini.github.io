@@ -73,6 +73,10 @@ depois de ler isso.
 minhas palavras você 
 nunca vai superar
 ---
+gente come a gente
+---
+conversar de igual para igual com o Jack White
+---
 minha psicóloga insistia que 
 eu estudasse neurociência
 falava dos tantos cursos 
