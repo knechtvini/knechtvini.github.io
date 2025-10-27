@@ -12,6 +12,9 @@ e sessão de autógrafos
 perco o amor
 mas não perco o poema
 ---
+sempre um passo para 
+não estar mais aqui
+---
 acendi uma vela 
 querendo ser romântico
 o apartamento explodiu 
