@@ -17,6 +17,12 @@ querendo ser romântico
 o apartamento explodiu 
 havia um vazamento de gás
 ---
+no sábado à noite
+depois das 23h
+estarei livre
+podemos marcar 
+um café
+---
 INTIMIDADE
 
 quer ouvir uma história minha
