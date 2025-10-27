@@ -23,13 +23,13 @@ estarei livre
 podemos marcar 
 um café
 ---
-você pode parar de escrever um pouco?
-por quê?
-poxa… você não vê que estamos transando agora?
+— você pode parar de escrever um pouco?
+— por quê?
+— poxa… você não vê que estamos transando agora?
 ---
 INTIMIDADE
 
-quer ouvir uma história minha
+— quer ouvir uma história minha
 que só a minha mãe
 e um motorista de Uber 
 conhecem?
