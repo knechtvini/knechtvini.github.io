@@ -47,6 +47,9 @@ ela se apaixona por ele
 já está completamente obcecada
 depois de ler isso.
 ---
+minhas palavras você 
+nunca vai superar
+---
 na cena ele está sozinho no bar
 escrevendo o que acontece literalmente
 e muitas coisas estão acontecendo
