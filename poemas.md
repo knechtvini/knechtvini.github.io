@@ -12,6 +12,11 @@ e sessão de autógrafos
 perco o amor
 mas não perco o poema
 ---
+acendi uma vela 
+querendo ser romântico
+o apartamento explodiu 
+havia um vazamento de gás
+---
 “I'm Vengeance. I Am The Shadows.”
 
 eu começo o poema
