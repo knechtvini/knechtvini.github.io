@@ -17,6 +17,13 @@ querendo ser romântico
 o apartamento explodiu 
 havia um vazamento de gás
 ---
+INTIMIDADE
+
+quer ouvir uma história minha
+que só a minha mãe
+e um motorista de Uber 
+conhecem?
+---
 “I'm Vengeance. I Am The Shadows.”
 
 eu começo o poema
