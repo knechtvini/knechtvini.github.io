@@ -14,4 +14,4 @@ Vinícius Knecht é estudante de Licenciatura em Letras pela Univates e atua com
 <br>
 ### Contato  
 📧 Email: vknecht@gmail.com  
-📸 Instagram: @knechtvinicius
+📸 Instagram:
