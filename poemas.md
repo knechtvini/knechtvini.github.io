@@ -24,6 +24,9 @@ que só a minha mãe
 e um motorista de Uber 
 conhecem?
 ---
+simplesmente deixei de atender
+o celular e as expectativas
+---
 “I'm Vengeance. I Am The Shadows.”
 
 eu começo o poema
