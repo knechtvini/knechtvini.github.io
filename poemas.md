@@ -23,6 +23,10 @@ estarei livre
 podemos marcar 
 um café
 ---
+você pode parar de escrever um pouco?
+por quê?
+poxa… você não vê que estamos transando agora?
+---
 INTIMIDADE
 
 quer ouvir uma história minha
