@@ -24,6 +24,9 @@ que só a minha mãe
 e um motorista de Uber 
 conhecem?
 ---
+você está solitário? melhore
+foi baleado? melhore
+---
 simplesmente deixei de atender
 o celular e as expectativas
 ---
