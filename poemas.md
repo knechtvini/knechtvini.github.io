@@ -12,6 +12,21 @@ e sessão de autógrafos
 perco o amor
 mas não perco o poema
 ---
+Hoje, às 19h, no Podcast: 
+O SEU PSICÓLOGO!
+
+Vamos falar sobre você: 
+sua família, seus traumas, 
+suas vulnerabilidades 
+e aqueles segredinhos 
+que ninguém devia saber.
+Aqui, a dor é conteúdo. 
+E o sofrimento... 
+engajamento!
+
+Não perca. 
+É hoje à noite.
+---
 sempre um passo para 
 não estar mais aqui
 ---
