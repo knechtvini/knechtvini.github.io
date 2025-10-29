@@ -1,7 +1,7 @@
 ---
 layout: default
 ---
-FEIRA DO LIVRO DE PORTO ALEGRE 2025
+>>>FEIRA DO LIVRO DE PORTO ALEGRE 2025
 Lançamento de AMARELANDO BLUE
 e sessão de autógrafos
 
