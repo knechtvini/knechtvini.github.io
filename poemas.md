@@ -15,6 +15,11 @@ mas não perco o poema
 para não se jogar do sexto andar
 mudou-se para o primeiro 
 ---
+é preciso perguntar 
+quando vou embora 
+daqui
+sem interrogações
+---
 quarto de motel com uma cama de solteiro
 ---
 Hoje, às 19h, no Podcast: 
