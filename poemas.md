@@ -12,6 +12,11 @@ e sessão de autógrafos
 perco o amor
 mas não perco o poema
 ---
+para não se jogar do sexto andar
+mudou-se para o primeiro 
+---
+quarto de motel com uma cama de solteiro
+---
 Hoje, às 19h, no Podcast: 
 O SEU PSICÓLOGO!
 
