@@ -15,6 +15,14 @@ mas não perco o poema
 para não se jogar do sexto andar
 mudou-se para o primeiro 
 ---
+espeixealmente
+
+— eu vou sentir a sua falta
+— eu sequer senti a sua presença
+---
+não existo 
+e cada vez existo menos
+---
 é preciso perguntar 
 quando vou embora 
 daqui
