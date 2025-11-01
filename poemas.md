@@ -20,6 +20,16 @@ espeixealmente
 — eu vou sentir a sua falta
 — eu sequer senti a sua presença
 ---
+ei calma aí
+é só mais um sábado
+em que você está sozinho
+enquanto todos os outros
+se juntam em festas diferentes
+e acordarão juntos
+no dia seguinte
+e você continuará
+sozinho
+---
 não existo 
 e cada vez existo menos
 ---
