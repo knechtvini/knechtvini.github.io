@@ -15,6 +15,49 @@ mas não perco o poema
 para não se jogar do sexto andar
 mudou-se para o primeiro 
 ---
+às vezes 
+queria
+uma doença 
+terminal
+que curasse
+minha má 
+vontade
+de viver
+---
+não sei o que 
+dizer
+da pergunta 
+“você é feliz?”
+---
+como posso 
+deixar 
+este mundo
+se tanto 
+ainda
+
+precisa ser escrito
+---
+ROTEIRO
+
+queda: 
+três segundos
+cada segundo 
+uma década
+trinta anos 
+em flash
+back
+---
+você está 
+linda sério
+lembra 
+a menina do filme 
+O Exorcista
+---
+engraçado ela 
+era a guria 
+mais séria 
+do meu mundo
+---
 espeixealmente
 
 — eu vou sentir a sua falta
