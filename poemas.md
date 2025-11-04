@@ -18,6 +18,8 @@ mas não perco o poema
 para não se jogar do sexto andar
 mudou-se para o primeiro 
 ---
+amanhã eu sempre sou feliz
+---
 — eu sei, a depressão não é algo simples.
 é um tormento terrível.
 mas é importante que você entenda: 
