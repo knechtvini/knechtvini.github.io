@@ -18,6 +18,12 @@ mas não perco o poema
 para não se jogar do sexto andar
 mudou-se para o primeiro 
 ---
+— eu sei, a depressão não é algo simples.
+é um tormento terrível.
+mas é importante que você entenda: 
+a culpa não é sua.
+— eu sei. a culpa é sua.
+---
 às vezes 
 queria
 uma doença 
