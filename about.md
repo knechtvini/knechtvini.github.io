@@ -14,4 +14,4 @@ Vinícius Knecht é autor dos livros No mínimo rir, no máximo chorar (2019) e 
 <br>
 ### Contato  
 📧 Email: vknecht@gmail.com  
-📸 Instagram:
+📸 Instagram: @knechtvinicius
