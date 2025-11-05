@@ -37,6 +37,11 @@ mas é importante que você entenda:
 a culpa não é sua.
 — eu sei. a culpa é sua.
 ---
+sentado paralisado na 
+cama quando eu poderia 
+muito bem ter ficado 
+deitado esse tempo todo
+---
 às vezes 
 queria
 uma doença 
