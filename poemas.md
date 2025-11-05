@@ -15,6 +15,14 @@ e sessão de autógrafos
 perco o amor
 mas não perco o poema
 ---
+um casal
+cada um lendo 
+seu próprio livro
+dividindo 
+a mesma mesa
+é o auge
+não importa a poha desse amor
+---
 para não se jogar do sexto andar
 mudou-se para o primeiro 
 ---
