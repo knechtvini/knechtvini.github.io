@@ -23,6 +23,9 @@ a mesma mesa
 é o auge
 não importa a poha desse amor
 ---
+dividindo a mesma cama
+o amor que se vire...
+---
 para não se jogar do sexto andar
 mudou-se para o primeiro 
 ---
