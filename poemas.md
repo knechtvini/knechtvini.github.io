@@ -12,6 +12,10 @@ e sessão de autógrafos
 
 + distribuição de exemplares gratuitos
 ---
+POETA
+
+os anjos usam óculos
+---
 perco o amor
 mas não perco o poema
 ---
