@@ -4,13 +4,12 @@ layout: default
 ||| AGENDA
 
 FEIRA DO LIVRO DE PORTO ALEGRE 2025
-
-Lançamento de AMARELANDO BLUE
-e sessão de autógrafos
-
 12/11/2025 QUARTA-FEIRA 19:00
 
-+ distribuição de exemplares gratuitos
+Lançamento de Amarelando blue
+e sessão de autógrafos
+
++ Livros espalhados pela Feira. Encontrou? É seu.
 ---
 POETA
 
