@@ -1,9 +1,17 @@
 ---
 layout: default
 ---
+— Como é ser artista?
+— Só com muita morfina!
+---
 MARTHA MEDEIROS
 
 Martha Prapêche
+---
+— Esse guri tem muito futuro.
+— Pois eu só vejo passado nele.
+---
+A lua no fim do túnel.
 ---
 TeVê Aumenta O Volume Do Nada
 ---
