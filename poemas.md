@@ -1,19 +1,31 @@
 ---
 layout: default
 ---
-— Ele é um grande artista. Como pode?
-— Muita morfina.
+quando finalizava 
+minha grande 
+obra-prima
+já não havia mais 
+papel higiênico
+---
+— quem é você?
+— por que me fere com essa pergunta?
+— é a pergunta que te fere.
+---
+“O futebol brasileiro vai assediar a próxima Copa do Mundo.”
+---
+— ele é um grande artista. como pode.
+— muita morfina.
 ---
 MARTHA MEDEIROS
 
 Martha Prapêche
 ---
-— Esse guri tem muito futuro.
-— Pois eu só vejo passado nele.
+— esse guri tem muito futuro.
+— pois eu só vejo passado nele.
 ---
 A lua no fim do túnel.
 ---
-TeVê Aumenta O Volume Do Nada
+TeVê Aumenta O Volume Do Nada (2025)
 ---
 ||| AGENDA
 
