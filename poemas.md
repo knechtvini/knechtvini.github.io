@@ -1,8 +1,8 @@
 ---
 layout: default
 ---
-— Como é ser artista?
-— Só com muita morfina!
+— Ele é um grande artista. Como pode?
+— Muita morfina.
 ---
 MARTHA MEDEIROS
 
