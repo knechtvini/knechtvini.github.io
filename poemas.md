@@ -5,9 +5,6 @@ MARTHA MEDEIROS
 
 Martha Prapêche
 ---
-quanto menos eu tentar
-mais eu vou falhar
----
 TeVê Aumenta O Volume Do Nada
 ---
 ||| AGENDA
