@@ -1,6 +1,22 @@
 ---
 layout: default
 ---
+— Vim receber o amor da minha vida.
+— Nome?
+— Vinícius.
+— E o seu?
+— Esse é o meu.
+— Nome do amor da sua vida, senhor.
+— Marianna.
+— Ela acabou de morrer.
+— Com dois “n”?
+— Sim, acabou de morrer.
+— Quando?
+— Agora.
+— Que azar.
+— Eu sei. Sinto muito. Fique bem.
+— O dela. Eu volto na próxima semana.
+---
 quando finalizava 
 minha grande 
 obra-prima
