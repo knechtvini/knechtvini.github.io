@@ -69,6 +69,21 @@ com a mão
 ---
 “O futebol brasileiro vai assediar a próxima Copa do Mundo.”
 ---
+— Esse guri tem muito futuro. 
+Exagerei.
+— Pois eu só vejo passado nele. 
+Exagerei. Ele já tentou ficar comigo.
+É problemático e toma antidepressivos.
+---
+— É com você que eu quero falar.
+— Eu não converso com pessoas do seu lado político.
+— Por quê?
+— Porque eu me identifico.
+---
+— Eu vou sentir a sua falta.
+— Eu nunca senti a sua presença.
+— Agora vai.
+---
 MARTHA MEDEIROS
 
 Martha Prapêche
@@ -86,10 +101,6 @@ Lançamento de Amarelando blue
 e sessão de autógrafos
 
 + Livros espalhados pela Feira. Encontrou? É seu.
----
-POETA
-
-os anjos usam óculos
 ---
 perco o amor
 mas não perco o poema
