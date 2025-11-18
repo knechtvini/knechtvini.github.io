@@ -3,6 +3,12 @@ layout: default
 ---
 EM BREVE ||| quarto livro – primeiro ROMANCE – título: BLUE TU – KNECHT VINÍCIUS
 ---
+OLHA O DRAMA
+
+pronto um cortezinho agora ele
+vai começar a sangrar quer ver
+olha o drama
+---
 — Vim receber o amor da minha vida.
 — Nome?
 — Vinícius.
