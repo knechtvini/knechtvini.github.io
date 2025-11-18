@@ -19,27 +19,11 @@ EM BREVE ||| quarto livro – primeiro ROMANCE – título: BLUE TU – KNECHT V
 — Eu sei. Sinto muito. Fique bem.
 — O dela. Eu volto na próxima semana.
 ---
-quando finalizava 
-minha grande 
-obra-prima
-já não havia mais 
-papel higiênico
----
-— quem é você?
-— por que me fere com essa pergunta?
-— é a pergunta que te fere.
----
 “O futebol brasileiro vai assediar a próxima Copa do Mundo.”
----
-— ele é um grande artista. como pode.
-— muita morfina.
 ---
 MARTHA MEDEIROS
 
 Martha Prapêche
----
-— esse guri tem muito futuro.
-— pois eu só vejo passado nele.
 ---
 A lua no fim do túnel.
 ---
