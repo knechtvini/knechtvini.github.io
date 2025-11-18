@@ -3,6 +3,12 @@ layout: default
 ---
 EM BREVE ||| quarto livro – primeiro ROMANCE – título: BLUE TU – KNECHT VINÍCIUS
 ---
+— Vinícius Knecht não é literatura. 
+Chamar isso de livro já é uma ofensa 
+à literatura e a toda a história da arte.
+— Criei algo novo? Não sei nem como 
+te agradecer. Sério.	
+---
 OLHA O DRAMA
 
 pronto um cortezinho agora ele
