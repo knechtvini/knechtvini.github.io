@@ -22,6 +22,14 @@ poeta que explica a poesia
 é pior que mágico que ensina 
 suas mágicas.
 ---
+— É sério. Eu sou perseguido pelos paranoicos.
+— Parece papo de louco, mas eu me identifico.
+— Sempre a um passo de não estar mais aqui.
+— Estão chamando para os remédios.
+— Ei, confia em mim. A gente vai sair dessa.
+— Você já teve a sensação de estar louco?
+— Algumas vezes. Lá fora.
+---
 — Eu comentei “minha” na foto da minha namorada.
 — Sim. Porque você é retardado.
 — Ela curtiu.
@@ -30,6 +38,14 @@ suas mágicas.
 — Vinte e três reais e cinquenta e nove centavos 
 ou de graça? Não superestime a sorte. Você nem 
 tem tempo para isso.
+---
+— Quer ouvir algo engraçado? Outro dia eu 
+estava tão chapado que fui até um motel e 
+pedi um quarto com cama de solteiro.
+— Eu ri. E a garota? O que ela disse?
+— Ah, atendentes são sempre simpáticas, 
+né.
+
 ---
 Jonny Greenwood tocando um limão
 dançando para o seu prazer 
