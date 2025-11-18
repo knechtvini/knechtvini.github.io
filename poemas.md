@@ -3,6 +3,8 @@ layout: default
 ---
 EM BREVE ||| quarto livro – primeiro ROMANCE – título: BLUE TU – KNECHT VINÍCIUS
 ---
+É preciso da água para não afundar.
+---
 — Vinícius Knecht não é literatura. 
 Chamar isso de livro já é uma ofensa 
 à literatura e a toda a história da arte.
@@ -14,6 +16,24 @@ OLHA O DRAMA
 pronto um cortezinho agora ele
 vai começar a sangrar quer ver
 olha o drama
+---
+— Querida, só mais uma coisa, 
+poeta que explica a poesia 
+é pior que mágico que ensina 
+suas mágicas.
+---
+— Eu comentei “minha” na foto da minha namorada.
+— Sim. Porque você é retardado.
+— Ela curtiu.
+— Porque ela tem quinze anos.
+---
+— Vinte e três reais e cinquenta e nove centavos 
+ou de graça? Não superestime a sorte. Você nem 
+tem tempo para isso.
+---
+Jonny Greenwood tocando um limão
+dançando para o seu prazer 
+com a mão
 ---
 — Vim receber o amor da minha vida.
 — Nome?
