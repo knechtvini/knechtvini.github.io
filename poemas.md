@@ -1,7 +1,7 @@
 ---
 layout: default
 ---
-EM BREVE ||| 2026 - quarto livro – primeiro romance – título: BLUE TU – knecht vinícius
+EM BREVE ||| quarto livro – primeiro ROMANCE – título: BLUE TU – KNECHT VINÍCIUS
 ---
 — Vim receber o amor da minha vida.
 — Nome?
