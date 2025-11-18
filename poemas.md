@@ -3,6 +3,10 @@ layout: default
 ---
 EM BREVE ||| quarto livro – primeiro ROMANCE – título: BLUE TU – KNECHT VINÍCIUS
 ---
+Isso não é literatura!
+Como passamos de Machado de 
+Assis para Vinícius Knecht?
+---
 É preciso da água para não afundar.
 ---
 — Vinícius Knecht não é literatura. 
