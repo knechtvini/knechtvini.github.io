@@ -1,6 +1,8 @@
 ---
 layout: default
 ---
+EM BREVE ||| 2026 - quarto livro – primeiro romance – título: BLUE TU – knecht vinícius
+---
 — Vim receber o amor da minha vida.
 — Nome?
 — Vinícius.
