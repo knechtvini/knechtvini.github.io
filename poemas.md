@@ -1,6 +1,33 @@
 ---
 layout: default
 ---
+— Papai, quem mora na lua é o que?
+— Luana, minha filha, ninguém mora na lua.
+---
+não tenho nada contra a poesia
+até tenho um amor que é
+---
+quanto mais livros publicados
+menos reconhecimento
+como escritô
+porque vários livros publicados
+e nunca emplacô
+---
+O TAMANHO DA BUNDA DELA
+
+a bunda dela é do tamanho de Júpiter 
+que é o quinto planeta do sistema solar 
+o maior de todos e um gigante gasoso 
+composto principalmente por hidrogênio 
+e hélio ele é conhecido por sua rápida 
+rotação que resulta em dias de apenas 
+10 horas e por características como a grande 
+mancha vermelha que é uma tempestade 
+gigante a bunda do tamanho de Júpiter 
+possui mais de 90 luas incluindo europa
+uma das mais famosas que tem um oceano 
+interno de água líquida
+---
 EM BREVE ||| quarto livro – primeiro ROMANCE – título: BLUE TU – KNECHT VINÍCIUS
 ---
 Isso não é literatura!
