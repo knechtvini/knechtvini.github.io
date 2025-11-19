@@ -1,7 +1,7 @@
 ---
 layout: default
 ---
-— Papai, quem mora na lua é o que?
+— Papai, quem mora na lua é o quê?
 — Luana, minha filha, ninguém mora na lua.
 ---
 não tenho nada contra a poesia
