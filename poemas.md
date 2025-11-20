@@ -13259,197 +13259,313 @@ sacada avistou que
 ...não temos mais
 clima para isso...
 ---
+900
+
 não tenha medo de
 envelhecer tenha
+
 pavor e pânico
 ---
+899
+
 oi nós nos conhecemos?
 oi não mas eu te sigo
 nas ruas
 ---
+898
+
 o meu ser oscila entre 
 o não existir e a 
 ficção
 ---
+897
+
 “oportunidade de ouro
 para você ficar mais
 pobre!”
 ---
+896
+
 síndrome do pânico
 
 meu medo dirigiu-se
 às vias respirató
 rias
 ---
+895
+
 Maria dizia eu te amo para 
 Pedro que respondia para 
 Paulo
 ---
+894
+
 aconteceu um sinistro no
 quintal mal ensombrado
 ---
+893
+
 se bobear eu sou criança
 ---
+892
+
 numa História não se
 cobra ingresso se
 cobra passagem
 ---
+891
+
 se você não estiver
 muito detento você
 pode cair
 ---
+890
+
 só mamãe me acha indo
 ---
+889
+
 tenho sobrado pra cachorro
 ---
+888
+
 felicidade não traz dinheiro
 ---
+887
+
 somos artistas Vinícius nós não
 passamos por borboletas como
 se fôssemos formiguinhas e 
 nós jamais ofenderíamos 
 as formigas
 ---
+886
+
 folhear árvores e árvores e
 ---
+885
+
 Inteligência Artificial é réu primária
 ---
+884
+
 delinquente cai em golpe das
 fake news e acaba espalhan
 do notícia verdadeira
 ---
+883
+
 corrigi tanto o meu romance
 que virou autobiografia
 ---
+882
+
 chip im plantado na aorta
 ---
+881
+
 como a natureza ousa
 invadir os humanos?
 ---
-oi tudo bem como estava
+880
+
+— oi tudo bem como estava
 o funeral do Vinícius?
-não tinha sinal wi-fi
+— não tinha sinal wi-fi
 você acredita nisso?
 ---
+879
+
 um morto senta na praça
 afinal de contos não dá
 para lhe seguir o tempo
 todo
 ---
+878
+
 costurar papinho furado
 ---
+877
+
 sou amador em tudo o 
 que faço mas cumpro
 todos os meus 
 horários
 ---
+876
+
 depender de dom e de
 vocação pode ser mui
 to perigoso
 ---
+875
+
 ego sujo e mundo
 ---
-ele é um bom poeta
-ele é incrível mas
+874
+
+— ele é um bom poeta
+— ele é incrível mas
 aposto que ele já
 matou alguém
 ---
+873
+
 apagaram-me completamente o
 meu amor verdadeiro da minh
 a mente porque assim o quis 
 o encontrei e me apaixonei
 nova mente
 ---
+872
+
 preciso sair daqui
 mas não posso es
 quecer de mim
 ---
+871
+
 querido oi como você está
 eu esqueci completamente
 da sua existência
 ---
+870
+
 estão nos textando
 ---
-por que você não apare
+869
+
+— por que você não apare
 ceu na festa?
-ah eu ainda estava vol
+— ah eu ainda estava vol
 tando da guerra
 ---
+868
+
 me acusam de excessos poéticos
 me acusam formalmente mas
 com tanta gentis
 lezas
 ---
+867
+
 a senhora no banco
 tirando extrato de
 tomate
 ---
+866
+
 proclamar a independência alcoólica
 ---
-você tem dom vocação
+865
+
+— você tem dom vocação
 e muito muito talento
-hum e você está sendo
+— hum e você está sendo
 injusta com o meu
 sofrimento
 ---
+864
+
 como foi exatamente o seu 
 processo criativo estou 
 cogitando lhe 
 processar
 ---
+863
+
 Deputado Vinícius Knecht
-cria projeto de lei 
+cria projeto de lei
+
 “Lei A.”
 ---
+862
+
 leia poetas vivos
 ---
+861
+
 poeta tem a
 mesmíssima
 respons-
 habilidade
 dos passarinhos
 ---
+860
+
 ela me encolheu
 virei o seu afeto
 ---
+859
+
 traição quatro rodas
 ---
+858
+
 sempre perdi ajuda
 nos momentos de
 grandes crises
 ---
+857
+
 eu sinto muito a sua fala
 ---
+856
+
 a sua morte foi uma
 surpresa com alarmes
-tocando No Surprises
+tocando 
+
+No Surprises
 ---
+855
+
 relacionamento CTRL+C
 CTRL+V relacionamento
 ---
+854
+
 você vive repetindo
 coisas diferentes
 ---
+853
+
 RD
 
-parão
+patrão
 à’d/e/mite
 ser um
 idiota
 ---
+852
+
 ambiguidade
 
 não há tantos
-inimigos assim
+inimigos 
+
+assim
 ---
+851
+
 amor líquido sem álcool
 ---
+850
+
 asar no amor
 ---
-a manhã em que ela nunca voltou
+849
+
+a manhã em que 
+ela nunca 
+voltou
 ---
+848
+
 a vaga foi pro bêjo
 ---
+847
+
 é impressionante como você é bom
 nisso que você faz quando estuda
 muito e trabalha duro todos os
@@ -13458,24 +13574,34 @@ segredo
 
 100% Jesus
 ---
+846
+
 então me diga que me
-ama dentro das 
-normas ABNT
+ama dentro das normas 
+ABNT
 ---
+845
+
 achei que viria um amor
 meu time foi campeão
 do mundoachei que 
 finalmente viria um amor 
 e ganhei na mega-sena
 ---
+844
+
 Adolfo você está com
 os séculos contados
 Adolfo...
 ---
+843
+
 por favor alguém não tenha
 escrito isso antes eu 
 imploro
 ---
+842
+
 Alho e óleo sobre a tela
 
 Nome: Pedra
@@ -13483,44 +13609,68 @@ Data: No meu caminho
 
 Estudo
 ---
+841
+
 se você está lendo isso eu já estou vivo
 se você está lendo isso eu já estou vivo
 se você está lendo isso eu já estou vivo
 se você está lendo isso eu já estou vivo
 se você está lendo isso eu já estou vivo
 ---
+840
+
 segund
 amo logo
 cedinho
 ---
+839
+
 tédio e sexo ruim só
 depois do casamento
 ---
+838
+
 tenho errado passos que
 não costumo acertar
 ---
+837
+
 tu tropeças teatrais
 ---
+836
+
 amor você acha que se 
 eu soltar um pum aqui 
 o fedor chega até aí?
 ---
+835
+
 tem coisa mais linda
 que uma palavra usan
 do um vestido todo 
 vermelho?
 ---
+834
+
 você é a primeira vez
 que eu escrevo isso
 ---
+833
+
 você e feito especial
 ---
+832
+
 é claro que eu te amo querida
 mas eu vou fazer o meu feijão
 com arroz
 ---
+831
+
 os animais estão comentando
 ---
+830
+
 acadêmico
 estudioso
 dedicado
@@ -13530,98 +13680,153 @@ psiquiátricas
 todas elas
 paciente
 ---
+829
+
 quando o próximo passo é
 o tropeço quando o próximo
 tropeço é a queda
 ---
+828
+
 o que a NASA tanto comemora
 que vive soltando foguetes?
 ---
+827
+
 Deus sabe o que Diabos
 tinha na cabeça
 ---
+826
+
 evite o que não mexe
 com você emocional
 mente
 ---
+825
+
 alguma placa no ventre
 escrito “obrigatório
 conformar-se”
 ---
+824
+
 no futuro você vai rir das
 minhas piadas porque vai
 descobrir que eu estava o
 tempo todo falando sério
 ---
+823
+
 o amigo agora é outro
 ---
+822
+
 evite descanso repouso sono
 e terapia o capitalismo 
 precisa de você
 ---
+821
+
 o importante é dar o último passo
 ---
+820
+
 o mais importante não é
 vencer a depressão o mais
-importante é competir
+importante 
+
+é competir
 ---
+819
+
 súbitas ondas de ódio
 o mar é tão gentil...
 ---
+818
+
 depressão mata ansiedade mata
 não inventei nenhuma carta
 ---
+817
+
 há lilás não quero
 te verde novo
 ---
+816
+
 poetisa que tanto te
 respira ôxe gênia
 mas é Clar...
 ---
+815
+
 Matty
 
 por que fizeram eu
 me sentir especial
-"deste" jeito?
+
+"deste" 
+
+jeito?
 ---
+814
+
 me corrija se eu estiver
 certo da sua maneira
 ---
+813
+
 quando eu começava a com
 prender o mundo estranho
 e louco mundo dos artist
 as já era hora de morrer 
 de novo
 ---
+812
+
 fantasma só vai te assustar
 quando você for um deles
 ---
+811
+
 se você não cria logo 
-logo alguém vai e 
-copia
+logo alguém vai 
+e copia
 ---
+810
+
 me diz o que será da humanidade
 no dia em que não haverá mais
 madeiras para bater três vezes
 ---
+809
+
 mais biblio
 mas menos
 bíblia
 ---
+808
+
 depressão
 
 mais goteiras dentro
 do que chuva lá fora
 ---
+807
+
 qual foi a última 
 mente que você 
 leu?
 ---
+806
+
 quando não estou 
 morrendo escrevo
 
 para Clarice Lispector
 ---
+805
+
 redes sociais
 
 a minha única preocupação é
@@ -13629,24 +13834,32 @@ o número de curtidas no post
 que vai anunciar a minha
 morte
 ---
+804
+
 prega mais por
 pregos do que...
 ---
+803
+
 a carta do descobrimento
 
 meu deus eu já
 plagiei Pero Vaz
 de Caminha
 ---
+802
+
 os olhos como diz algum
 provérbio são a janela 
 da alma poetas pre
 ferem que sejam 
 portas
 ---
-melhores amigos com
+801
+
+melhores amigos
 participação especial
-de amor
+amor
 ---
 800
 
