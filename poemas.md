@@ -12835,40 +12835,60 @@ líquido
 parece que eu conheço
 você um dia todo
 ---
+1000
+
 seria clichê demais
 terminar mal no
 final
 ---
+999
+
 um pai morre no parto
 ---
+998
+
 eles tiveram medo de
 ser um velho esquisi
 to como eu
 ---
+997
+
 às vezes só quem é idiota
 sabe o que é passar por
 isso
 ---
+996
+
 agora eu vou escrever
 só, sobre amor...
 ---
+995
+
 solidão é solta após
 pagar aliança de
 quinze mil 
 reais
 ---
+994
+
 foi tão bom tão
 bom que eu nem 
 escrevi
 ---
+993
+
 uma tatuadora autoral
 assina suas tatuagens
 ---
+992
+
 sequer sinto
 mais a minha
 arte dizia
 a carta
 ---
+991
+
 acho que eu
 simplesmente 
 amo as artes
@@ -12877,33 +12897,51 @@ que chego a
 me sentir 
 mal
 ---
+990
+
 pobre e honesto e 
 vendo vaga na 
 fila
 ---
-qui QI mais baixinho
+989
+
+qui QI baixinho
 ---
+988
+
 toda a rodoviária de
 veria vender flores
 e os meus versos
 tãobém
 ---
+987
+
 a dor está no ar
 ---
+986
+
 a minha sorte é que eu não
 alcanço o teto e não dou
 corda para cadeiras
 ---
+985
+
 a pior despedida nem sempre
 é aquela que acontece a 
 pior despedida nem 
 sempre é aquela 
 que acontece
 ---
+984
+
 a fé tá
 ---
+983
+
 espere até o amanhã ser
 ---
+982
+
 participe da palestra
 
 “Como viver menos? –
@@ -12912,17 +12950,26 @@ Uma palestra de um serial killer em ação”
 e descubra na prática o
 último dia da sua vida
 ---
+981
+
 a atenção só quer chamar você
 ---
+980
+
 eu sei muito bem
 o meu tamanho
+
 infelizmente
 ---
+979
+
 você costuma se questionar por
 que ela tem o olhar de amiga
 quando na verdade você sente 
 que ela é o seu amor
 ---
+978
+
 tão tentador quanto teclas de
 um piano ancião intocável tão
 intocável canção livros no es
@@ -12930,78 +12977,118 @@ tonteante
 
 olhar sem armação
 ---
+977
+
 opiniões públicas
 atualizado 2025
 
 “eu não acho William 
 Shakespeare tudo isso”
 ---
+976
+
 então é isso nos
 vemos em algu
 ma página
 ---
+975
+
 sozinho nova mente
 sozinho nova mente
 sozinho nova mente
 ---
+974
+
 o louco diz que é um viajante
 do tempo o gênio é aquele 
 que cria uma máquina 
 do tempo
 ---
+973
+
 NO cinema
 
 ele não a
 cena de vol.
 ta para mim
 ---
-e me conta eles ficam
+972
+
+— e me conta eles ficam
 juntos no final?
-no final todo mundo
+— no final todo mundo
 morrre meu amor
 ---
+971
+
 capitalismo o que você
 costuma fazer no seu
 templo livre?
 ---
+970
+
 nós somos a kg
 ---
+969
+
 chefe o senhor poderia me
 dar trabalho em dobro a
 manhã é que a minha vida
 pessoal está uma merda
 ---
-os pobres morrem de fome em massas
+968
+
+os pobres morrem 
+de fome em massas
 ---
+967
+
 eu te amo mas não 
 leve para o lado 
 pessoal
 ---
-a natureza é bonita por natureza
+966
+
+a natureza é bonita 
+por natureza
 ---
+965
+
 lembranças da infância
 lambanças na velhice
 escrevo elas que 
 nunca disse
 ---
+964
+
 com relação às relações me 
 corrija se eu estiver 
 correto
 ---
+963
+
 meu perfume no céu
 ---
+962
+
 uma lápide é marcada 
 com um logotipo
 ---
+961
+
 políticos deixando
 cada vez mais le
 gados
 ---
+960
+
 leia um livro
 agora
 senão você
 vai MORRER
 ---
+959
+
 6.
 
 decidi que o meu sangue de inocência 
@@ -13012,6 +13099,8 @@ que não chegue no meio da noite então
 
 lamente duas vezes no mesmo dia
 ---
+958
+
 posso decidir não sorrir mais
 sem ser interrogado por isso
 o meu personagem morre no
@@ -13019,64 +13108,92 @@ final
 
 já é o final
 ---
+957
+
 halls preto não faz 
 a porra de porra
 nenhuma 
 ---
+956
+
 Inteligência Artificial
 sequer entende uma
 piada
 ---
+955
+
 eu te amo certo
 certo entendi e quais 
 as novidades do 
 novo iPhone?
 não vem amor
 ---
+954
+
 fiz um café ridículo e não
 escrevi nada que preste
 ---
+953
+
 não lembro se escrevi
 não lembro se senti
 está tudo tão rá
 ---
+952
+
 eu não posso te ouvir 
 se você continuar
 gritando
 ---
+951
+
 a lua pisou no amor pela primeira
 vez no dia __/__/__ mas foi tudo 
 inventado o Stanley Kubrick que 
 fez as filmagens
 ---
+950
+
 me candidatei
 a ver a dor
 ---
+949
+
 além de amor eu
 não sinto nada
 por você
 ---
+948
+
 cenas de um casamento
 
-amor como foi o trabalho?
-bem eu te traí com o meu
+— amor como foi o trabalho?
+— bem eu te traí com o meu
 chefe lá no escritório...
-tudo bem você recebeu
+— tudo bem você recebeu
 aumento ou foi promo
 vida?
-não...
-tudo bem
+— não...
+— tudo bem
 ---
+947
+
 vejo as suas asas 
 nos seus olhos
 ---
+946
+
 benzedeira ou Benzetacil
 ver preços pesquisar
 ---
+945
+
 do xadrez para
 choque mata
 que pena
 ---
+944
+
 condecorado
 
 o conselho nacional da saúde lhe 
@@ -13084,58 +13201,82 @@ dará uma medalha por você ter
 sobrevivido mais de doze 
 anos neste estado
 ---
+943
+
 levando em consideração todas as
 variáveis e dificuldades conhece
 mos mais do espaço e do oceano
 do que da poesia
 ---
-e você a ama?
-até o jeito que 
+942
+
+— e você a ama?
+— até o jeito que 
 ela lava a louça 
 é diferente sabe
 ---
+941
+
 espero que a minha história
 faça sentido para você por
-que não faz sentido para
-mim
+que não faz sentido para mim
 ---
+940
+
 veículos
 
 artista rebaixado 
 por veículo de 
 imprensa
 ---
+939
+
 me aposentar e 
 vender a minha 
 praia
 ---
-você está meio normal
+938
+
+— você está meio normal
 aconteceu alguma
 coisa?
 ---
+937
+
 se eu seguir o meu caminho
 eu teria que escrever por 
 você?
 ---
+936
+
 os fêmeos
 as machas
 ---
+935
+
 tudo o que você faz se
 parece com alguma
 arte
 ---
+934
+
 alimentar ilusão de pobre
 um direita para todos
 ---
+933
+
 ela faz de tudo para
 se tornar eterna
 mente futuro
 ---
+932
+
 ela põe a minha música
 preferida para tocar 
-e eu danço que lhe
-amo
+e eu danço que lhe amo
 ---
+931
+
 chefe o senhor poderia me
 liberar mais tarde hoje 
 é que eu não tenho o 
@@ -13143,70 +13284,108 @@ que fazer em casa
 e ficarei depri
 mida
 ---
+930
+
 será que eu vou assistir o seu
 show ou será que vou aprender 
 a não dançar no final?
 ---
+929
+
 desculpa a palavra eu
 achei que era só
 poesia
 ---
+928
+
 "Deus é tudo o que eu tenho na vida"
 "Grêmio é tudo o que eu tenho na vida"
 "Bolsonaro é tudo o que eu tenho na vida"
 ---
+927
+
 o nosso dia verde e azul
 ---
-eu te quero dos pés ao pescoço
+926
+
+eu te quero dos pés 
+ao pescoço
 ---
+925
+
 e pôr fim.
 ---
+924
+
 você parece tão
 cansada e feliz
 tão cicatrizada
 quanto ferida
 ---
+923
+
 estar só sendo
 cinematogra
 ficamente
 amado
 ---
+922
+
 você tem asas
 comcores di
 feren
 tes
 ---
+921
+
 &u e &u
 ---
+920
+
 afinal de contas você
 errou o cálculo e eu
 perdi uma amiga
 ---
+919
+
 às vezes a arte tem o
 dever de errar a natu
 reza, e, nem sabe o
 que é isso
 ---
+918
+
 você me pegou de
 surpresa a gente
 se pega bem
 ---
+917
+
 agora eu vou escrever
-para gente grande: os
-mortos e as crianças
+para gente grande 
+
+os mortos e as crianças
 ---
+916
+
 vida é aquilo que você faz
 enquanto aceita que não é
 o Leonardo DiCaprio
 ---
+915
+
 linguística
 
 a Terre é plane
 ---
+914
+
 louco não medicado 
 tem a droga da 
 razão
 ---
+913
+
 me dê uma razão para ser homem mil 
 flores poderiam desabrochar é a 
 vez que isso me acontece abra
@@ -13215,43 +13394,69 @@ me dê uma razão para me
 amar não adianta mais 
 chorar
 ---
+912
+
 me enfrento todos os
 dias costumo perder
 ---
+911
+
 me tiro na cabeça
 ---
+910
+
 meu amor foi uma febre
 ---
+909
+
 não quero o meu
 nome vinculado
 a mim
 ---
+908
+
 meus amores foram
 minhas maiores
 criações
 ---
+907
+
 minha poesia foi uma febre
 ---
+906
+
 monó logo
 
 para quem não
 sabe o Vini 
 foi
 ---
+905
+
 morrendo fazendo aquilo
-que mais gosta: viver
+que mais gosta 
+
+viver
 ---
+904
+
 foram criados juntos na
 Alemanha do interior
 do Rio Grande do
 Sul
 ---
+903
+
 não fazia ideia do
 quanto eu existia
 ---
+902
+
 reparação histórica?
 não repara mundo...
 ---
+901
+
 humor
 
 do alto de uma bela
