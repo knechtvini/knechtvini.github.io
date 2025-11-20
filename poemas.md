@@ -1,12 +1,18 @@
 ---
 layout: default
 ---
+1
+
 — Papai, quem mora na lua é o quê?
 — Luana, minha filha, ninguém mora na lua.
 ---
+2
+
 não tenho nada contra a poesia
 até tenho um amor que é
 ---
+3
+
 quanto mais livros publicados
 menos reconhecimento
 como escritô
