@@ -11101,16 +11101,22 @@ minha história
 ---
 escrever a mão
 ---
+1340
+
 engaga
 jaja
 meme 
 mento
 ---
+1339
+
 passei 
 a dar o 
 seu
 sorriso
 ---
+1338
+
 acredita em alma gema?
 
 piada com ovo? é sério?
@@ -11126,71 +11132,119 @@ não sabia que você dançava
 continua você está ridículo
 tô amando
 ---
+1337
+
 conheci o amor da 
 minha vida no 
 iPhone 12
 ---
+1336
+
 quando adolescente tive um 
 amor de verão que estive
 iludido até o inverno
 ---
+1335
+
 a acústica do consultório 
 de um psicólogo
 ---
+1334
+
 quinze páginas prorgasmo
 where is my mind?
 ---
-um canário pensa que vai piá de vez
+1333
+
+um canário pensa 
+que vai piá de vez
 ---
+1332
+
 AR
 tistas
 ainda res
 PIRAM AQUI
 ---
+1331
+
 saiu da sala do psicólogo a mãe que conseguiu 
 ouvir tudo lá do lado de fora e não fazia 
 ideia de como era lá dentro disse você 
 não deveria ter dito aquilo
 ---
+1330
+
 dançando all the things she said 
 running through my head com
 movimentos legendados
 ---
+1329
+
 plágio autoral
 
-a tua porra de poesia na minha mão
+a tua porra de 
+poesia na minha 
+mão
 ---
+1328
+
 não tenho a quem rastejar
 record então pra poesia
 ---
-saudade uma perda de tempo com você
+1327
+
+saudade uma perda 
+de tempo com você
 ---
+1326
+
 me ouviu como nunca mais pôde
 ---
-o que aconteceu de tão trágico em 1992
+1325
+
+o que aconteceu 
+de tão trágico 
+em 1992
 ---
+1324
+
 minha autobiografia será 
 uma distopia épica
 ---
+1323
+
 spoiler ele vive no final
 ---
+1322
+
 pegue um livro e se masturbe numa 
 banhêra após goteje a sua 
 autenticidade
 ---
+1321
+
 na Europa você teria pelo 
 menos cinquenta alma 
 gêmeas
 ---
+1320
+
 eu sou o Banksy e eu já 
 matei Laura Palmer
 ---
+1319
+
 poesia também é gente
 ---
+1318
+
 e não me faça tentar voar
 de novo pois é óbvio que 
 eu não tenho asas
 ---
+1317
+
 Tudo Gostoso – Receita belo simples e fofo
 
 Ingredientes (1 poção)
@@ -11212,52 +11266,77 @@ ressignificá-lo autocuidado não é egoísmo
 Modo de despreparo
 32 anos
 ---
+1316
+
 já vi tanto filme pesado
 que a minha vida não 
 me assusta mais
 ---
+1315
+
 já vi tantas Cenas de um Casamento
 que o amor não me faz mais piscar
 
 em memória de Ingmar Bergman
 ---
+1314
+
 você não tem vergonha de 
-chegar aqui deprimido 
+chegar aqui deprimido
 desse jeito?
 ---
+1313
+
 lembra quando corri até a parada
 para te encontrar antes de entrar
 no ônibus mas você já estava
 dentro do táxi? é assim que
 eu vejo a vida
 ---
+1312
+
 por deus eu nunca vou iniciar 
-o seu nome com letra 
-maiúscula
+o seu nome com letra maiúscula
 ---
+1311
+
 insira a sua arte no seu ofício
 ---
-ilusão que na verdade era verdade
+1310
+
+ilusão que na verdade 
+era verdade
 ---
+1309
+
 por gentileza não necessitar de 
 tamanho sofrimento para 
-escrever tamanha
-poesia
+escrever tamanha poesia
 ---
+1308
+
 Lúcia no Céu sem Diamantes
 
 processo criativo que não passa
 durma sessão de psicanálise
 um porquinho sonhada
 ---
+1307
+
 poesia é o denominador comum
 ---
+1306
+
 se aposentando e voltando ptrás
 ---
+1305
+
 disputa de amores termina em 
 arte e talento grave em 
 estrela
 ---
+1304
+
 Deu a Louca nos Filósofos (2025)
 Comédia/Romance/Fantasia/Drama/Mistério
 
@@ -11272,6 +11351,8 @@ A única coisa que sei é que nadar de costas sei.
 O que não me mata, me torna mais rio.
 O homem é condenado a ser live.
 ---
+1303
+
 eu sou escritor
 
 hum e você ganha dinheiro com isso?
@@ -11279,29 +11360,44 @@ hum e você ganha dinheiro com isso?
 sim inclusive alcancei o meu primeiro
 milhão com a poesia
 ---
+1302
+
 poesia sem açúcar por favor
 ---
+1301
+
 com estes passinhos
 o tempo não praça
 ---
+1300
+
 eu vou escrever poesia para 
 não esquecer e esse será 
 um sinal de uma ótima
 memória
 ---
+1299
+
 sou animal noturno que procura por 
 pessoas dançando que não fazem a 
-menor ideia do que estão fazendo 
+menor ideia do que estão fazendo
+
 e esse é o meu superpoder
 ---
+1298
+
 um pequeno desabafo
 poesia não cansa
 ---
+1297
+
 melancholia
 
 o astigmatismo fez eu 
 ver três luas olha só
 ---
+1296
+
 não acredito em Deus acredito na fé quero confessar o pior que posso mas meu coração 
 está cheio e o cheio é um espelho vejo meu ódio e horror e sinto meu corpo minha 
 indiferença para com os homens me inclui morro agora numa estrela de fantasmas 
@@ -11309,15 +11405,27 @@ prisioneiro dos meus versos eu não tenho sonhos “quem é você?” “eu sou 
 “você veio me buscar?” “há muito que ando ao seu lado” “eu percebi” 
 “você está pronto?” “minha poesia está pronta mas eu não"
 ---
+1295
+
 Morte não há isenção para poetas?
 ---
-a minha arte continua a pesar de mim
+1294
+
+a minha arte 
+continua 
+a pesar de mim
 ---
+1293
+
 sempre ameaço desistir 
 e acho isso o máximo
 ---
+1292
+
 o poder dá mente
 ---
+1291
+
 Meia-noite Em Partir (2025)
 Comédia/Romance/Fantasia/Drama/Mistério
 
@@ -11338,82 +11446,124 @@ Heródoto tentou me convencer de que ela me traiu
 Woody Allen tentou me convencer de que ela nunca me traiu
 Então partiu
 ---
+1290
+
 daqui a pouco eu tô escrevendo 
-sobre Mariana e ela nem sabe 
+sobre Marianna e ela nem sabe 
 tão pouco eu...
 ---
+1289
+
 poeta acamado pelo público
 ---
+1288
+
 dei match com uma garota chamada 
 Clarice Lispector ela também é 
 artista
 ---
+1287
+
 eu vou morrer para você e aí 
 então eu vou viver melhor
 ---
+1286
+
 relacionamentos modernos
 
 quem é você para 
 perguntar como 
 estou?
 ---
+1285
+
 pare de pressionar poesia
 ---
+1284
+
 QI Code
 
 posso ver seus olhos
 olhando suas mãos
 ---
+1283
+
 o que é tatuagem e
 o que é maquiagem
 ---
+1282
+
 fotografa e não registra
 ---
+1281
+
 processo
 
 você terá que provar o que 
 pensa da minha poesia
 ---
+1280
+
 eu posso te encontrar
 de carro ou então de 
 foguete tanto faz
 ---
+1279
+
 escreveria esta poesia
 Rimbaud escreveu antes
 ---
+1278
+
 é como se você estivesse
 numa conversa com os
 anos 60s
 ---
+1277
+
 e o que você está fazendo
 acordado uma hora dessas
 você morre
 ---
+1276
+
 hoje dou início às gravações 
 de Hoje É O Meu Último 
 Dia Na Terra
 ---
+1275
+
 as penas aumentaram
 com a minha partida
 então abandonei 
 palmas
 ---
+1274
+
 Dois Dias Antes Da Próxima Consulta
 
 “Droga Agora Começou A Tocar Hallelujah Versão De Jeff Buckley”
 “Droga Agora Começou A Tocar Hurt Versão De Johnny Cash”
 ---
+1273
+
 Dois Dias Antes Da Próxima Consulta
 
 Já É Quarta-Feira E Não Escrevi Nada Que Preste Na Vida
 ---
+1272
+
 escrever sem qualquer 
 forma de anestesia
 ---
+1271
+
 o corpo foi identificado
 
 graças a Deus e ele está bem?
 ---
+1270
+
 porra é a décima vez que você faz 
 orçamento com a gente e não
 fecha negócio
@@ -11421,38 +11571,61 @@ fecha negócio
 em nenhum momento eu disse
 que tinha dinhêro
 ---
+1269
+
 o tumor evoluiu
 
 que notícia boa doutor
 ---
-sinceridade só nas perguntas
+1268
+
+sinceridade 
+só nas 
+perguntas
 ---
+1267
+
 ele descreveu os meus 
 movimentos e passou 
 a interpretar a 
 Bíblia
 ---
-muito mais que respeito
+1266
+
+muito mais 
+que respeito
 reconhecimento
 ---
+1265
+
 google pesquisar
 
 qual o tamanho do 
 Thom Yorke na sua 
 vida
 ---
-hoje James Dean completa 24 anos de idade
+1264
+
+hoje James Dean completa 
+24 anos de idade
 ---
+1263
+
 despertador
 
 06:porquevocêfezissocomigo
 06:elanãofalamaiscomigo
 06:aheubloqueeieladetudo
 ---
+1262
+
 NO amor 
 eu acordo tarde... 
 ---
-se arredondar eu não tenho defeitos
+1261
+
+se arredondar 
+eu não tenho defeitos
 ---
 1260
 
