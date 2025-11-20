@@ -15795,104 +15795,168 @@ me aparece se parece
 com o cavalo de 
 troia
 ---
-e se tirassem nossos defeitos e
-nossas vulnerabilidades será 
-que seríamos pessoas 
-tão boas?
+300
+
+e se tirassem nossos defeitos 
+e nossas vulnerabilidades será 
+que seríamos pessoas tão boas?
 ---
+299
+
 escrevo com todo o cuidado todo
 o cuidado em causar incômodo 
-provocação e desconforto
+provocação 
+
+e desconforto
 ---
+298
+
 sinto meu coração 
 formigar é só 
 poesia
 ---
+297
+
 &u e &la
-eu me expresso melhor te ouvindo
+
+eu me expresso melhor 
+te ouvindo
 ---
-qual a maior invenção da
-humanidade na sua 
-opinião?
-Deus
+296
+
+— qual a maior invenção da
+humanidade na sua opinião?
+— Deus
 ---
+295
+
 memórias inventadas
+
 tudo o que eu não invento é falso
 tudo o que não existe eu existo
 sou autobiográfico na minha
+
 ficção científica
 ---
+294
+
 começou a circular nas
 redes mentes quadradas
 ---
+293
+
 você é mais difícil que
 pestana para iniciantes
 ---
-resiliência ou dom para sofrer?
+292
+
+resiliência ou 
+dom para sofrer
 ---
-construa você mesmo seu próprio palco
+291
+
+construa você mesmo 
+seu próprio palco
 ---
+290
+
 a terapia tá em dia 
 mas a noite tá foda
 ---
+289
+
 amores modernos
-você peidou?
-sim e você?
-também
+
+— você peidou?
+— sim e você?
+— também
 ---
+288
+
 1906: posso não concordar com nenhuma das
 palavras que você disser mas defenderei 
 até a morte o direito de você dizê-las
+
 2024: você calado já está errado
 ---
+287
+
 meu coração partido deu PT
 ---
-você deseja ser enterrado ou cremado
+286
+
+— você deseja ser enterrado ou cremado
 quando você morrer já pensou nisso?
-cremado? credo eu não quero morrer 
+— cremado? credo eu não quero morrer 
 queimando
 ---
+285
+
 dispensado do serviço militar
 derrotado pela poesia 
 felizmente
 ---
-Vinícius eu gostaria de dizer que eu
+284
+
+— Vinícius eu gostaria de dizer que eu
 amei o seu poema e lembro exatamente
 daquele dia então... foi para mim né?
-não
+— não
 ---
+283
+
 as pessoas já discordam das perguntas
 ---
+282
+
 eu gostaria humildemente me 
 retratar aqui mas eu não 
 sou nenhum pintor
 ---
+281
+
 para de pegar no 
 meu rodapé
+
 nota-se
 ---
-você ainda o ama?
-é claro
-e você preferia ele morto?
-bem depende morto como?
+280
+
+— você ainda o ama?
+— é claro
+— e você preferia ele morto?
+— bem depende morto como?
 ---
+279
+
 eu já tive algumas musas inspiradoras
 e todas elas me foram exterminadoras
 ---
-esta música me lembra você...
-sério? agora ela me lembra você
+278
+
+— esta música me lembra você
+— sério? agora ela me lembra você
 ---
+277
+
 na mente rabiscos
 na alma páginas
 ---
+276
+
 a necessidade da escrita de
 ser artista dizer algo como
 se fosse o primeiro e o 
 último ser humano
 ---
+275
+
 para celebrar-me amarei você
 ---
+274
+
 P.S eu te odeio
+
 você fede o perfume Chanel Nº 5
 você é tão ridícula quanto Marilyn Monroe
 você soa tão sem graça quanto Jim Carrey
@@ -15900,76 +15964,119 @@ você dirige tão mal quanto Tarantino
 você escreve tão mal quanto Franz Kafka
 você me toca e canta insuportavelmente
 como os Beatles você pinta tão cafona
-como Van Gogh eu me odeio
+como Van Gogh 
+
+eu me odeio
 ---
+273
+
 a primeira vez que nós nos
 encontrarmos será um
 reencontro
 ---
+272
+
 the brazil
+
 criança pedindo dinheiro em semáforo
 no Acre gera revolta nas redes sociais
+
 “este vagabundo deveria estar trabalhando"
 ---
+271
+
 hummm uma crítica negativa
 por fim alguém me entendeu
 ---
-você ainda fuma?
-não só quando eu 
-tento parar
+270
+
+— você ainda fuma?
+— não só quando eu tento parar
 ---
+269
+
 amo por precaução
 ---
+268
+
 Manoel de Barros eu sei que 
 apenas dos passarinhos 
 pode vir ajuda
 ---
+267
+
 às vezes eu tão-só sonho com a
 minha careca os meus cigarros
-e uns sessenta anos de 
-poesia
+e uns sessenta anos de poesia
 ---
+266
+
 espelho da minha vida interior
 passivo de herói apenas o mero
 efeito de construção artística
+
 como forma de imperfeições
 ---
-nós seríamos dois bichinhos 
-do mato juntinhos
+265
+
+nós seríamos 
+dois bichinhos do mato 
+juntinhos
 ---
+264
+
 quero ser orgulho 
 do meu estado de
 espírito
 ---
+263
+
 estou chorando tanto por sua
 causa gostaria tanto que 
-você visse estou tão 
-lindo
+você visse estou tão lindo
 ---
-escritos em excessos sinto-me
+262
+
+escritos em excessos 
+sinto-me
 lutando pela inexistência
 ---
+261
+
 primeiros encontros
 melhores despedidas
 ---
+260
+
 você estará na página três
 logo após a minha família
 e os meus gatos
 ---
+259
+
 sinto que eu posso
 ser careca com
 você
 ---
+258
+
 seremos o pretérito épico
 ---
+257
+
 poesia é reparar as coisas 
 e os sentimentos
+
 Reparar:
 transitivo direto
+
 pôr em bom estado
 (o que se havia estragado)
+
 restaurar, consertar
 ---
+256
+
 resistir com o corpo descendo por
 alguns abismos ou voltando aqui
 para cima para junto de nós
@@ -15978,22 +16085,34 @@ louco não tira toda a paisagem de
 dentro dos seus olhos gigantes
 atravessando as noites
 ---
+255
+
 saí do armário 
-entrei nas estantes
+entrei nas 
+estantes
 ---
+254
+
 confesse para si mesmo se o senhor
 morreria se o impedissem de escrever
 confesse para si mesma se a senhora
 morreria se a impedissem de ler
 ---
-pessoal o Vinícius está sem dupla
+253
+
+— pessoal o Vinícius está sem dupla
 alguém gostaria de inclui-lo 
 no seu grupo? pessoal alguém? 
+
 mais alguém?
 ---
+252
+
 minha deficiência física
 são os seus dedinhos
 ---
+251
+
 trajes e ferramentas de escrita
 para uma mestra da mentira e da lábia
 você está plantando o que colheu
@@ -16007,88 +16126,137 @@ mim eu já estou pensando em ti há
 muito mais tempo eu tão imprevisível eu
 nunca sei o que estou verdadeiramente
 pensando
+
 Alex Turner e Vinícius Knecht
 ---
+250
+
 paixão cobra caro por
 amostra grátis de 
 amor
 ---
+249
+
 a temporada de exceção na sua
 carreira também é conhecida
 como auge
 ---
+248
+
 artistas conduzindo para
 coisas profundas e eternas
-e a crítica sendo velada
+e a crítica sendo 
+velada
 ---
+247
+
 é muito importante deixar bem
 científico tudo o que eu 
 sinto por você
 ---
+246
+
 mesmo recebendo todo o ouro do
 mundo alguém que sofre de uma 
-profunda depressão nunca será 
-privilegiado
+profunda depressão nunca 
+
+nunca será privilegiado
 ---
+245
+
 a gente devolve desabafo 
 com desabafo com bafo 
 de esgotados
 ---
-se Deus voltasse hoje ele seria ateu
+244
+
+se Deus voltasse hoje 
+ele seria ateu
 ---
+243
+
 extrema-esquerda empata em zero a zero
 com extrema-direita e constituintes 
-se pronunciam sugerindo que o 
-placar foi de dez a dez
+se pronunciam sugerindo que 
+
+o placar foi de dez a dez
 ---
+242
+
 eu admiro muito essas pessoas que
 já acordam com energia de correr 
-até os seus amores
+até seus amores
 ---
+241
+
 você enganou o meu destino
 ---
+240
+
 Vincent van Gogh
+
 eu sempre vou amarelar para
 o Vincent van Gogh os girassóis
 pintam uma pressão internada
 na minha poesia
+
 eu sempre vou amarelar para
 o Vincent van Gogh ser artista
 envolve muitas coisas e não
 ser artista também
 ---
-falar é fácil foi o que tentaram me falar
+239
+
+falar é fácil 
+foi o que tentaram 
+me falar
 ---
-você me falou mais dos
-seus ex’s do que da 
-gente quê exemplo
-hein
+238
+
+— você me falou mais dos
+seus ex’s do que da gente 
+quê exemplo hein
 ---
+237
+
 homem finge a própria morte
 e parentes fingem que não
 souberam da sua morte
 ---
+236
+
 escrevo muitas coisas que não
 preciso escrever para manter
 o hábito para criar a consciência
 de ter realizado um trabalho para
 não se desesperar
+
 Franz Kappus e Vinícius Knecht
 ---
+235
+
 Godard
-você fala comigo com
-política enquanto eu 
-te olho com sentimentos
+
+— você fala comigo com
+política enquanto eu te 
+olho com sentimentos
 ---
+234
+
 você é a irresponsável por tudo
 o que têm me acontecido de bom
 ---
-já chorou vendo um filme?
-já chorei assistindo o 
+233
+
+— já chorou vendo um filme?
+— já chorei assistindo o 
 trailer do filme da 
 minha vida
 ---
+232
+
 teh adutls era tlaking
+
 vocês estão lendo todas as palavras que
 eu estou sonhando então depois diga para
 mim estou tentando muito chamar a sua
@@ -16102,125 +16270,199 @@ a minha poesia do mesmo jeito que você
 é mas daí você também teria culpa os
 adultos estão falando os adultos 
 continuam falando
+
 Julian Casablancas e Vinícius Knecht
 ---
-você estava meio estranho
-ah que bom que você gostou
+231
+
+— você estava meio estranho
+— ah que bom que você gostou
 ---
-eu acho que você merece ficar
+230
+
+— eu acho que você merece ficar
 sozinha e esse é o maior 
 elogio que eu posso 
 te dar
 ---
+229
+
 nunca se precipite na beira
 de um precipício ele pode
+
 ser real
 ---
-sabe o que te faz mais 
-homem? ser menos 
-homem
+228
+
+— o que te faz mais homem? 
+— ser menos homem
 ---
+227
+
 eu sou o dinossauro 
 você é a paleontóloga
 ---
+226
+
 nosso estado sempre foi
-motivo de piada: rsrsrs
+motivo de piada rsrsrs
 ---
+225
+
 sou sol um poeta quando chove
 ---
+224
+
 se eu não disser o nome
 do filme não será spoiler
 ---
+223
+
 velho entra na barriga por herança
 ---
+222
+
 quem nasceu primeiro 
 a verdade ou a mentira
 ---
-você tem um amor ainda não diagnosticado
+221
+
+você tem um amor ainda não 
+diagnosticado
 ---
+220
+
 tremendo a cada passo pelo
 seu amor a aura da sedução
-que nada era apenas o 
-lítio
+que nada era apenas o lítio
 ---
+219
+
 fui rejeitado novamente num amor
 e aquilo me foi maravilhoso nunca
 me senti tão bem no hospital
 ---
+218
+
 te amar foi como ir até
 o hospital por causa de
-uma espinha e ser
-internado
+uma espinha 
+
+e ser internado
 ---
-se eu sou William Blake?
+217
+
+— se eu sou William Blake?
 sim sou eu conhece a minha
 poesia? alguns nascem para
 a noite sem fim e alguns pior
 morrem nos seus piores
 pesadelos
+
 Jim Jarmusch e Vinícius Knecht
 ---
-ouvir o choro mais alto que a música
+216
+
+ouvir o choro 
+mais alto 
+que a música
 ---
+215
+
 súbitas ondas de ódio
 o mar é tão gentil...
 ---
+214
+
 depressão versa sobre não
 conseguir ouvir seus 
 próprios silêncios
 ---
+213
+
 atualmente o mais triste
 plantado naquele
 cemitério
 ---
+212
+
 provérbio
+
 os olhos como diz o provérbio
 são a janela da alma prefiro
-que os meus sejam porta
+que os meus sejam a porta
 ---
+211
+
 ser o motivo das risadas 
 das amigas da sua 
 namorada
 ---
-eu te amo
-eu não seria tão burro em 
+210
+
+— eu te amo
+— eu não seria tão burro em 
 acreditar nisso
-viu só eu não te dei amor
+— viu só eu não te dei amor
 mas pelo menos eu te dei
 sabedoria
 ---
+209
+
 tudo o que escrevo é um texte
 ---
-capitalismo é vida
-você pode ser qualquer 
-coisa desde que os outros 
-digam que você é
+208
+
+— capitalismo é vida
+você pode ser qualquer coisa 
+desde que os outros digam 
+que você é
 ---
+207
+
 gostava igualmente de 
-rock e de Beethoven o 
-filme
+rock e de Beethoven 
+
+o filme
 ---
+206
+
 fechava os olhos para buscar
 o infinito ou numa recusa de
 ver o finito
 ---
+205
+
 amor
-clamor orgíaco da solidão
+
+clamor orgíaco 
+da solidão
 ---
+204
+
 apetite de ler devorando mangás
 ---
+203
+
 indigno de um amor tão 
 grande digno de uma 
 obra-prima
 ---
+202
+
 amor
-do gozo ao catarro
+do gozo 
+ao catarro
 ---
+201
+
 escrever é se inscrever numa novidade
 vida bilhete de entrada para um uni
 verso ticket como passaporte para
 outra alma ler não é diferente
 ---
+200
+
 escrevia
 escrevia mais do que devia
 escrevia mais do que devia a si
@@ -16230,183 +16472,277 @@ escrevia mais do que devia à arte
 escrevia mais do que via
 escrevia
 ---
+199
+
 fantasma
-que dá voltas e não volta
+que dá voltas 
+e não volta
 ---
+198
+
 desligava todas as luzes no
 entanto no momento que
 penetrava fechava os
 olhos
 ---
+197
+
 eu queria tanto não ter 
 o que dizer naquele 
 momento
 ---
+196
+
 escrevia tão qual quando 
 então só ninguém a 
 observava
 ---
-não pegaria muito bem para a
-minha família o nosso amor 
-ser escrito por você sabe
+195
+
+— não pegaria muito bem para a
+minha família o nosso amor ser 
+escrito por você entende
 ---
+194
+
 cuspia amor em partículas que flutuavam 
 no seu cérebro encarcerado e então o 
 desejo de morte disfarçado
 ---
+193
+
 extremismos ou luz intensa
 que cega ou escuridão total
 ---
+192
+
 restaram ao menos aqueles
 longos silêncios até abrir 
 a porta-voz da resistência
 ---
+191
+
 é verdade que eu consegui 
 fazê-lo chorar? ela repetia 
 dezenas de vezes como quem 
 ganhara o Prêmio Nobel e 
 não acreditasse
 ---
+190
+
 pulando acerca de mim
 ---
+189
+
 se mataria por reconhecimento
 ou por não se reconhecer mais?
 ---
+188
+
 riNietzsche da poeira das bibliotecas
 ---
-seu gemido ecoava poesia orquestrada
+187
+
+seu gemido ecoava 
+poesia orquestrada
 ---
-já li o texto três vezes
-e ainda não entendi...
-pois eu só precisei ler 
-uma vez para não 
-entender
+186
+
+— já li o texto três vezes
+e ainda não entendi.
+— pois eu só precisei ler 
+uma vez para não entender
 ---
-eu te amo
+185
+
+— eu te amo
 (sonoros peidos)
-o que você disse?
-que também te 
-amo amor
+— o que você disse?
+— que também te amo amor
 ---
+184
+
 não tinha ideia do que aquele o
 lhar lhe perguntara mas tenta
 va se defender
 ---
+183
+
 a paleta de cores de um amor
 ---
+182
+
 a paleta de cores de uma mulher
 ---
+181
+
 única coisa que eu 
 não sei poupar é 
 dinheiro
 ---
+180
+
 a reunião social a crise 
 de ansiedade se trancar 
 no banheiro respirar 
-sentir respira sentir 
+sentir respira sentir
+
 odores
 ---
+179
+
 tomou soníferos muito fortes
 mas só adormeceu na tarde
 do dia seguinte e ainda
+
 deprimido
 ---
+178
+
 um aposentado com mais ambição
 ---
+177
+
 você não é poeta? 
 então faça o seu 
 papel
 ---
-fizeram um filho sem
-dizer uma só palavra
+176
+
+fizeram 
+um filho 
+sem dizer 
+uma só 
+palavra
 ---
+175
+
 custou karl ser marx
 ---
+174
+
 agasalhado de marca-texto
 apagável Adidas naufragara
 em Rainer Maria Rilke
 ---
+173
+
 você é uma página do world
 ---
+172
+
 conversas insignificantes doavam
 poesia perturbadora melancolia
 ---
-bem por que exatamente você 
+171
+
+— bem por que exatamente você 
 fez isso?
-porque você sabe eu acredito
-que as pessoas nunca pensa
-riam que eu assim o faria
+— porque você sabe eu acredito
+que as pessoas nunca pensariam 
+que eu assim o faria
 ---
-algoritmo infinito de afetos mas convencemo-nos 
-de que Thom Yorke em pessoa triste e de cabelos 
-acinzentados toca Pyramid Song para o nosso grande 
-amor e Johnny Greenwood tocando a sua guitarra 
-como se fosse um violino
+170
+
+algoritmo infinito de afetos 
+mas convencemo-nos de que 
+Thom Yorke em pessoa triste 
+e de cabelos acinzentados 
+toca Pyramid Song para nosso 
+grande amor e Johnny Greenwood 
+tocando a sua guitarra como se 
+fosse um violino
 ---
-eu gosto de romances realistas
-o que é um romance realista
+169
+
+— eu gosto de romances realistas
+— o que é um romance realista
 para você?
-sem semelhança com a vida
+— sem semelhança com a realidade
 ---
+168
+
 MORSE CODE NEOLOGISM
+
 S.O.SOSAD.
 ---
+167
+
 era como ter sua mãe no ventre e
 ouvi-la implorar para que ele não
 abandonasse a sua alma era como
 ter sua mãe no ventre e ouvi-la
 gargalhar para que a sua alma
 não o abandonasse
+
 Milan Kundera e Vinícius Knecht
 ---
-um dos pretendentes lhe recitava versos 
-que criara e todos se  ajoelhavam da 
-mesma maneira mas só um tinha 
-bolhas nos joelhos
----
+166
+
 se perguntava o tempo todo se
 talvez não fosse um daqueles
 homens que começa a vida
 depois dos quarenta anos
 ---
+165
+
 regia a banda no corpo de Vinícius
 que tocava sua despedida na Estrela
-uma marcha intitulada “teria mesmo
-que ser assim?”
+uma marcha intitulada 
+
+“teria mesmo que ser assim?”
 ---
+164
+
 algo catastrófico está acontecendo
 no sistema solar eu me apaixonei
-por ela e correr não adiantará
-nada nesse caso
+por ela e correr não adianta
+ria neste caso
 ---
+163
+
 ela gostaria de morrer só para si
 e continuar vivendo para os 
 outros
 ---
+162
+
 poeta é a que le que faz 
-copo d’água em 
-tempestade
+copo d’água em tempestade
 ---
-tudo bem doutor eu abro mão do
+161
+
+— tudo bem doutor eu abro mão do
 amor e da poesia pode me 
 aplicar a cetamina 
 endovenosa
 ---
+160
+
 “This is poetry.”
 ---
+159
+
 Vinícius Knecht diz que vai se
 aposentar como poeta porque
 Xavier Dolan vai se aposentar
-como cineasta por falta de
-apoio
+como cineasta 
+
+por falta de apoio
 ---
+158
+
 tenho a impressão de ter dito
 tudo o que eu tinha para dizer
 e acho que é por isso que eu
 escrevo tanto declarou-se
 ---
+157
+
 comprometimento para ninguém ler
 ---
+156
+
 me questiono se minhas poesias
 são ruins e eu sei que não são
 ---
