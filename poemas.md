@@ -11454,82 +11454,133 @@ eu acordo tarde...
 ---
 se arredondar eu não tenho defeitos
 ---
+1260
+
 me vê chorando o tempo todo
 então pensa que sou forte
 ---
-o nervosismo depois que já passou
+1259
+
+o nervosismo depois 
+que já passou
 ---
+1258
+
 como você tem certeza de que está louco por ela?
+
 o meu psiquiatra diagnosticou ué
 ---
+1257
+
 há poemas que servem para muitas coisas
 por exemplo alguns servem para explicar
 o quanto o poeta e a poesia são inúteis
 sem ofender o leitor porque isso é
 o mais importante
 ---
+1256
+
 você viu o crescimento do desemprego?
 já estava na hora ele não é mais
 nenhum adolescente
 ---
+1255
+
 verbal
 
 não se preocupe você
 continua linda depois
 que eu morri
 ---
+1254
+
 num mundo distópico 
 eu faço sucesso
 ---
+1253
+
 a morte é um caixão de surpresa
 ---
+1252
+
 Diabo é flagrado lendo a Bíblia
 ---
+1251
+
 parcela em 10x com culpas
 ---
+1250
+
 você se sente menos jovem em tempo real?
 ---
+1249
+
 querido você lembrou de buscar a 
 poesia na escola?
 
 não porque era a sua vez querida
 ---
+1248
+
 quase perdi uma poesia feliz
 mente achei ela dentro da 
 sua calcinha
 ---
+1247
+
 Airton me disse que eu vou ser
 um dos maiores pensei eu
 sempre quis mesmo ter 
 1,90 ou 1,93 mesmo
 ---
+1246
+
 só ela pode me 
 calar com a 
 boca
 ---
-depressão importada da Suíça ou da Bélgica
+1245
+
+depressão importada 
+da Suíça ou da Bélgica
 ---
+1244
+
 você gostaria de um com mordida? 
 temos de várias marcas
 ---
+1243
+
 Radiohead em rima
 
-Let Down no meu funeral
+Let Down 
+no meu 
+funeral
 ---
+1242
+
 passei por momentos muito difíceis
 mas eu saí muito pior de todos eles
 ---
+1241
+
 por que choramos ao cortar bolhas
 ---
+1240
+
 olha só eu vou subir naquele palco e
 eu vou cantar Hotel California para 
 você e vou parecer dez vezes mais 
 bonito e no final eu não vou ficar 
 com você nem fodendo
 ---
+1239
+
 ela é hino demais 
 parao meu palquinho
 ---
+1238
+
 Parte II
 
 que bom que tudo isso é só um rascunho
@@ -11554,6 +11605,8 @@ infelizmente eu não posso ler a sua mente
 sem meus óculos então Isabel
 prazer
 ---
+1237
+
 Parte I
 
 feche os olhos e eu lhe darei um poema
@@ -11581,34 +11634,48 @@ mas eu sei receber o sentimento azul
 já estou no centro de uma estrela abandonada
 sem atenções
 ---
+1236
+
 Quintana
 
 pássaro
 presente
 e futuro
 ---
+1235
+
 não perguntam se eu
 estou feliz por 
 covardia
 ---
+1234
+
 humanidade
 
 sim é sangue na sua camisa
 mas não se preocupe é de
 outra pessoa
 ---
+1233
+
 nós precisamos quebrar
 um dos seus braços
 ---
+1232
+
 você escreve coisas 
 que eu nem sonhava
 ---
+1231
+
 VAR
 
 por este ângulo fica 
 mais visível
 a dúvida
 ---
+1230
+
 tive que escrever que nem
 louco para que você me
 nota-se
@@ -11621,28 +11688,46 @@ tive que escrever que nem
 louco para que você não
 fugisse
 ---
+1229
+
 escrever torna-te quem tu és
 ---
+1228
+
 alguém ainda está aqui?
 ---
+1227
+
 fingindo sanidade
 ---
+1226
+
 ela era mais doce no mar
 ---
+1225
+
 e-logiar era o nome da loja
 eu não aguento mais o 
 digital
 ---
+1224
+
 William Blake finalmente morreu 
 no ano de 2025
 ---
+1223
+
 sabe essa coisa de ir descendo os 
 versos como se nada estivesse
 acontecendo fora de mim
 ---
+1222
+
 na poesia foi a nossa primeira vez
 ---
-por que você sempre foi plural?
+1221
+
+por que você sempre foi plurais?
 ---
 1220
 
