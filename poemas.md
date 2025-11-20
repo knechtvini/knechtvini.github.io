@@ -13648,65 +13648,96 @@ melhores amigos com
 participação especial
 de amor
 ---
+800
+
 seu animal político
-é apenas um 
-animal
+é apenas um animal
 ---
+799
+
 pirei parei na Pinel
 ---
+798
+
 não existe poesia
 do seu tamanho
 a ideia é nunca
 existir
 ---
+797
+
 decidi pôr um fio
 ---
+796
+
 morador do bairro Planalto
 idoso cai em golpe de
 karatê e perde outro
 ente
 ---
+795
+
 Hans Zimmer tic-toc-
 ando no seu mundinho
 ---
+794
+
 hilário insuficiente
 o meu vocabulário
 ---
+793
+
 live de velório
 ---
+792
+
 todo o esgotamento de um artista 
 está no sintoma de que uma espécie 
 de entidade precisa dizer você é 
 artista para que ele então se sinta 
 um
 ---
+791
+
 está pronta deixei a nave ligada
-consegue ser um pouquinho 
-mais rápida você está per
-feita está bem o preto 
-então
+consegue ser um pouquinho mais 
+rápida você está perfeita está bem 
+o preto então
 ---
+790
+
 deve haver alguma espécie
 de dignidade no Instagram
 ---
+789
+
 vamos F5 no amor?
 ---
+788
+
 felicidade pós-renascimento
 ---
+787
+
 ficou para a história
 
 o rico da família que na verdade
 era milionário foi o único que
 literalmente brigou com os
 seus irmãos pela herança
+
 e este vai ser o roteiro
 do meu próximo 
 filme
 ---
+786
+
 tropeçamos na vida deitamos
 no chão fizemos amor para
 disfarçar
 ---
+785
+
 espero 
 que consegui
 porventura 
@@ -13717,40 +13748,62 @@ não definitiva
 eu não sei o
 que quero
 ---
+784
+
 eu sempre tive tudo na
 vida comida roupa teto
-brinquedo depressão
+brinquedo rejeição
 ---
+783
+
 sabe aquele comediante que
 escondia uma depressão?
 então... eu sequer fui
 comediante
 ---
+782
+
 eu vou do inferno ao seu
 ---
+781
+
 DSM-5 edição de bolso
 ---
+780
+
 opinião pública
 (atualizado 2025)
 
 “eu não acho Einstein tudo isso”
 ---
+779
+
 elogios contemporâneos
 
 “ela é tão artista”
 ---
+778
+
 história de um romance moderno
 
-erra uma vez fim
+erra uma vez...
+fim.
 ---
+777
+
 conto “o mistério da matemática”
 
 eu conto ou vocês contam
 ---
+776
+
 infância
 
-eu era muinto mais feliz
+eu era muinto 
+mais feliz
 ---
+775
+
 vinte e quatro anos de análise descobri 
 ao lado do meu analista é claro que a 
 grande causa do meu complexo de 
@@ -13758,6 +13811,8 @@ rejeição se deve ao fato de
 que eu fui rejeitado a vida 
 toda faz a conta
 ---
+774
+
 continho
 
 junto ao corpo suicida no bolso 
@@ -13766,49 +13821,74 @@ da sua calça rasgada depararam
 loteria do dia que já havia cor
 rido ele já estava bem-decidido
 ---
+773
+
 é crédito ou plágio?
 ---
+772
+
 estou em ruínas há mais de
 trinta anos alma mutilada
 mente não restaurada con
 servado em ruínas para que
 ninguém possa culpar-me de 
+
 não ter sofrido o bastante
 ---
+771
+
 silêncio Ludving van
 Beethoven eu não quero
 ouvir mais um piano
 ---
+770
+
 Beto fá anal si senhô
 ---
+769
+
 nos bloqueios criativos ele 
 escreve sobre bloqueios 
 criativos
 ---
+768
+
 Capítulo 1
+
 0 final
 ---
+767
+
 você está vencida eles
 dizem ou pior eles
 pensam
 ---
+766
+
 lamento você fala comigo
-com sintoma não com
-sentimento
+com sintoma não com sentimento
 ---
+765
+
 os fascistinhas carinhosos
 
 só ouço os vizinhos cochicharem tanto
 porque na verdade eles estão gritando
 ---
+764
+
 não há nada mais solitário
 na história que um dente
 de ouro
 ---
+763
+
 você com alguma sombra de dúvidas
 é uma das melhores pessoas que eu
 não conheci em toda a minha vida
 ---
+762
+
 vermelhos
 
 deves tocas um corpo
@@ -13816,74 +13896,112 @@ imperceptivelmente
 avermelhor todas 
 as suas nuanças
 ---
+761
+
 Mario disse que um cachorro
 serve para a gente falar so
 zinho não seria mais fácil 
 ser louco sem ter um 
 cachorro em casa?
 ---
+760
+
 tinder
 
 suas fotos é
 conversa para
 oi dormir
 ---
+759
+
 the Yoñlu
 
 o Pipoca estourou no
 mundo todo e só não
 ouve quem não quer
 ---
+758
+
 “penso que nos adaptamos muito
 bem ao sistema capitalista até
 economizamos um pouquinho
 de saúde mental”
 ---
+757
+
 você pode ser uma boa pessoa
 e só você achar isso você pode
 ser a melhor pessoa do mundo
+
 e só você achar isso
 ---
+756
+
 nunca se viu tanta gente
 fazendo tanta mas tanta
 - força - para amar
 ---
+755
+
 ao menos morreu vivendo
 ---
+754
+
 arte é a forma ilimitada de
 sermos outros mesmos
 ---
+753
+
 rir pra não RIP
 ---
+752
+
 rock ‘n’ roll é salvo por populares
 ---
+751
+
 não necessariamente um ser
 inteligente mas um ser pro
 fundo sem ser entediante
 ---
+750
+
 antigamente amor podia cair
 de penhasco e era socorrido
 com vida
 ---
+749
+
 amor toca a companhia 
 e sai correndo
 ---
+748
+
 a-mor-te-ce tê-las
 que me arranham
 ---
+747
+
 a vida é uma piada
-por isso vale a 
-pena
+por isso vale a pena
 ---
+746
+
 acolham flores amores
 sobre-tudo encolhidos
 ---
+745
+
 justiça com as próprias mães
 
 ah se o mar fosse no feminino...
 ---
+744
+
 amar sem anestesia geral
 ---
+743
+
 a caça
 
 não tinha a menor ideia
@@ -13893,132 +14011,206 @@ ameaçava mas instintiva
 mente cismava se 
 defender
 ---
+742
+
 a necessidade da escrita a
 necessidade de ser artista
 dizer algo como se fosse
-o primeiro e o último 
-ser humano
+o primeiro e o último
+
+ser 
+
+humano
 ---
+741
+
 causa
 
 eu vou lutar para que o
 poeta contemporâneo
 seja chamado de
+
 doutor
 ---
+740
+
 doutorado em poeta
 ---
+739
+
 poema de tiozão
 
 eu nunca vou me perdoar por
 ter dado margem ao rio num
 poema tão sério de tio
 ---
+738
+
 em t o d o s romances ela
 colocava os mesmos versos
 mas de músicas diferentes
 ---
+737
+
 o leitor na obrigação de despertar
 insiste em ler dormindo
 ---
+736
+
 abundantemente ltda.
 ---
-o que você faz com os olhos?
-lentes fotográficas
+735
+
+— o que você faz com os olhos?
+— lentes fotográficas
 ---
+734
+
 tenho medo de inventar
-algo que não me
-reinvente
+algo que não me reinvente
 ---
+733
+
 quando olho minhas fot. 
 de quando eu era criança
 engraçado que parece 
-que eu era mais 
+que eu era mais
+
 velho
 ---
+732
+
 um fantasma do seu lado
 enquanto você assiste
 Ghost
 ---
+731
+
 qual o tamanho do seu
 documento no world?
 ---
+730
+
 pela aliança notou que ela
 apresentava péssimo gosto
 então investiu
 ---
+729
+
 eu passei por um passarinho ca
 minhando enquanto chovia que 
 me parou para perguntar se eles 
 sempre passarão bom apenas 
 respondi com licença e voei
 ---
+728
+
 Quer publicar o seu livro?
 Todos os direitos desta edição
 retirados do autor
 ---
-por que você fala comigo desse jeito?
-que jeito?
-como se estivesse
+727
+
+— por que você fala comigo desse jeito?
+— que jeito?
+— como se estivesse
 
 Escrevendo,
 ---
+726
+
 amores modernos
 
 pra ser sincero é
-preciso ser 
-vidente
+preciso ser vidente
 ---
+725
+
 um Ser criando respostas
 mentirosas para pergunt
 as inventadas
 ---
+724
+
 também não faço a menor 
 falta na minha poesia 
 outro poeta melhor a 
 escreveria
 ---
+723
+
 você já chorou ouvindo uma multa?
 ---
+722
+
 ah poesia digital até abrir 
 um documento já se foi 
 aquele pensamento
 ---
-um poeta pode ser extremamente
-perigoso nas suas últimas
+721
+
+um poeta pode 
+ser extremamente
+perigoso nas 
+
+suas 
+
+últimas
 semanas
 ---
+720
+
 parecia que viria um poema
 era só a vizinha Iracema
 ---
+719
+
 Kurt Cobain desrespeitava todos
 os homofóbicos e vocês nunca
 fizeram nada
 ---
+718
+
 m&u @mor
 ---
+717
+
 mãos cruzadas o chão
 encanta tanto amada?
 ---
+716
+
 AM
 
 tente o equilíbrio
 em seis cordas
 ---
+715
+
 esperma mais um pouco?
 ---
+714
+
 ainda não sei o estado que
 vou estar depois de morto
 ---
+713
+
 eu me Ode e eu quero mor
 ---
+712
+
 tô com depressão me
 me anima depressa
 ---
+711
+
 quero me livrar dessa vida 
 mas não quero me livrar 
 dessa história
 ---
+710
+
 meio Woody Allen
 
 eu estou no controle mas 
@@ -14026,56 +14218,86 @@ ele está desconectado do
 videogame é assim que 
 eu vejo a vida
 ---
+709
+
 time
 
 de tempo em tempo
 de mim a mim
 por alguns anos
 os tantos e tantos
+
 mins...
 ---
+708
+
 estou mobiliando o
 fundo do meu poço
 ---
+707
+
 Vinícius já está morto na Austrália
 ---
+706
+
 não são lágrimas se 
 você está na chuva
 ---
+705
+
 o poeta não fugirá do seu
 destino histórico mas o
 que não é histórico hj
 em dia?
 ---
+704
+
 choro mais acessível
 ver preços pesquisar
 ---
+703
+
 menos informações em breve
 ---
+702
+
 se ao menos escreveu
 ao menos cogitou 
 sentir
 ---
-como pegar mulher?
-pra começar não 
+701
+
+— como pegar mulher?
+— pra começar não 
 usando esses
 termos
 ---
+700
+
 dança lírica
 
 ela toda balé 
-e aqui jazz 
+e aqui jazz
+
 Vinícius
 ---
+699
+
 agora dance a nossa língua
 ---
+698
+
 quando estou escrevendo
 demoro mais para gozar
 ---
+697
+
 a poesia cheia de louça para
 lavar este vício de...
 de deter gente
 ---
+696
+
 Chandler Muriel Bing
 
 1.	The one with the Friends’ soul
@@ -14085,39 +14307,61 @@ Sorry
 
 em memória de Matthew Perry
 ---
+695
+
 carta aberta 
 
 saudades só matam quando 
 elas as a assinam
 ---
+694
+
 por que todo o amor que
 me aparece se parece 
 com o Cavalo de 
 Troia?
 ---
+693
+
 céu dublado
 ---
-poesia é a verdadeira natureza
-do tempo com legenda
+692
+
+poesia 
+é a verdadeira natureza
+do tempo 
+com legenda
 sincronizada
 ---
+691
+
 acho que agora que ele
 morreu a gente já pode
 ler o que ele escreveu
 ---
+690
+
 por favor alguém me explica
 neste negócio todo de amor
 nos tempos de capitalismo
 ---
+689
+
 amores em modo
 avião pousando
 ---
+688
+
 aceito uma asa quebrada
 ---
+687
+
 artes da mesma espécie
 que se farejam mas não
 se reconhecem
 ---
+686
+
 artistas locais
 
 os únicos artistas locais
@@ -14125,15 +14369,22 @@ reconhecidos nas pequenas
 cidades do interior são
 os turistas
 ---
+685
+
 atual estado da literatura
 
-você gosta de prosa?
-Prozac?
+— você gosta de prosa?
+— Prozac?
 ---
-barriga para fora:
+684
+
+barriga para fora
+
 liberdade ou 
 solidão?
 ---
+683
+
 poesia acrílica
 
 então assista
@@ -14141,6 +14392,8 @@ agora o que
 andei pens
 ando
 ---
+682
+
 um grande louco me disse que
 haviam câmeras escondidas 
 ali eu logo o acalmei con
@@ -14148,28 +14401,40 @@ tando que elas não estavam
 nos filmando naquele 
 momento
 ---
-ah vai ler um Mário!
+681
+
+— ah vai ler um Mário!
 ela destratou
-Mario não tem acento
+— Mario não tem acento
 ele corrigiu
 ---
+680
+
 a grama do vizinho 
 é ver-de-mais
 ---
+679
+
 alguém já lhe disse 
 você é suficiente
 olhando nos seus 
 olhos? eu 
 imaginei
 ---
+678
+
 você é tão feita
 ---
+677
+
 Santos Dumont tinha que ser feriado
 nacional então fale com os franceses
 de frente para a Torre Eiffel eu fica
 ria olhando apenas para o seu cabelo
 todo anoitecido
 ---
+676
+
 então contei minhas dores Schopenhauer
 zerou uma gargalhada sinistra eu quase
 pulei da nuvem de medo desde o início
@@ -14177,165 +14442,247 @@ que comecei a discorrer Schopenhauer
 sorria para todos os caminhos que você
 não possa imaginar
 ---
+675
+
 risível se opor ao humor 
 chorável se rir da 
 delinquência
 ---
+674
+
 Selfiend
 
 coloque na câmera
 córtex pré-
 frontal
 ---
+673
+
 no canto mais intimismo do
 seu ser só sabia escrever
 ---
+672
+
 vocês estão juntos?
 somos só morados
 ---
+671
+
 sou um assombro ou
-isto é só ser 
-artista?
+isto é só ser artista?
 ---
+670
+
 deste lado da história te
 mando agora o meu final
 ---
+669
+
 medeixaqui...
 todo limitadinho
 escrevendo meus...
 todos quietinhos
 ---
+668
+
 há muitos torcendo pelo seu
-fracasso outros estão 
+fracasso outros estão
+
 lutando por ele
 ---
+667
+
 precisamos de uma boa de uma
 diagnosticada para descansar
 todos os sorrisos
 ---
+666
+
 abre-se espaço para
 uma garrafa de vini
 ---
+665
+
 quando suportaria na única ocasião da 
 sua vida por mim sentir-se atraída 
 estava excepcionalmente naquela 
 noite tão mas tão tão 
+
 distraída
 ---
+664
+
 a poesia não costuma fazer 
 pose para mim eu imagino
 ---
+663
+
 por que diabos 
-pretensioso é 
-crítica?
+pretensioso 
+é crítica?
 ---
-eu sou o profeta do passado
+662
+
+eu sou o profeta 
+do passado
 ---
+661
+
 o humor paciente não funciona
 muito bem na psicanálise
 ---
+660
+
 99% dos poemas que eu
 escrevi eu já nem me 
 lembro mais qual era 
 a pergunta mesmo?
 ---
+659
+
 aleluias 
 aleatórias
 ---
+658
+
 Quintanem-se, Marietas!
 ---
+657
+
 regresso
 
 foi a gota 
 d’fogo
 ---
+656
+
 saí da festa para trazer
 -me de volta a mim 
 mesmo
 ---
+655
+
 pedra madeira ou osso
+
 a arte jamais começou
 ---
+654
+
 a campainha lhe tocava
 mais que a companhia
 ---
+653
+
 poema do dia
 
 a noite está
 poesia
 ---
+652
+
 seguem abaixo as 
 orientações médicas
 
 a sua depressão está 
 apenas começando 
-sucesso na sua
-trajetória
+
+sucesso na sua trajetória
 ---
+651
+
 eu sei que a vozinha que o
 meu vôzinho faz para o
 seu cachorro é a razão
-da sua existência
+da 
+
+sua 
+
+existência
 
 para José Roque Wendt
 ---
+650
+
 a advogada distraída pois
 a ficha não caiu ainda
 
 “calma eu ainda estou 
 processando”
 ---
+649
+
 poeminho à deriva
 
 um jantar à luz de
 veleiro em alto
 -mar
 ---
+648
+
 poeminho dos poeminhos
 
 das sínteses na escola
 nasceram os poeminhos
 ---
+647
+
 polaroid
 
 sorri com os mundo e sem
 piscar os mundos os olhos
 disfarçáveis que ao ver 
 de perto revelam giras
+
 sóis de Van Gogh
 ---
+646
+
 o café preto sem açúcar que
 mantém a poesia eufó rica
 a cor dada e não mata a
 sede de um l imitado
 poeta
 ---
+645
+
 é insuportável a facilidade 
 com que você não me ama
 ---
+644
+
 a poesia não botas
 ninguém mais para
 correr
 ---
+643
+
 a revolução dos bichos
 
 eu me dou melhor com os
 bichos do que com os
 animais
 ---
+641
+
 cenas de um casamento
 
 sinto a sua 
 falta de ar
 ---
+640
+
 a voada amou
 ---
+639
+
 a voz veio das nuvens
 fim da linha poeta____
 e então subi disfarçado
 
 ainda assim desconfiado
 ---
+638
+
 aindo
 
 alguns só continuam ainda
@@ -14343,65 +14690,100 @@ porque algumas coisas
 - ainda - são de
 graça
 ---
+637
+
 até um bicho lida com a arte
 ---
+636
+
 atraversando as tuas
 ---
+635
+
 dá para sentir daqui o seu 
 bafo de ligação para ex
 ---
+634
+
 band-aid
 
 bandos noturnos atrás
-de bares bandas e
-bundas
+de bares bandas 
+
+e bundas
 ---
+633
+
 breve o bastante 
 para ser bravo!
 ---
+632
+
 civilização de deprimidos que
 sofrendo da inanição poética
+
 violentam violetas
 ---
+631
+
 entrevista de emprego
 
 “mas verdadeira até
 uma cobra-coral é”
 ---
-com licença poética...
+630
+
+com licença poética
 
 com todo o respeito
 eu não respeito 
 você
 ---
-ouça bem: você é melhor que
+629
+
+ouça bem você é melhor que
 o solo de Comfortably Numb
 ---
+628
+
 poeminho da elegância
 
 da academia eu 
 saí de fininho
 ---
+627
+
 da solitude
 
-saudade de pôr um
-fim num amor
+saudade de pôr 
+um fim num amor
 ---
+626
+
 da sucessão
 
-ele parou no tenho
+ele parou 
+no tenho
 ---
+625
+
 dando o redondo contra
 o quadradismo do
 mundo
 ---
+624
+
 tempo um abs trato com o espaço
 o sol vai engolir a terra e eu 
 terei o meu dinossauro de 
 estimação
 ---
+623
+
 distraídos escreveremos
 ---
+622
+
 do clubista
 
 quando você fala dos
@@ -14409,78 +14791,123 @@ seus recordes você
 está falando dos
 seus limites
 ---
+621
+
 do noticiário esportivo
 
 in forma de circo
 ---
+620
+
 às vezes me lembram quem
-eu nunca fui e eu me
-esqueço
+eu nunca fui e eu 
+me esqueço
 ---
+619
+
 e o final todos nós sabemos
 um novo começo... se não
 para nós... para os 
 outros...
 ---
-é vício ou é só exagero?
+618
+
+é vício ou é 
+só exagero?
 ---
+617
+
 Thom Yorke, have you ever heard of Yoñlu?
 ---
+616
+
 na previsão era chuva de pedra
 um asteroide cai na alma
 ---
+615
+
 minha vida não passou 
-de um plágio mal 
-feito
+de um plágio mal feito
 ---
+614
+
 o acaso me revelou um tesouro
 escondido na pacata região
 das páginas 29, 30 e 31
 ---
-então Vinícius hoje eu vou pedir
+613
+
+— então Vinícius hoje eu vou pedir
 que você faça um novo exame
-qual doutor?
-uma autópsia
+— qual doutor?
+— uma autópsia
 ---
+612
+
 Vincent
 
 tive um quadro
 e não o tratei
 ---
-você é fã da banda?
-é claro que eu sou fã
-então cite três músicas
+611
+
+— você é fã da banda?
+— é claro que eu sou fã
+— então cite três músicas
 da banda acusadas de
 plágio
 ---
-você é fã do jogador?
-é óbvio ele é craque
-então cite três casos 
+610
+
+— você é fã do jogador?
+— é óbvio ele é craque
+— então cite três casos 
 de violência sexual 
 que ele cometeu
 ---
+609
+
 se comparassem nossas artes
 você teria ampla paisagem
 ---
+608
+
 eu vou contar os meus sonhos em
 forma de piada para você não
 achar tão engraçado
 ---
+607
+
 perdida no barzinho pedido
 ---
+606
+
 sobre a minha passagem meu
 pai sempre me deu pistas 
 de danças dos anos 80
 ---
-esperando-a se confessar mais fraca
+605
+
+esperando-a se 
+confessar mais 
+fraca
 ---
-uma vida com vários protagonistas
+604
+
+uma vida com vários 
+protagonistas
 ---
+603
+
 amor ou histeria?
 ---
+602
+
 é mais a sua cara ir num
 cemitério encher a cara
 ---
+601
+
 você tão-só prefere o irreal que
 o real o que convenhamos é
 bem mais autêntico
