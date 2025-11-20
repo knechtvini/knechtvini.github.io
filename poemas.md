@@ -11644,23 +11644,34 @@ na poesia foi a nossa primeira vez
 ---
 por que você sempre foi plural?
 ---
+1220
+
 Maria Eugênia o nome da psicóloga
 ela era mais inteligente que 
 Isaac Newton eu não me 
 apaixonei eu juro
 ---
+1219
+
 não é para concordar é para
 refletir mas entre concordar
 e discordar: discordar
 ---
+1218
+
 amiga você terminou com 
 o Vinícius? você não 
 o amava?
+
 eu deixei para a próxima...
 ---
+1217
+
 você não precisa de um cigarro
 você precisa de uma boa arte
 ---
+1216
+
 congela
 é essa imagem
 que eu quero
@@ -11668,17 +11679,25 @@ para mim
 
 nem Van Gogh...
 ---
+1215
+
 eu ia pular enquanto escrevia
 decidi comer sorvete de
 flocos 
 ---
+1214
+
 é o apartamento 603 e a
 depressão ainda alcança
 ---
+1213
+
 vou escrever esta noite e 
 vou tirar o atrasado nem
 o sonho me impede
 ---
+1212
+
 o aluguel está atrasado
 eu não moro aqui eu
 moro em mim 
@@ -11686,42 +11705,62 @@ mesmo
 também é alugado?
 você é filósofo?
 ---
+1211
+
 você é um gênio
+
 sim eu criei a
 solidão pato
 lógica
 ---
+1210
+
 então ouço Bee Gees e lembro
 do meu amigo que está mais
 aqui
 ---
+1209
+
 corro por um amor te perco o a
 ---
+1208
+
 simplesmente corro os dedos
 ---
+1207
+
 o sentimento vermelho
 
 esta é a parte da poesia em
-que eu escrevo come on
-baby blue
+que eu escrevo come on baby blue
 ---
+1206
+
 amor a gente supera
 porque a gente
 diz torce 
 contra
 ---
+1205
+
 alguém te amou mais que
 a sua própria vida a 
 sua não a minha
 ---
+1204
+
 eu não tenho a mínima
 condição de poesia
 neste memento
 ---
+1203
+
 entrando na sua cabeça ao som 
 de All The Things She Said –
 t.A.T.u
 ---
+1202
+
 eu estava com a droga daquela pessoa
 preso na droga daquele amor sentado
 na droga daquele cinema assistindo
@@ -11733,41 +11772,60 @@ eu nunca vou superar essa banda
 essa música esse Deadpool esse
 cinema e essa pessoa
 ---
+1201
+
 da mesma alma que vem poesia 
 vem outras coisas nada a ver 
 como é possível entender?
 ---
+1200
+
 quantas carolinas comer por dia?
 google pesquisar
 ---
+1199
+
 sonho que estou perdendo dinheiro
 acordo e nem tenho esse dinheiro
 ---
+1198
+
 você me ama? que pergunta 
 idiota o que você está 
 fazendo? o que estou 
 fazendo? não está 
 vendo palavras?
 ---
+1197
+
 na areia a vó esquece o caminho da volta
 família não quer saber da minha escrita
 interfone nunca funcionou e
+
 ninguém se importa
 ---
+1196
+
 é mais equipamento que produção 
 é mais equipamento que audio
 visual
 ---
+1195
+
 pela areia meu pai caminhou 
 até Iemanjá hoje em dia todo 
 mundo acredita ser santo(a)
 ---
+1194
+
 sonhei que perdia a memória
 quanto tempo já faz isso?
 sonhei com uma lâmpada 
 vermelha então devo 
 ficar atento
 ---
+1193
+
 então escreveria um poema sobre 
 o nariz do Adrien Brody mas 
 percebo que minha saudade 
@@ -11778,17 +11836,25 @@ deixei aí
 
 e você deve ter esquecido
 ---
+1192
+
 nada do que escrevi na praia
 vale agora não porque não 
 estou mais lá mas porque 
 já não sinto
 ---
+1191
+
 qual o meu maior sonho?
 pelo que vejo aqui
 um pesadelo
 ---
+1190
+
 escrevo como parto
 ---
+1189
+
 na escuridão do atempo
 por que é escuro à noite
 os minutos finais da juventude
@@ -11817,54 +11883,79 @@ diz noite eles dizem
 por que é tão escuro durante o dia
 a morte
 ---
+1188
+
 a serenidade e a paz de um
 olhar livre de maldade e a
 consciência de que poderia
 ser melhor
 ---
+1187
+
 fazendo uma ponte 
 entre o rio e o 
 choro
 ---
-estou escrevendo contra o e vento
+1186
+
+estou escrevendo 
+contra o e vento
 ---
+1185
+
 não se preocupe ninguém
 vai ler não por segurança
 mas por falta de interesse
 ---
+1184
+
 você entendeu tudo errado...
+
 mas você dizia o tempo todo que
 queria morar comigo ter filhos
 comigo que me amava e que
 queria ficar comigo para
 sempre!
+
 mas não literalmente... você 
 confundiu as coisas...
 ---
+1183
+
 descubra você 
 você mesmo
 ---
+1182
+
 dos meus melhores
 arrependimentos 
-ter entrado em 
-você
+ter entrado em você
 ---
+1181
+
 um homofóbico sofre de TOQ
 e toda a semana visita seu
 urologista
 ---
+1180
+
 eu tenho uma vida literária
 bastante ativa sabe então
 eu me pretejo para que
 não nasça um autoajuda
 não planejado
 ---
+1179
+
 azar na vida
-sorte na 
-poesia
+sorte na poesia
 ---
+1178
+
 superrar
 ---
+1177
+
 tatuagens
 
 nas mãos
@@ -11874,40 +11965,59 @@ letra
 ARTE
 POETA
 ---
+1176
+
 e respondi com muita
 propriedade sem hect
 ares
 ---
+1175
+
 você mostrou a sua cidade
 eu mostrei o meu mundo e
+
 eu sempre vou me perdoar
 por isso
 ---
+1174
+
 é a sua sétima esposa mas
 talvez o seu grande amor
 ---
+1173
+
 mas é claro o
 seu pedido é
 uma dúvida
 ---
+1172
+
 a tarde talvez fosse
 mais amarela se 
 não fosse o 
 blue
 ---
+1171
+
 aquele segundo após
 um século de amor
 ---
+1170
+
 amor nos rios do Pantanal
 [remake]
 
 corpo em balsa amado
 ---
+1169
+
 rima não é solução
 mas eu detestaria
 ter que dizer
 não
 ---
+1168
+
 POESIA CAUSA CÂNCER DE PULMÃO
 POESIA SOFRE
 POESIA ENVELHECE
@@ -11916,127 +12026,187 @@ POESIA INFARTA
 POESIA BROCHA
 POESIA MATA
 ---
+1167
+
 não sabe quanto amor aquele
 amor tem mas sabe que pode
 morar sozinho
 ---
+1166
+
 somos ums
 ---
+1165
+
 tenho sido o seu tecido
 ---
+1164
+
 tinta & purgatório
 
 antes adiavam um pouco
 as penas dos poetas
 ---
+1163
+
 poesia de cada dia que
 nos dai o amanhã
 ---
+1162
+
 pombos abandonados
 
 vou focar na obs
 dos pombinhos
 ---
+1161
+
 por que você ainda
 escreve poesia?
+
 acredito que é minha
 maneira diária de me
 despedir
 ---
+1160
+
 pouca perna para meus
 olhos pouca mão para
 meus olhos que tanto
+
 tanto questionam
 ---
+1159
+
 você é uma pessoa boa 
 demais para mim...
+
 então o que eu posso
 fazer para me tornar
 pior?
 ---
+1158
+
 olha eu sei que as coisas não têm
 sido fáceis entre a gente por isso
 decidi fazer algo diferente e...
 comprei duas passagens para
 Paris!
+
 eu não sei onde você quer chegar
 com isso Vinícius
+
 PARIS!
 ---
+1157
+
 com amor, Van Gogh
 
 as janelas cumprirão apenas
 um papel decorativo na
 casa
 ---
+1156
+
 sentava na frente para me sentir 
 o piloto hoje sento na frente 
 para ser o primeiro a 
 ir embora
 ---
+1155
+
 o acordar de um homem ridículo
 
 olhei-me no espelho e o reflexo disse
 você é um homem ridículo então pensei 
 o que importa é o talento e ao 
 refletir o espelho refletiu 
+
 você é um homem ridículo
 ---
+1154
+
 pais e filhos
 
 você não pensou em nós
 antes de ter depressão?
 ---
+1153
+
 nos chamam de loucos mas 
 o que esses normais 
 estão fazendo que 
 preste?
 ---
+1152
+
 então nos vemos no próximo livro
 ---
+1151
+
 natureza humana se trata na terra
 natureza humana se trata na Terra
 ---
+1150
+
 sábado
 
 amanhã é Neosa-feira
 ---
+1149
+
 modéstia parte fizemos
 grandes inimigos temos
 que reconhecer
 ---
+1148
+
 acordo entre multidão e
 silêncio durmo com o
 Mick Jagger
 ---
+1147
+
 tua boca tuas pernas teu
 cabelo teu sexo meus
 olhos minha poesia
-
 líquida minha poesia
 mais lúcida que nós
 ---
+1146
+
 minha mãe me penteou
 minha poesia me
+
 enterrou
 ---
+1145
+
 mau hálito
 
 dizem que tenho um 
 péssimo gosto
 ---
+1144
+
 você me deixa inspirado
 quando você me deixa
 sem palavras
 ---
+1143
+
 sua vida é uma mentira
 contada uma vez que
 você acreditou nela
 ---
+1142
+
 e ela tem um carrão
 com aquele seu Ka
 belo
 ---
+1141
+
 Las Poesías
 
 e vocês sabem o que
