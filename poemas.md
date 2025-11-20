@@ -16410,101 +16410,162 @@ comprometimento para ninguém ler
 me questiono se minhas poesias
 são ruins e eu sei que não são
 ---
+155
+
 Vinícius ameaça se amar
 ---
+154
+
 toda a menina que eu gosto
 mora longe dela mesma
 ---
+153
+
 sangro antes mesmo de 
 tocar nos cacos de 
 vidro
 ---
+152
+
 eu vou engolir as suas cinzas
 ---
-não quero que a minha filha
+151
+
+— não quero que a minha filha
 chegue perto da sua poesia
 você entendeu
 ---
+150
+
 não precisa lidar co
 migo eu só quero 
 ser lido
 ---
+149
+
 pênis cogumelos
 ---
+148
+
 se você não desistir deles
 você estará desistindo de
 você eu sinto muitos
 ---
+147
+
 o chefe diz se liga nisso 
 você está sempre 
 desligada
 ---
+146
+
 seu brilho existencial tem um
 pico que dura a eternidade
 para aumentar gradual
 mente
 ---
+145
+
 mas calma você não precisa se apav
 orar pois até o momento não detecta
 ram nenhuma estrela com condições
 de se tornar uma supernova nas redon
 dezas da terra a mais próxima que ti
-vemos explodiu-se em 05 de abril de 
-1994
+vemos explodiu-se em 
+
+05 de abril de 1994
 ---
+144
+
 meus livros serão compartilhados 
-pelo sol daqui a bilhões de anos 
+pelo sol daqui a bilhões de anos
+
 a evolução de uma estrela
 ---
+143
+
 é claro que se pudesse eu ficaria
 conversando anote toda com
 você
 ---
+142
+
 “a estrela mais próxima da terra
 é o sol” mentira é o David Bowie
 ---
+141
+
 papai é domingo calvo
 ---
-poeta inspirando a poesia que o inspirou
+140
+
+poeta inspirando 
+a poesia que 
+o inspirou
 ---
+139
+
 Stanley Kubrick de olhos bem fechados
 é noite em dobro Stanley Kubrick de
 olhos bem fechados é noite
 mascarada
 ---
+138
+
 gostaria de morrar mais perto
 de você eu quero morer com
 você
 ---
+137
+
 não assisto tanto romance
 acho desnecessário tantas 
 e tantas referências
 ---
+136
+
 seu pum foi estabelecido por um
 astrofísico explosão de supernovas
 com liberação excessiva de gás que
 podem ser varridos para outra
 galáxia
 ---
+135
+
 às vezes um pai ausente
 é sempre um presente
 ---
+134
+
 poeta nunca era...
+
 ou é licença poética
 ou é neologismo
 ---
+133
+
 eu não ronco eu passo
-o trator nos pesadelos
+o trator nos 
+pesadelos
 ---
+132
+
 quero seu tempo no meu tempo
 e meu tempo no seu tempo
 ---
+131
+
 o Toby era o meu maior hobby
 ---
+130
+
 você me pregou uma surpresa
 agora eu tenho que sofrer
+
 mais rápido
 ---
+129
+
 Abujamra:
 Vinícius Knecht... o que é... a poesia?
 Vinícius:
@@ -16526,224 +16587,376 @@ Abujamra:
 mas você vem com essa pra cima de mim? 
 vem cá e me dá um abraço
 ---
+128
+
 bilhões e bilhões de poesias
 estão atravessando o seu
 corpo enquanto você lê
-esta poesia
+
+essa poesia
 ---
+127
+
 canto ela arranjo uma
 namorada gosto da mel
 o dia ela me instrumen
 ta canto ela
 ---
+126
+
 chuva para secar as lágrimas
 ---
+125
+
 o cosmos nos diz que somos
 mais conectados com a inter
 net do que com o universo
 ---
+124
+
 cu que não tem assento
 ---
+123
+
 Death Cab For Cutie em Porto Alegre
 ---
+122
+
 um filme dramático que virou
 uma comédia por ser um péssimo
-filme é assim que eu vejo a vida
+filme 
+
+é assim que eu vejo a vida
 ---
+121
+
 enxergando nosso amor na escala
 da existência temos a percepção
 do quanto é efêmero e grandioso
 nosso universo
 ---
+120
+
 estou em ruínas há mais de trinta 
 anos alma mutilada mente não res
 taurada conservado em ruínas para 
-que ninguém possa culpar-me de 
+que ninguém possa culpar-me de
+
 não ter sofrido o bastante
 ---
-vamos ter um momento
+119
+
+— vamos ter um momento
 espaço-tempo só para
 nós?
 ---
+118
+
 exibiam seus desprezos inúmeras
 fotos de jovens mulheres velhas
 esposas cotidianamente na guerra
 fotografias ao fundo tanques de
+
 lavar roupas
+
 limpas
 ---
+117
+
 as pessoas nunca perdem a oportunidade
 de falar mal dos melhores amigos para
+
 estranhos em festas
 ---
+116
+
 ler um bom livro é como você
 vestir a melhor capa para
 ficar em vida
 ---
+115
+
 você está estritamente proibida
 de desenvolver uma depressão
 neste ambiente de trabalho
 você entendeu
 ---
+114
+
 Tom Cruise em ação nos bastidores
 ---
+113
+
 um dia o ser humano vai
 perceber que abre mão
 de abrir asas
 ---
+112
+
 Vinícius tem mais facilidade
 ao engolir comprimidos
 maiores
 ---
-por que você não consegue
+111
+
+— por que você não consegue
 criar outras personagens?
 por que todas acabariam
 sendo você mesma?
 ---
+110
+
 escrevo compulsivamente para
 me sentir menos consciente
 ---
+109
+
 se você está melhor talvez
 você já nem percebe mais
 ---
+108
+
 Kundera disse que poder viver apenas
 uma vida é como não viver nunca então
 morrer apenas uma vez na vida é como
 não morrer nunca
 ---
+107
+
 no restaurante ela pergunta o que
 vamos pedir e ele responde o de
 sempre saúde paz e amor
 ---
+106
+
 plantas com anos neste ramo
 ---
+105
+
 há coisas tão poéticas que não
+
 cabem na poesia só que não
 ---
+104
+
 temo que teimo com teimosos
 ---
+103
+
 torturar o diabo seria pecado?
 ---
+102
+
 síndrome do pânico
+
 a alma sair para comprar cigarro
 ---
+101
+
 síndrome do pânico
+
 o amigo imaginário da
 infância voltar armado
 ---
+100
+
 seja apenas mais dois neste mundo
 ---
-o que dá sentido sempre é desconhecido
+99
+
+o que dá sentido sempre 
+é desconhecido
 ---
+98
+
 síndrome do pânico
+
 sentir o seu coração uma ferrari
 descontrolada batendo em ar.  es.
 ---
+97
+
 sinto muita pena em mim
 ---
+96
+
 “nem tudo é sobre a gente”
+
 às vezes é literalmente
 tudo sobre a gente
 ---
+95
+
 paga mais caro pela pirataria
 do que pagaria ao artista
 ---
+94
+
 no sorriso de adeus não aparecem dentes
 podres ou tortos sequer amarelados
 conheça possíveis causas e trata
-mentos é possível salvá-lo?
+mentos 
+
+é possível salvá-lo?
 ---
-a pintura nunca será ex tinta
+93
+
+a pintura nunca será 
+ex tinta
 ---
+92
+
 só um feto provocava afeto?
 ---
+91
+
 em todas as bancas da
-cidade bancando o
-idiota
+cidade bancando 
+
+o idiota
 ---
+90
+
 poeminho do interior
+
 a vaca estava o
 tempo todo re
 moendo o past
 ---
+89
+
 domingo de dor em dormindo
 ---
+88
+
 poeminho em cifra
+
 Am E
 ---
-emoções públicas e emoções privadas
+87
+
+emoções públicas 
+e emoções privadas
 ---
+86
+
 80% dos desastres poéticos
 ocorrem por falas humanas
 ---
+85
+
 as fotografias tirando pessoas
 ---
+84
+
 hell-acionamentos
 ---
+83
+
 poeminho hospitalar
+
 ninguém vai sentir
 a minha alta
 ---
+82
+
 amores made in china
 ---
+81
+
 nave da NASA colide com futuro de
 forma inesperada na missão ART
 ---
+80
+
 as noites na abalada
 ---
+79
+
 não é justo comigo
 ser justo com você
 ---
+78
+
 não sou o mais solitário do mundo
 graças aos ácaros que vivem
 dentro do meu travesseiro
 ---
+77
+
 otariot
 ---
+76
+
 querida seja a melhor paciente
 e daí com o tempo você será 
 apenas uma cliente
 ---
-se você cruzasse hoje com a
+75
+
+— se você cruzasse hoje com a
 sua esposa na rua você a
 cumprimentaria?
 ---
+74
+
 a metafísica conta que serei seu
 anjo a ciência diz que serei seu
 satélite
 ---
+73
+
 o ursinho Tédio
 ---
-você é tudo que eu quero
-você é tudo que eu tenho
+72
+
+— você é tudo que eu quero
+— você é tudo que eu tenho
 ---
+71
+
 você acredita em Zeus?
 ---
+70
+
 não sei se é saudade
 ou só inquietação
 ---
-Vinícius Knecht... o que é... a poesia?
-a poesia está em todas as artes a poesia
+69
+
+— Vinícius Knecht... o que é... a poesia?
+— a poesia está em todas as artes a poesia
 é a produção mesmo que inconsciente de
 obras formas e objetos a poesia é não
 apenas a expressão da subjetividade
 humana mas a explicação ou a mera
 interpretação da mesma
 ---
+68
+
 “se vier um asteroide pela direção do sol
 a gente não tem como ver” interprete isso
-da sua maneira agora interprete isso da
-melhor maneira
+da sua maneira 
+
+agora interprete isso da melhor maneira
 ---
+67
+
 coach
+
 criatividade não é prática
 criatividade não é prática
 criatividade não é prática
+
 o que você está fazendo?
+
 estou aperfeiçoando a 
 minha escrita
+
 repetindo a mesma frase?
 ---
+66
+
 poder fazer amor com ela na sua
 própria cama dispensando hotéis
 sujos pelo mundo afora na pre
@@ -16752,243 +16965,412 @@ cinzeiro invisível que não
 fica em cima da mesinha-
 de-cabeceira
 ---
-nós já sentimos tão pouco e daí
-vêm pessoas e nos dão menos
+65
+
+nós já sentimos 
+tão pouco e daí
+vêm pessoas e 
+nos dão menos
 ---
-nas novidades você se sente mais velho
+64
+
+nas novidades você 
+se sente mais 
+velho
 ---
+63
+
 quando você usa a violência contra
 um nazista por exemplo você perde
-toda a razão com toda a razão
+toda a razão 
+
+com toda a razão
 ---
+62
+
 pessoas limpando mais suas
 casas que tomando banho
 ---
-o dia que começa na hora de ir dormir
+61
+
+o dia que 
+começa 
+na hora de 
+ir dormir
 ---
-o abusador entra na festa
-do seu corpo de penetra
+60
+
+o abusador entra 
+na festa
+do seu corpo 
+de penetra
 ---
+59
+
 ao persistirem alguns médicos
 as consultas poderão ser
+
 sintomáticas
 ---
-brota mais pra dentro?
+58
+
+— brota mais pra dentro?
 ---
-calado você é um poeta
-sim
+57
+
+— calado você é um poeta
+— sim
 ---
-conservadorismos modernos con tradições
+56
+
+conservadorismos modernos 
+con tradições
 ---
+55
+
 já tenho vergonha de ler
 o que estou escrevendo
 neste momento
 ---
-se o seu amor caísse no
+54
+
+— se o seu amor caísse no
 vaso sanitário o que
 você faria?
 ---
-todos meus eus namorando todo seu eu
+53
+
+todos meus eus 
+namorando 
+todo seu eu
 ---
+52
+
 Stanley Donwood o
 designer da sua
 estatura
 ---
+51
+
 somos o melhor dueto
 que nunca ensaiou
 ---
+50
+
 ela não tinha o medo de
-nomear tudo que sentia 
+nomear tudo que sentia
+
 o medo era o sobrenome
 ---
+49
+
 parece tudo bem até eu
 perceber que está tudo
+
 só parecendo
 ---
-as poesias ruins foram escritas pelo estagiário
+48
+
+as poesias ruins foram 
+escritas pelo estagiário
 ---
-então me conte sobre o que você faz...
-características que me colocam no
+47
+
+— então me conte sobre o que você faz...
+— características que me colocam no
 espaço-tempo ou quem eu sou e
 sobre o autoconhecimento que
 adquiri em trinta anos?
 ---
+46
+
 o politicamente correto
 não leva o humor
 a sério
 ---
+45
+
 não é desemprego é só
 um isolamentinho
 domiciliar
 ---
+44
+
 cheguei num velório e me
 perguntaram se eu estava
+
 na lista de convidados
 ---
+43
+
 filme aborda história de artista
 gaúcho o poeta era admirado
 na rua onde morava pelo fato
-de não trabalhar e fazer
-muito barulho
+de não trabalhar 
+
+e fazer muito barulho
 ---
-a vida dele era escrita e apagaram
+42
+
+a vida dele era escrita 
+e apagaram
 ---
+41
+
 Memórias Póstumas de Brazil & Cuba
 ---
+40
+
 você é a base da minha NASA
 é algo que o Alex Turner
 escreveria?
 ---
+39
+
 sem abelhas o mundo está ferrado
 ---
-músico escrevendo para si maior
+38
+
+músico escrevendo 
+para si maior
 ---
+37
+
 pão e wi-fi
 ---
+36
+
 podemos sentar no telhado da
 sua casa e fazer o que der
 na telha
 ---
+35
+
 a morte dele foi uma
 surpresa tocando 
+
 No Surprises
 ---
+34
+
 papai lembra quando
 você ainda era
 velho?
 ---
+33
+
 bebê não consegue dormir
 porque mamãe grita
 carneirinhos
 ---
+32
+
 roteiro
+
 um deputado pastor sargento
 e um estudante de medicina
 em uma moto
 ---
+31
+
 hoje eu voltei para casa
 pensando em suicídio mas
 mas depois de ler todas
 estas palavras gentis
 que escrevi resolvi
+
 adiar
 ---
+30
+
 por que existem tantas
 pedras nos trilhos de
+
 trans?
 ---
-então... quantas vezes
+29
+
+— então... quantas vezes
 você já namorou?
-quatorze e você?
-vinte e nove
+— quatorze e você?
+— vinte e nove
 ---
+28
+
 ele era mais conhecido
 na rua em que ela
 morava
 ---
+27
+
 vocês só precisavam
 me ajudar trinta 
 anos
 ---
+26
+
 não riram das minhas piadas
 mas riram dos meus sonhos
 ---
-você precisa sair deste
-estado depressivo...
-eu preciso é sair do RS 
+25
+
+— você precisa sair deste
+estado depressivo.
+— eu preciso é sair do RS 
 e simular melhoria
 ---
+24
+
 eles pintam o mês de amarelo
 e na hora de salvar alguém
-ao seu lado eles amarelam
+ao seu lado 
+
+eles amarelam
 ---
+23
+
 medo de pensar alto demais
 e de repetente alguém
 me ouvir
 ---
+22
+
 porque ele vinha de uma vida
 produtiva artisticamente mas
+
 triste
 ---
-arte e tragédia marcham de mãos dadas
+21
+
+arte e tragédia marcham 
+de mãos dadas
 ---
+20
+
 amor preocupa pesquisadores
 ---
+19
+
 patentear o seu popô
 ---
+18
+
 não vejam os noticiários em
 protesto pois estão expondo
-todos os crimes do nosso
-candidato
+todos os crimes do 
+
+nosso candidato
 ---
+17
+
 sou fantasma inútil
 onde pousam anjos
 ---
+16
+
 não exigem dos seus deuses
 o que exigem de um ateu
 ---
+15
+
 o que choca menos a
 sociedade que um
+
 galinha?
 ---
+14
+
 poeminho da ambiguidade
+
 a única inteligência que um 
 escritor pode subestimar
 é a sua
 ---
+13
+
 poesia é a verdadeira
 natureza do tempo
-legendada
+com legenda sincronizada
 ---
+12
+
 não é vergonha pedir ajuda não
 é vergonha implorar ajuda não
 é vergonha exigir ajuda
 ---
+11
+
 mistério mistério
 esta falta de
 crédito
 ---
+10
+
 poesia é teste de defesa planetária
 ---
+9
+
 dos olhos que eu quero
 nunca sou vista para
 amar dos olhos que
 me querem já nem
+
 estou mais aqui
 ---
+8
+
 lutam melhor os que
 tiveram os piores
 pesadelos
 ---
+7
+
 me revela um destino numa
 Kodak? às vésperas de
+
 1992
 ---
+6
+
 julgamento cancelado
-com seus olhos com sua mão
-cometeu a arte de um
-escrivão
+
+com seus olhos 
+com sua mão
+cometeu a arte 
+de um escrivão
 ---
+5
+
 garotas com gotas
 de olhos ex
 gotados
 ---
-o que é bom para
+4
+
+— o que é bom para
 poder fungar o
 seu pescoço?
 ---
-chame a ambulante moribunda que
-usa coleiras no escritório ela
-não aprendeu nada orelhas
-oriundas de trevosa...
-maquiagem cemitério...
+3
+
+chame a ambulante moribunda 
+que usa coleiras no escritório 
+ela não aprendeu nada orelhas
+oriundas de trevosa
+
+maquiagem cemitério
 ---
+2
+
 o Mario pelo menos assinava
 as provas de matemática eu
 ou errava ou esquecia
 ---
+1
+
 nobre animal o poeta
-você tem que me tratar
+
+— você tem que me tratar
 melhor meu amor
-você quer ração de
+— você quer ração de
 outra marca?
