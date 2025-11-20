@@ -12044,26 +12044,39 @@ acontece em Poesías
 não fica só em
 Poesías
 ---
+1140
+
 amor eu confesso que usei 
 Inteligência Artificial
 para amar você
 ---
+1139
+
 seus inimigos por
 sorte sobrevi
 veram
 ---
+1138
+
 papai me conta uma
 história para que 
 eu acorde
 ---
+1137
+
 um homofóbico acredita mais
 nas fadas que nos machos
 ---
+1136
+
 você é a favor de humanizar
 as pessoas?
+
 desculpe eu não estudei
 economia
 ---
+1135
+
 Suicid Poem
 
 consigo ser outro ser dentro dos ****braços
@@ -12089,13 +12102,16 @@ ninguém consiga chegar com a sua espaçonave
 e eu possa escrever com **** que
 writing doesn’t seem to help...
 ---
+1134
+
 Quintando-se
 
 eu que nem saí do meu
 quarto já sei que o 
-dia está lindo 
-lá fora
+dia está lindo lá fora
 ---
+1133
+
 Pipoca
 
 imenso tabuh
@@ -12113,15 +12129,24 @@ de monóxido de carbono
 
 em memória de Vinicius Gageiro Marques (Yoñlu)
 ---
-a melhor terapia é a terapia
+1132
+
+a melhor terapia 
+é a terapia
 ---
+1131
+
 amar não é decoreba
 ---
+1130
+
 amores modernos
 
 foi perfeito mas
 eu esperava mais
 ---
+1129
+
 tenho que anunciar a gravidez da
 velha poesia tenho que anunciar
 a insônia do sol o bocejo da chu
@@ -12131,6 +12156,8 @@ todas as solidões sem sentido
 minha infância teve a voz dos
 meus olhos
 ---
+1128
+
 supervisão pelo inconsciente
 
 encontrava-me numa espécie de depósito
@@ -12145,8 +12172,9 @@ minha mão acesa e mais claro
 inesperadamente agarrando a minha 
 
 mãe
-
 ---
+1127
+
 não se chora pelo amanhã só se 
 salga a carne morta não se chora 
 pela manhã só se tempera dia morto
@@ -12161,11 +12189,15 @@ que só chora pela mão
 
 Bartolomeu Campos de Queirós e Vinícius Knecht
 ---
+1126
+
 eu preciso construir um cemitério
 para passarinhos que não seja no
 chão
+
 eu não entendo isso não faz o
 menor sentido Vinícius...
+
 você não entende mamãe eu
 preciso encontrar 
 Matilde Campilho
@@ -12174,6 +12206,8 @@ que eu encontrei
 
 poesia
 ---
+1125
+
 sinto tanto a sua falta
 principalmente nos dias 
 mais felizes quando o sol 
@@ -12184,16 +12218,22 @@ principalmente nos dias
 mais felizes você realmente 
 não poderia estar aqui?
 ---
+1124
+
 Vinícius você já declarou que
 busca o reconhecimento e que
 sempre se sentiu invisível no
 meio artístico da sua região
 mas o que você faz para 
 mudar isso?
+
 recentemente eu aumentei o
 tamanho da minha letra
 ---
+1123
+
 preliminares:
+
 promessa de prazer
 não quero ouvir um arrepio
 uma chama mais que as outras
@@ -12201,12 +12241,15 @@ sussurra num embriagado
 amarrado desvendado
 
 agora começa:
+
 a baca dela... e a voz dela...
 e o que entra nela...
 e o que sai dela...
 
 uma poesia.
 ---
+1122
+
 bom o que eu posso dizer e
 acredite poucas vezes você
 vai ouvir isto de um artista
@@ -12214,6 +12257,8 @@ talvez por sorte suicídio
 não vai ser a causa da
 minha morte
 ---
+1121
+
 amigos e seguidores eu vou me afastar 
 um pouco das redes sociais para cuidar 
 da minha saúde mental agradeço pelas 
@@ -12221,6 +12266,8 @@ mensagens de apoio espero a compreensão
 de todos e daqui a quinze minutos eu 
 estou de volta
 ---
+1120
+
 dor e sofrimento
 
 eu juro pela minha gatinha
@@ -12237,6 +12284,8 @@ minha gatinha
 
 Estrela, 11 de março de 2024
 ---
+1119
+
 então Vinícius sinceramente não
 compreendemos o seu diagnóstico
 mas vamos lhe oferecer dois tipos
@@ -12244,6 +12293,8 @@ de tratamentos para o seu caso o
 primeiro é o tratamento de choque
 e o segundo o de exorcismo
 ---
+1118
+
 TDAH
 
 eu por exemplo de um tempo para cá 
@@ -12253,6 +12304,8 @@ está ao lado e ver se recebi novas no
 vidades na história e expansões no 
 cérebro
 ---
+1117
+
 SÓ UMA LEMBRANCINHA
 
 CORTA PARA:
@@ -12265,6 +12318,8 @@ VINÍCIUS.   Mas aconteceu alguma coisa?
 Sério. Não precisava disso.
 LINDA.   É só uma lembrancinha...
 ---
+1116
+
 OS FASCISTINHAS CARINHOSOS
 
 CORTA PARA:
@@ -12273,6 +12328,8 @@ INTERIOR. APARTAMENTO DE ASSASSINO – NOITE
 ASSASSINO.   Não somos tão terríveis quanto
 as assassinas pensavam.
 ---
+1115
+
 MEMÓRIA
 
 CORTA PARA:
@@ -12284,6 +12341,8 @@ SAUDADE.   E se eu corresse sorrindo direto
 para os seus braços... veriam então o que eu
 vejo agora?
 ---
+1114
+
 HOMENS
 
 CORTA PARA:
@@ -12294,11 +12353,15 @@ com a minha presença? Digo... por eu ser homem.
 Eu posso chamar outros cinco para você se sentir
 mais segura.
 ---
+1113
+
 CORTA PARA:
 EXTERIOR. HOMEM PISA NA LUA – DIA OU NOITE
 
 HOMEM.   Estamos no ar!
 ---
+1112
+
 HABEAS CORPUS.
 INTERNAÇÃO PSIQUIÁTRICA.
 
@@ -12311,6 +12374,8 @@ Alegre.”
 PEDIDO DE DESINTERNAÇÃO.
 DESCABIMENTO.
 ---
+1111
+
 Eu acho que a gente podia
 
 CORTA PARA
@@ -12319,18 +12384,26 @@ INTERIOR. VOZ DELA – NOITE
 VOZ DELA   Eu só consigo te ver
 como amigo...
 ---
+1110
+
 eu precisava de ajuda então
 subi na primeirárvore então
 pedi ajuda ao primeiro pas
-sarinho e ele quebrou o
-meu galho
+sarinho 
+
+e ele quebrou o meu galho
 ---
+1109
+
 eu prefiro quando você
 escreve sobre o amor
 porque assim eu rio
 do seu jeito de
+
 sentir dor
 ---
+1108
+
 bom caminhar ao seu lado
 porque você faz pausas e
 me ensina o que é correr
@@ -12338,6 +12411,8 @@ a favor do tempo
 
 para Airton Engster dos Santos
 ---
+1107
+
 Conversando Com Você
 Enquanto Faço A Minha
 Fake-Up
@@ -12346,21 +12421,31 @@ Fake-Up
 como identificar um narci
 sista”
 ---
+1106
+
 um fantasma que não 
 aguenta mais o que 
 vê
 ---
+1105
+
 amores feijão com maionese
 ---
+1104
+
 você é a tradusol
 do que é o luar
 ---
+1103
+
 blue
 
 deixando a terra pintada 
 de sangue derramou o 
 azul
 ---
+1102
+
 Direito
 
 ela é muito melhor do que
@@ -12368,79 +12453,123 @@ eu então agora eu vou lhe
 ensinar como é que é ser
 pior
 ---
+1101
+
 Vinícius Knecht dispensa apresen
 tações pois ninguém se importa 
 em conhece-lo
 ---
+1100
+
 crítica construtiva
 
 “belo concreto”
 ---
+1099
+
 arte contemporânea
 
 ASMR | Exame dos Nervos Cranianos
 ---
+1098
+
 atiro a última flor
 e erro o alvo
 ---
+1097
+
 nenhum ser humano possui
 o autoconhecimento de
 uma pomba
 ---
+1096
+
 a terra pia
 ---
+1095
+
 abandonou a página
 abandonou todo o
 passado
 ---
+1094
+
 amor acidental feito música
 
 nosso amor era como melodia
 onde você se perdia numa
 batida
 ---
+1093
+
 Chaplin
 
-no meu próximo filme mudo
+no meu próximo 
+filme mudo
 ---
-já estou cheio de amor e livros
+1092
+
+já estou cheio de amor 
+e livros
 ---
+1091
+
 estarei chorando mas
 saiba que isso será
 o máximo
 ---
+1090
+
 a medida de um QI raramente
 se assemelha ao diâmetro
 da alma
 
 com Matilde Campilho
 ---
+1089
+
 não invente de dar muita
-corda para músicos
-ouviu
+corda para músicos ouviu
 ---
+1088
+
 amores modernos
 
 eu amei te conhecer es
 tava pensando poderí
 amos dar um tempo
 ---
+1087
+
 defunto faz piada com o corpo
 ---
+1086
+
 olha que depressivo lindo
 ---
+1085
+
 Vinícius Knecht é eleito o
 mais poeta do ano de acor
 do com alguma revista
 ---
+1084
+
 você entendeu mais do
 que era para entender
 ---
+1083
+
 Enxada de Assis
 ---
+1082
+
 você é a favor da escala ao Everest?
 ---
+1081
+
 o que você está fazendo?
+
 esperando a poesia 
 e você
 ---
