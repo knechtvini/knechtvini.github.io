@@ -14485,105 +14485,176 @@ você tão-só prefere o irreal que
 o real o que convenhamos é
 bem mais autêntico
 ---
+600
+
 como poeta sou um menor 
 desacompanhado
 ---
+599
+
 artistas têm mais x por cento de 
 insalubridade e x por cento de 
 periculosidade
 ---
+598
+
 o psicanalista vai ajudar você
 a contar todos os motivos que
 te fazem sofrer sem motivo
 200 conto
 ---
+597
+
 nossa história se bem contada
 dá milhões de outras versões
 ---
-escreva tudo para fora!
+596
+
+escreva tudo para fora
 ---
+595
+
 estimular a fama para 
 excitar a arte
 ---
+594
+
 fazem de tudo para 
 não fazer nada
 ---
+593
+
 não procuro atender as expectativas
 das outras pessoas até porquê 
 estou sempre silencioso
 ---
-psicanalista cobra por explicações suas
+592
+
+psicanalista cobra por 
+explicações suas
 ---
+591
+
 como não deixar para depois se
 o capitalismo não deixa fazer
 agora?
 ---
+590
+
 preferi outro caminho peguei
 um desvio de conduta
 ---
+589
+
 Elon Musk poderia ser o Batman
-e preferiu ser o Hitler
+e preferiu ser o
 ---
+588
+
 bebendo uma guinness eu consigo
 escrever dez poemas em trinta
 segundos
 ---
-está na caras que o hype não vale a pena
+587
+
+está na caras que o hype 
+não vale a pena
 ---
-as palavras que o senhor 
+586
+
+— as palavras que o senhor 
 candidato escreveu estão 
 ilegíveis
-o que? pensei que o correto 
+— o que? pensei que o correto 
 era i-ne-le-gí-vel
 ---
+585
+
 não depende de nós
 depende dos laços
 ---
-o sucesso estava tão bom
-que eu não vi o tenho
+584
+
+o sucesso 
+estava 
+tão bom
+que eu não 
+vi o 
+tenho
 passar
 ---
+583
+
 você sempre foi a 
 minha pioridade
 ---
+582
+
 o pó criticando a fumaça
 ---
+581
+
 ele poeta tanto que ele
 acaba acreditando na
 própria poesia
 ---
+580
+
 antigamente no polo sul da
 lua hoje em dia no polo
 dance
 ---
+579
+
 você fala comigo com mais
 pontos do que vírgulas,
 ---
+578
+
 tenho pouco tempo de morte
 ---
+577
+
 problemas com as drogas?
 
 não se preocupe nós podemos
 ajudar com um preço muito
 melhor
 ---
+576
+
 por que as relações abertas 
 estão cada vez mais 
+
 abertas?
 ---
+575
+
 eu andei pensando melhor no que
 você disse e eu acho que 
 realmente... eu tenho 
 toda a razão
 ---
-aqui só sobrou a carcaça da poesia
+574
+
+aqui só sobrou 
+a carcaça 
+da poesia
 ---
-sob perspectivas religiosas filosóficas
-e científicas a morte é a mesma:
+573
+
+sob perspectivas 
+religiosas filosóficas
+e científicas 
+a morte é a mesma
 o in-provável
 ---
+572
+
 a vida é tão by now...
 ---
+571
+
 então quer dizer que daqui há
 cento e cinquenta anos todo
 mundo que hoje está vivo na
@@ -14591,113 +14662,181 @@ terra vai estar morto e eu só
 vou te encontrar num dia 
 numa saída de um bar?
 ---
+570
+
 já está na hora de você trocar
 a fechadura dos seus olhos
 ---
+569
+
 eu não amo mais você mas
 algumas noites vou até a
 janela checar a altura
 da lua
 ---
+568
+
 alguém por favor faça cócegas
 nos meus poemas mais tristes
 ---
+567
+
 conforme o confirmado 
 se conformar
 ---
-tome cuidado para 
+566
+
+— tome cuidado para 
 não se apaixonar
-alguma dica?
-essa
+— alguma dica?
+— essa
 ---
+565
+
 mas não se preocupe não é só
 choro de tristeza é choro de
 realidades
 ---
+564
+
 um artista que consegue Criar e
 trabalhar com o seu próprio **ego
 nunca vai se sentir *****pregado
 ---
+563
+
 ela tomou conta dos meus sentidos
 e meses depois encontrado
 inconsciente
 ---
+562
+
 na cama ela dava ares 
 de especialista em 
 meteorologia
 ---
+561
+
 espírito espirrando na hora
 de um filme de terror
 ---
+560
+
 senhor Vinícius favor comparecer
 ao IML da cidade de Porto Alegre
 para reconhecer o seu corpo
 ---
+559
+
 como informariam o fim do
 mundo sem um grande
 roteiro?
 ---
+558
+
 o poema está perfeito 
 e no mais... 
+
 ...insignificante
 ---
-estou completamente lúcido por você
+557
+
+estou completamente 
+lúcido por você
 ---
+556
+
 fazendo malabarismo com
 palavras pegando fogo
 ---
+555
+
 privilégio cósmico de não 
 existir neste meio 
 artístico
 ---
+554
+
 vocês não sabem com 
 que livros estão 
 lidando
 ---
+553
+
 conseguimos ver cada átomo
 do seu corpo através do seu
+
 perfil no Instagram
 ---
+552
+
 nunca é só um poema
 ---
+551
+
 ódiododiadia...
 ---
+550
+
 por que pisar em uma 
 peça de ego dói 
 tanto?
 ---
+549
+
 sem sombra de dívidas
 ---
+548
+
 o louco inventa um carro voando
 o gênio cria um carro que voa
 ---
+547
+
 a natureza humana provê condições
 de trabalho visando sempre o 
 verde
 ---
+546
+
 Leonardo DiCaprio
 
 “o sim você já tem”
 ---
+545
+
 porque agora acabou para você
 e eu para o adeus final não
 
 *para o adeus inicial
 ---
+543
+
 as pessoas não são infinitas masas 
 suas almas se expandem o tempo 
 todo
 ---
+542
+
 Desistir de Tudo em Todo o Lugar ao Mesmo Tempo
 
 fantasia/ficção científica
 ---
+541
+
 “noticiário informa tragédia sorrindo”
 ---
-a melhor terapia é a terapia
+540
+
+a melhor terapia 
+é a terapia
 ---
-pobre Gatsby...
+539
+
+pobre Gatsby
 ---
+538
+
 River Phoenix
 certo dia escreveu corra
 para o resgate com amor
@@ -14707,16 +14846,24 @@ para o amor com
 ódio e amor te
 perseguirá
 ---
+537
+
 escrevo como parto
 ---
+536
+
 brindamos com cacos de vidro
 ---
+535
+
 o voo está cancelado nós nunca
 vamos nos ver espero que você
 fique bem farei o mesmo beijos
 e por fim estiveram mais perto
 um do outro
 ---
+534
+
 Van Gogh em preto e branco
 
 talvez algum dia desses
@@ -14727,13 +14874,19 @@ numa Estrela de outra constelação
 na melancolia de um amor
 na falta de uma ausência
 ---
+533
+
 os adultos ficam tão maduros
 que acabam ficando podres
 ---
+532
+
 na fila do amor você fala
 mais do amor ou fala mais
 da fila do amor?
 ---
+531
+
 a dor estrelada
 
 Van Gogh encontrava-se em
@@ -14741,47 +14894,76 @@ saint-rémy-provence curando
 enfermeiros e tratando as
 estrelas
 ---
+530
+
 términos
 
 me livro de você me
 sinto mais preso
 ---
+529
+
 preto o halls da fama
 ---
+528
+
 o amor oscila entre 
 o desejo e a oscil
 ação
 ---
+527
+
 poesia nada mais é
 que menos não ser
 ---
+526
+
 me falta ar
 te o suficiente
 para viver
 ---
+525
+
 voltar no tempo e err
 ar de outras masneiras
 ---
+524
+
 quantas vezes precisa voltar
 para que não seja mais volta
 ---
-não confio em gente que não mente
+523
+
+não confio em 
+gente que não 
+mente
 ---
+522
+
 as pessoas não têm medo
 de se relacionar elas 
 têm fobia
 ---
+521
+
 filmes de terror modernos
 
 “Eu Sei O Que Vocês Fizeram No Amor Passado”
 ---
-escritor é aquele brincando de eus
+520
+
+escritor é aquele 
+brincando de eus
 ---
+519
+
 diferença do mas e mais
 
 eu te amo mas eu 
 não te amo mais
 ---
+518
+
 já imaginou seus próprios olhos
 descobrindo a poesia já imaginou
 suas próprias mãos descobrindo
@@ -14789,58 +14971,86 @@ o poema
 
 para Airton Engster dos Santos
 ---
-daí eu escrevi uma poesia...
-meu deus e você não se
+517
+
+— daí eu escrevi uma poesia...
+— meu deus e você não se
 machucou?
 ---
+516
+
 ch orando fazendo as contas
 ---
+515
+
 e ninguém vai falar como a
 garota de cabelo de pêssego
 é linda e parece sossegada
 ---
+514
+
 no caso noturno é
 necessário ter
 experiência
 ---
+513
+
 será que mais alguém
 escreve nu
 ---
+512
+
 plano odontológico ticket alimentação
 refeição na empresa auxílio educação
 participação de lucros ou transporte?
 precisa escolher um desses
 ---
+511
+
 não pretendo ser bissexual
 mas cada pessoa naquela
 banda está me fazendo
 ---
+510
+
 imagine ela apontando para
 você e dizendo que está re
 cebendo uma boa vibração
 de você
 ---
+509
+
 não estou dizendo que ela é
 a pessoa mais fofa do mundo
 mas é exatamente isso que
 estou escrevendo
 ---
+508
+
 então parecemos um grupo
 de amigos que economizam
 juntos
 ---
+507
+
 quem deu a esse garoto uma
 cadeira giratória bem obriga
 do viu ele é dolo rosas mente
 adorável
 ---
+506
+
 é estranho dizer isso dado o
 quão famoso ele é mas ele é
 extremamente subestimado
 especialmente como artista
 ---
+505
+
 tá gravando?
 ---
+504
+
 o último poema de Vinícius Knecht
 
 e de vez em quando eu vou
@@ -14850,11 +15060,15 @@ e então eu vou perceber que
 em vida também foi sempre
 assim
 ---
+503
+
 depois que você se apaixona
 por ela não há como voltar
 atrás você vai chorar por
 cada detalhe
 ---
+502
+
 ele obviamente ama a sua es
 crita e as suas influências e
 apenas faz coisas que ama
@@ -14862,38 +15076,56 @@ não coisas que lhe disseram
 para fazer isso realmente 
 acontece
 ---
+501
+
 esse cara pode usar qualquer
 coisa e nunca sair de moeda
 ---
+500
+
 acordar num amor é um
 acordo entre duas p
 artes
 ---
+499
+
 amor dispensa curiosos
 ---
+498
+
 “amor”
 
 paixão é amor entre
 aspas e beijos
 ---
+497
+
 coisas que aos trinta anos de
 idade não faziam sentido aos
 trinta passaram a fazer
 ---
+496
+
 depressão é um cacto que
 sente os próprios 
 espinhos
 ---
+495
+
 cenas de um casamento 
 
 saudade é quando tudo
 finalmente em caixa
 ---
+494
+
 uma escuridão no fim do túnel
 
 ter tempo com algumas certas 
 dores não é ter tempo
 ---
+493
+
 esquerda e direita
 
 não olha mas tem um cara sentado numa
@@ -14902,67 +15134,97 @@ mesa à nossa direita falando sozinho
 eu disse para não olhar! agora ele não
 está mais falando sozinho!
 ---
+492
+
 este prédio balança ou
 é a minha pressão?
+
 perguntou a ansiedade
 para a depressão
 ---
+491
+
 qual é o herói preferido
 do depressivo e ansioso?
+
 o super-ar
 ---
+490
+
 nosso relacionamento sério
 está mais para Jim Carrey
 ---
+489
+
 era um psicólogo mas também
 era um poeta disse que não 
 podia ler mentes sem seus 
 óculos
 ---
+488
+
 acho que se amor tivesse 
 cheiro seria cheiro de 
 bergamota
 ---
+487
+
 a companhia pareceu tão boa
 na verdade foi você fazendo
 o papel dela
 ---
+486
+
 no amor você se machuca 
-fácil vestindo arma
+fácil vestindo arma 
 duras
 ---
+485
+
 casal fitness fazia levantamento de
 peso para ver quem levantava mais
 a voz
 ---
+484
+
 desconhecidos íntimos
 
 já faz tanto tempo
-parece que foi
-outrem
+parece que foi outrem
 ---
+483
+
 você é uma daquelas poesias
 que eu leio e penso eu 
-queria ter escrito 
-isso
+queria ter escrito isso
 ---
+482
+
 eu só acredito que é amor
 quando eu não estou acre
 ditando que está mesmo
 acontecendo
 ---
+481
+
 eu sou tão limitado mas tão
 limitado que não consigo se
 quer expressar o quanto eu
 sou limitado
 ---
+480
+
 as garotas modernas são aquelas
 que as antigas já deveriam ter
 sido
 ---
+479
+
 eu só sinto você dizer
 eu te amo entre aspas
 ---
+478
+
 Lars Von Trier Doce Lars
 
 ele parecia estar sempre
@@ -14970,10 +15232,14 @@ se despedindo daquele
 mundo e isso o encan
 tava
 ---
+477
+
 maturidade é saber a hora certa
 de voltar correndo para o colo
 da mãe e chorar
 ---
+476
+
 quando ela está sorrindo
 especialmente quando ela
 está gargalhando eu sei
@@ -14981,8 +15247,10 @@ que o relacionamento
 está ficando sério
 hahahahahaha
 ---
-o que é utopia papai?
-é acreditar em um futuro
+475
+
+— o que é utopia papai?
+— é acreditar em um futuro
 com uma banda melhor que
 Beatles meu filho
 ---
