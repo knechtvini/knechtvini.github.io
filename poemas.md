@@ -14986,31 +14986,42 @@ o que é utopia papai?
 com uma banda melhor que
 Beatles meu filho
 ---
+474
+
 artistas
 
 pagando bem eu 
-faço até de 
-graça
+faço até de graça
 ---
+473
+
 rockstars fracassados modernos
 fui esgotado em menos de vinte
 e sete anos e considero um
 sucesso de bilheteria
 ---
+472
+
 eu me entrego mas
 eu sempre me pego
 de volta
 ---
+471
+
 morro de medo de esquecer as
 minha dores e depois sofrer elas
 como se fosse... a primeira vez
 ---
+470
+
 meu trote universitário
 
 ligaram para dizer que passei
 no vestibular depois disseram
 que era um trote
 ---
+469
+
 Yoñlu
 
 olhei para o céu para sofrer
@@ -15025,111 +15036,169 @@ que a gente sofre parecido
 como quem pede socorro
 enquanto acham bonito acho
 que a gente sofre parecido
+
 em memória de Vinicius Gageiro Marques
 ---
+468
+
 a melhor comida do mundo é
 a sua e eu posso provar
 ---
+467
+
 a violência que mora em mim
 
 é tanto gatilho que
 possuo um arsenal
 ---
-amor não é duas pessoas
-sendo tudo uma para a outra
-amor é bem menos que isso
+466
+
+amor não é duas pessoas sendo 
+tudo uma para a outra amor é 
+
+bem menos que isso
 ---
+465
+
 artista sofre pra cachorro 
 rato leão formiga 
+
 passarinho
 ---
+464
+
 depressão e criatividade 
 se separam após doze 
 anos juntas
 ---
+463
+
 te amar foi como abrir uma
 estação rodoviária numa
 ilha
 ---
+462
+
 ela me ajuntou do chão
 e... me colocou no 
 lixo
 ---
+461
+
 flagrei a minha dor transando
 com o meu melhor poema
 ---
-meu amor está em outro estado...
-entendo relacionamento à
+460
+
+— meu amor está em outro estado...
+— entendo relacionamento à
 distância não dá certo mesmo...
-não é isso ela mora aqui outro 
+— não é isso ela mora aqui outro 
 estado civil
 ---
-oi como eu estou?
-bem e eu?
-melhor
+459
+
+— oi como eu estou?
+— bem e eu?
+— melhor
 ---
+458
+
 aposto que a gente vai dar
 certo os apostos se atraem
 ---
+457
+
 apaixonados pela madrugada
 
 que horas parece agora?
 ---
+456
+
 fique longe de quem
 está longe de perto
 ---
+455
+
 fez a festa e não participou
 me salvou e foi embora 
 sabe essa pessoa
 ---
+454
+
 o meu psiquiatra me diagnosticou
 com saúde perfeita e me receitou
 alguns medicamentos para tratar
 isso
 ---
+453
+
 sorteei a minha alma e os vence
-dores não quiseram receber 
-o prêmio
+dores não quiseram receber o prêmio
 ---
+452
+
 tarja poeta
 
 escrevo para 
 cicatrizar
 ---
+451
+
 Vinícius sentiu que algo de bom
 estava prestes a acontecer saiu
 da cama vestiu sua melhor roupa
 e caminhou até o parque
+
 e algo de bom aconteceu Vinícius
 saiu da cama vestiu sua melhor
 roupa e caminhou até o parque
 ---
-eu te amo?
-eu também?
+450
+— eu te amo?
+— eu também?
 ---
+449
+
 ser poeta é mastigar palavras
-como quem come comida
-alienígena
+como quem come comida alienígena
 ---
+448
+
 na fila falou que falhou como filha
 ---
+447
+
 a babá disse que o bebê bebe bába
 ---
+446
+
 às vezes eu sinto que a vida é como
 se fosse um ídolo chutando o seu
 próprio fã
 ---
-somos fantasmas lavando os lençóis brancos
+445
+
+somos fantasmas lavando 
+os lençóis brancos
 ---
+444
+
 o truque da vovó é costurar
 o tricô com linha do tempo
 ---
+443
+
 paixão é amor à paisana
 ---
+442
+
 durante a terapia o psicólogo
 teve uma crise de ansiedade
 logo tratei de acalmá-lo
 ---
+441
+
 sonhos de valsa
 
 éramos garotos se perguntando
@@ -15137,193 +15206,306 @@ como chegar nas garotas hoje
 apenas homens vendendo as
 suas velhas guitarras
 ---
+440
+
 poeminho do tapete
 
 não prepare 
 a bagunça
 ---
+439
+
 poeminho da travessia
 
 sinto dentro de mim um
 bando à nado abandonado
 ---
-você está me ofendendo
-por que?
-eu não sei
+438
+
+— você está me ofendendo
+— por que?
+— eu não sei
 ---
+437
+
 você me lembra alguém
 lembrei você me lembra
 você do passado
 ---
+436
+
 burros são aqueles que
 entendem uma poesia
 de primeira
 ---
+435
+
 eu te amo tem o delay
 de uns cinco segundos
 ---
+434
+
 eu pensando nela
 ela pensando nela
 ---
+433
+
 escrevo desde que eu
 não me conheço por 
 gente
 ---
+432
+
 amores modernos
 
 foi perfeito mas
 eu esperava mais
 ---
+431
+
 amor perdido é furtar o carro 
 da polícia e sofrer um acidente 
 na frente dum hospital
-(ou cemitério)
 ---
+430
+
 poema o novo visual da tristeza
 ---
+429
+
 olhar para o céu 
 amortece o medo 
 da morte
 ---
+428
+
 eis que o monstro morou
 esse tempo todo em cima
 da cama
 ---
+427
+
 é como se o olho mágico
-fosse de fora para 
-dentro
+fosse de fora para dentro
 ---
+426
+
 amor é a minha 
 palavra pré 
 ferida
 ---
+425
+
 acordei ao som de passarinhos
 cantando Wonderwall
 ---
+424
+
 morte escreve poesia à lápide
 ---
+423
+
 uma das coisas que eu mais
 odeio na vida é me sentir
+
 superior a alguém
 ---
+422
+
 sensível
 
 eu não saberia sequer
 entrar num ringue
 ---
-como você consegue ter
-uma pele assim tão bonita?
-são seus óleos
+421
+
+— como você consegue ter uma 
+pele assim tão bonita?
+— são seus óleos
 ---
-ela me viu e fez de conta
+420
+
+— ela me viu e fez de conta
 que não me conhecia acredita?
-talvez ela não se conheça mais
+— talvez ela não se conheça mais
 ---
+419
+
 teu futuro te condena
 ---
+418
+
 vendi a minha arma para o diabo
 ---
+417
+
 você acha que existe
 vida em outro poema?
 ---
+416
+
 a solidão deve partir de você
 ---
-aceita uma carona?
-não
+415
+
+— aceita uma carona?
+— não
 ---
+414
+
 pais e filhos
 
 nossos velhos só querem
 aproveitar a juventude
 ---
+413
+
 no escuro ficou bem claro
 que ficar duro era moleza
 ---
-é o mínimo mas deve ser aplaudido
+412
+
+é o mínimo e/mas 
+deve ser aplaudido
 ---
+411
+
 do parto parti para
 a parte que parte
 ---
+410
+
 poeminho do suicídio
 
 se tudo isso passar saiba
 saiba que eu me precipitei
 ---
+409
+
 quero virar pó não
 quero virar poeira
 ---
-de dr em relacionamento já sou doutor
+408
+
+de dr em relacionamento 
+já sou doutor
 ---
+407
+
 cinema
 
 eu era o dublê da
 minha namorada
 ---
+406
+
 Kurt Cobain
 
-depressão: 
-evitar gatilhos
+depressão 
+evitar 
+gatilhos
 ---
+405
+
 meu gato miando em cima da
 pia sorte dele a minha 
 miopia
 ---
+404
+
 meu futuro me disse que 
 durante todos esses anos
 eu pensei nela
 ---
+403
+
 pior que o silêncio que você
 deixou quando foi embora 
 os gritos enquanto você
 estava
 ---
+402
+
 outro dia estava tão apaixonado
 que me limpei com a comanda e
 paguei com o guardanapo
 ---
+401
+
 cheio de planos e panos
 para passar em cima dos
 planos
 ---
-que Deus exista e volte a criar
+400
+
+que Deus exista 
+e volte a criar
 ---
-saudade exige que amor se retrate
+399
+
+saudade exige 
+que amor se 
+retrate
 ---
-vamos tomar um chopp?
-Schopenhauer?
+398
+
+— vamos tomar um chopp?
+— Schopenhauer?
 ---
+397
+
 já vai? nem deu tempo
 de se despir direito
 ---
-todos os caminhos me levam a mim
+396
+
+todos os caminhos 
+me levam a mim
 ---
-estou vendo trilhos onde não trem
+395
+
+estou vendo trilhos 
+onde não trem
 ---
+394
+
 há um monstro dentro
 de mim querendo me
 pôr para fora
 ---
+393
+
 poesia não dá dinheiro 
 mas dá uma puta gana
 ---
-e o que você anda sentindo?
+392
+
+— e o que você anda sentindo?
 perguntou o psicólogo
-vontade de trocar de psicólogo
+— vontade de trocar de psicólogo
 respondeu o paciente
 ---
+391
+
 a.B e d.B
 
 antes de Beatles
 depois de Beatles
 para John Lennon
 ---
+390
+
 poeta precisa acordar
 novinho em folhas
 ---
+389
+
 e no final das contas você
 acaba ficando com o amor
 que estiver mais perto
 ---
+388
+
 antes do amanhecer
 
 num encontro romântico as
@@ -15331,12 +15513,18 @@ perguntas despidas são mais
 importantes que as respostas
 vestidas para impressionar
 ---
+387
+
 as virtudes do interesse próprio
 
 o que faz uma pessoa parecer
 sexualmente atraente segundo
-a ciência? ser cientista
+a ciência? 
+
+ser cientista
 ---
+386
+
 sobre um beijo do gordo
 
 Jô Soares não querendo
@@ -15345,22 +15533,33 @@ mas já interrompendo...
 
 em memória de José Eugênio Soares
 ---
+385
+
 antigamente as pessoas criticavam
 uma obra de arte interpretavam
 avaliavam no máximo julgavam
-hoje elas corrigem e 
-cancelam
+hoje elas corrigem 
+
+e cancelam
 ---
+384
+
 falta de comunicação
 falha na comunicação
 comunica a ação
 ---
+383
+
 você escreve para criar um
 amor ou você escreve para
 corrigir um amor?
 ---
+382
+
 de date p/ hate
 ---
+381
+
 deu um branco
 
 suspeito por andar embriagado em
@@ -15369,129 +15568,185 @@ terça-feira polícia alega que o su
 jeito pego em flagrante era 
 preto
 ---
+380
+
 direitos autorais
 
 pode plagiar meu corpo em suas
-fantasias mas devolva o direito de
-meu prazer inserido em seus mo
-vimentos
+fantasias mas devolva o direito 
+de meu prazer inserido em seus 
+movimentos
 
 por Norton de Souza Soares e Vinícius Knecht
 ---
+379
+
 não sou um paciente diagnosticado
 sou um doente com certificado
 ---
+378
+
 para alguns solitários noites
-serão mais lembradas que
-pessoas
+serão mais lembradas que pessoas
 ---
+377
+
 tenho medo de descobrir o
 segredo da vida e a vida 
 me punir
 ---
+376
+
 Edgar Allan Poe
 
 tudo o que amei amei com
 milhões de outras pessoas
 amando
 ---
+375
+
 previsão para o funeral
 
 nas conversas vai chover
 ele era tão ele era tão 
 ele era tão
 ---
+374
+
 especialistas analisam em que
-situação ainda é indicado amar
+situação ainda é indicado 
+amar
 ---
+373
+
 quintando-se
 
 eu que nem saí do meu quarto
 já sei que o dia está lindo
 ---
+372
+
 Vincent van Gogh
 
 se a vista da janela for assustadora
 faça de conta que ela é um quadro
 ---
-vamos assistir algum filme com o Louis Garrel?
-acredito que agora ele esteja ocupado querida
+371
+
+— vamos assistir algum filme com o Louis Garrel?
+— acredito que agora ele esteja ocupado querida
 ---
+370
+
 gosto que desafina porque 
 daí sinto que é ao vivo
 ---
+369
+
 Jim & Pam
 
 entre quatro paredes
 quebrando a quarta
 parede
 ---
+368
+
 Julia Dream
 
-trocamos olhares 
-agora tenho olhos 
-azuis
+trocamos olhares agora tenho 
+olhos azuis
 ---
+367
+
 Kurt Cobain certamente estaria
 sorrindo agora e só Deus sabe
 o que isso quer dizer
 ---
+366
+
 mais sobre um beijo do gordo
+
 e mesmo tendo que acordar cedo
 no dia seguinte eu não perdia um
 programa do Jô Soares e hoje eu
 acredito que aquilo me fez acordar
 mais cedo para a minha vida
+
 em memória de José Eugênio Soares
 ---
+365
+
 mãos ocupadas
 
 amei a companhia de vocês
 a meia companhia de vocês...
 ---
+364
+
 me arrumei todo para a festa
-e a dor entendeu que foi para 
+e a dor entendeu que foi para
+
 Ela
 ---
+363
+
 quando me vejo apenas como
-lembrança me sinto mais
-bonito
+lembrança me sinto mais bonito
 ---
+362
+
 levei um pé na bunda
 virei um moribundo
 ---
-muito amor pouca mídia
+361
+
+muito amor 
+pouca mídia
 ---
+360
+
 o confuso e o incompetente
-desculpa eu preciso sair da 
+
+— desculpa eu preciso sair da 
 terapia agora
-mas por que?
-porque eu preciso cuidar da 
+— por que?
+— porque eu preciso cuidar da 
 minha saúde mental
 ---
+359
+
 quando você olha para fora da
 janela o mais importante é o 
 que está dentro de você
 ---
+358
+
 Titanic
 
 para saber o rumo que vou tomar
 preciso saber o rumo de outras
 pessoas
 ---
+357
+
 e de repente percebi que os meus
 objetivos não eram os meus sonhos
 ---
+356
+
 um poeminho para Manoel de Barros
 
 eu me mato
 eu me floresto*
 ---
+355
+
 morri aos trinta e virei um urubu
 sobrevoando atrás de poesias
-mortas que nunca foram 
-veladas
+mortas que nunca foram veladas
 ---
+354
+
 prisão
 
 então assista um filme de prisão em
@@ -15514,59 +15769,93 @@ fui o mesmo
 
 por Yoñlu e Vinícius Knecht
 ---
+353
+
 transforme traumas em alívio
 transforme traumas em alívio
 transforme traumas em alívio
 transforme traumas em alívio
 transforme traumas em alívio
 ---
+352
+
 um poema muito sério
+
 eu amei o jeito que
 você me abandonou
 ---
-você é o meu chuchu
-e você é o meu pepino
+351
+
+— você é o meu chuchu
+— e você é o meu pepino
 ---
-você está me ofendendo
-por que?
-eu ainda vou descobrir
+350
+
+— você está me ofendendo
+— por que?
+— ainda vou descobrir
 ---
+349
+
 todas as vezes que eu penso
 em desistir eu repito para mim
+
 você não precisa decidir isso agora
 você não precisa decidir isso agora
 você não precisa decidir isso agora
 ---
+348
+
 há vozes na minha cabeça 
 que estão gritando você não 
 vai conseguir e eu vou 
+
 deixa-las lroucas
 ---
+347
+
 intimidade
 
-você pode ficar lá fora um pouco?
+— você pode ficar lá fora um pouco?
 eu não gostaria que você me visse
 tomando os meus medicamentos
 ---
+346
+
 Abujamra o que é... a... morte...?
+
 em memória de Antônio Abujamra
 ---
+345
+
 anjos na guitarra
 
-você chegou no solo antes que eu
+você chegou no solo 
+antes que eu
 ---
+344
+
 nunca trate como biblioteca
 quem te trata como livraria
 ---
-morrer cancelando os despertadores
+343
+
+morrer cancelando despertadores
 ---
+342
+
 coração chama chama
 e ninguém atende
 ---
+341
+
 dancei com depressão e
 me senti herói de guerra
-Under Pressure!
+
+Under Pressure
 ---
+340
+
 El Chavo Del Olcho
 
 Seu Madruga:
@@ -15579,100 +15868,157 @@ tens razão Chavinho! tens razão!
 
 em memória de Ramón Valdés
 ---
+339
+
 ao elogiar a minha poesia ela
 estava indiretamente elogiando
 a minha dor
 ---
+338
+
 corria atrás dos meus sonhos
 mas estava numa esteira 
 elétrica
 ---
+337
+
 estou infiltrado numa clínica 
 psiquiátrica na verdade eu
+
 sou um pirata
 ---
+336
+
 flashback antes da morte
+
 melhores momentos ou
 maiores arrependimentos?
 ---
+335
+
 dá opinião sobre tudo menos 
 sobre ela dando opinião 
 sobre tudo
 ---
-agora é a hora em que a gente ora?
+334
+
+agora é a hora 
+em que a gente 
+ora?
 ---
-e quando viu o preço do 
+333
+
+quando viu o preço do 
 imóvel ficou imóvel
 ---
+332
+
 me deixo nas mãos das artes
 ---
+331
+
 meu sonho era ser
 poeta agora é ser
 anjo
 ---
+330
+
 o ansioso e o psicólogo
+
 pode ler a minha mente
 mas saiba que não uso
 vírgulas
 ---
+329
+
 eu não sei se fui o melhor
 ou apenas o preferido
 ---
+328
+
 quais são os panos
 para o futuro?
 ---
+327
+
 querida algum dia eu pagarei
 as contas com estes poemas
 a minha palavra é de 
 confiança
 ---
+326
+
 nunca procurava amor quando
 encontrou um amor ficou o
 tempo todo procurando
 amor naquele amor
 ---
+325
+
 quem sou eu para falar
 comigo assim desse
 jeito?
 ---
+324
+
 difícil a morte difícil dita como a
 única certeza de incerteza na vida
 mas não se tem muito esclarecimento
 nem solução sobre o amor nem dica
 nem caminho para o amor difícil
+
 Rainer Maria Rilke e Vinícius Knecht
 ---
-eu recebi a notícia de que ele se matou
-mas ele se vitimizava muito né
+323
+
+— eu recebi a notícia de que ele se matou
+— mas ele se vitimizava muito né
 ---
-olhe para a cara dele claro
+322
+
+— olhe para a cara dele claro
 que está deprimido
-hum eu não acho que esteja
+— hum eu não acho que esteja
 tão claro
 ---
+321
+
 guerra civil
+
 amor contra o amor
 ---
+320
+
 blue
+
 eu gostaria de escrever para o pássaro
 azul que está se sentindo o pássaro mais
 solitário do mundo neste momento eu
 diria fique aí eu vou mostrar o mundo
 olhe esse mundo que não merece ver
 você
+
 Charles Bukowski e Vinícius Knecht
 ---
+319
+
 capitalismo é vida
-eu te contei que planejei me suicidar
+
+— eu te contei que planejei me suicidar
 batendo o carro naquela árvore?
-nem brinca com isso imagina o pre
+— nem brinca com isso imagina o pre
 juízo que esse carro iria nos causar
 ---
-a minha dita carta de suicídio seria
-um livro de no mínimo trezentas
-páginas
+318
+
+a minha dita carta de suicídio 
+seria um livro de no mínimo 
+trezentas páginas
 ---
+317
+
 a imperfeição
+
 ontem foi a primeira vez em que eu
 e a Clarice nos sentamos para escrever
 algo juntos e chegamos à conclusão que
@@ -15687,29 +16033,42 @@ aí é tecnicamente visível aos olhos de quem
 quer que seja de quem quer vê-las nós
 terminamos adivinhando confusos a
 imperfeição
+
 Clarice Lispector e Vinícius Knecht
 ---
+316
+
 eu exponho a minha arte de 
 graça num mundo que me 
 cobra caro pelo seu 
 ódio
 ---
+315
+
 ENTRADA:
+
 pão de fermentação natural
 tostadinho acompanhado de
 caponata de berinjela e azeitona
 a minha boca a minha língua
 seu cabelo seu pescoço
 patê de frango ao curry
+
 PRATO PRINCIPAL:
+
 chorizo com espaguete
 ao pesto penetrações
 risoto de camarão
+
 SOBREMESA:
+
 petit gateau seu gozo
 cheescake de frutas vermelhas
 ---
+314
+
 contra poeminhos
+
 eles não passarão
 eu sim passarinho
 tudo bem eu sei
@@ -15717,8 +16076,11 @@ que eles sempre
 passarão
 mas eu sempre eu
 sempre passarinho
+
 Mario Quintana e Vinícius Knecht
 ---
+313
+
 o seujeito me parou na rua pediu
 uns trocados eu dei uma nota de
 cinquenta reais ele pegou eu 
@@ -15728,58 +16090,84 @@ e me deu três tiros no peito
 ---
 Editoras suas ediotas
 ---
+312
+
 se eu pudesse assistir o filme
 da minha vida eu assistiria
 apenas os erros de gravação
 das primeiras temporadas...
-filmes não têm temporadas
-o poema é meu ou é seu?
+
+— filmes não têm temporadas
+— o poema é meu ou é seu?
 ---
+311
+
 Lucky
-já pensou em você antes de nascer?
+
+— já pensou em você antes de nascer?
 você não acha que estava morto?
 ---
+310
+
 todo o amor por trás do seu
 discurso de ódio foi a maior
 declaração de amor que eu
 já recebi em toda a minha
 vida
 ---
+309
+
 nenhuma quantidade de evidências
 vai persuadir um idiota mas uma
 quantidade de idiotas vai 
 persuadir evidências
+
 Mark Twain e Vinícius Knecht
 ---
+308
+
 a melhor maneira de se alegrar
 é tentar alegrar alguém a melhor
 maneira de se deprimir é tentar
 deprimir alguém
+
 Mark Twain e Vinícius Knecht
 ---
-ele está ameaçando se matar
-nem brinda com isso
+307
+
+— ele está ameaçando se matar
+— nem brinda com isso
 ---
+306
+
 às vezes você está representando
-justamente os seus maiores
-inimigos
+justamente seus maiores inimigos
 ---
+305
+
 serei sempre o meu
 primeiro leitor que
-cara de sorte eu 
-sou
+cara de sorte eu sou
 ---
+304
+
 The Office
+
 Steve Carell é um
 ator fora de série
 ---
+303
+
 estou no controle mas ele
 está desconectado do
 videogame é assim 
 que eu vejo a 
 vida
 ---
+302
+
 the comunistas
+
 eles querem democracia igualdade social direitos e
 inclusão para minorias práticas de liberdades direito
 à vida à segurança à propriedade todos iguais perante
@@ -15790,6 +16178,8 @@ elas a ler e escrever direitos humanos ausência de
 classes sociais uma constituição! eles são doentes!
 doentes! ou bem pior que isso eles são comunistas!
 ---
+301
+
 por que todo o amor que
 me aparece se parece
 com o cavalo de 
