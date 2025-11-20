@@ -12444,33 +12444,49 @@ o que você está fazendo?
 esperando a poesia 
 e você
 ---
+1080
+
 vou abanar o meu 
 corpo pois estou 
 toda sua
 ---
+1079
+
 eu sabia que você não existia
 eu sabia que você não existia
 eu sabia que você não existia
 ---
+1078
+
 você precisa tratar o seu
 gato com um psiquiatra
 melhor
 ---
+1077
+
 candidato confirma turnô
 veja datas locais e
 horrores
 ---
+1076
+
 sabia que a cada vinte min
 um poeta é espancado?
 ---
+1075
+
 vendo minha alma
 reparei como é
 bela
 ---
+1074
+
 confesse que você 
 chorou com outro 
 ontem
 ---
+1073
+
 de vem em quando atéu
 sinto a sua falta por 
 ex nas novas despedidas 
@@ -12478,39 +12494,54 @@ e atuais rejeições ou
 humihações você costu
 mava estar lá
 ---
+1072
+
 Ela Não Dirige Em Cidade Pequena
 
 estou salvo nas nu
 vens do seu drive
 ---
+1071
+
 o poder da palavra
 (e da ambiguidade)
 
 “o psicólogo não
 me trata bem...”
 ---
+1070
+
 o quadro
 
 como você decora
 tudo o que você
 sente?
 ---
+1069
+
 não monogamia
 
 não foi a melhor traição
 que você já sofreu???
+
 SIM!!!
 ---
+1068
+
 pelo menos aqui eu 
 posso não ser eu 
 mesmo
 ---
+1067
+
 nós sempre vamos sair no auge
 nós sempre vamos sair no auge
 nós sempre vamos sair no auge
 
 para Airton Engster dos Santos
 ---
+1066
+
 Manchado de Assins
 
 a morte acordou comigo e
@@ -12520,50 +12551,76 @@ já desconfiava e isso
 ninguém ficou
 sabendo
 ---
+1065
+
 as pessoas não têm mais
 medo de amar elas têm
 fobia
 ---
+1064
+
 meu negócio é poesia
 e eu não ganho nada
 com isso
 ---
+1063
+
 todas estão vestindo a sua máscara 
 e isso reflete profundamente a 
 moda contemporânea
 ---
+1062
+
 nada vivo sem você
 ---
+1061
+
 se eu escrever não
 chore não é só
 poesia
 ---
+1060
+
 você me preparou um belo
 café mas não me preparou
 para terminar
 ---
+1059
+
 no labirinto da memória
 labirintite e então 
 estou fugindo do 
 Jack Nicholson
 ---
+1058
+
 para onde vocês estão 
 levando o corpo 
 dela?
 ---
+1057
+
 sei exatamente quando está
 internado naquele seu
 quarto
 ---
+1056
+
 você é muito talentoso
+
 obrigado acho que é a
 minha invocação
 ---
+1055
+
 eu sinto muito já
 escreveram isso...
+
 mas do mesmo jeito 
 que eu senti?
 ---
+1054
+
 Amarelando Blue
 
 eu gostaria de escrever para o pássaro
@@ -12575,11 +12632,15 @@ que não merece ver você
 
 em memória de Charles Bukowski
 ---
+1053
+
 eu não escrevi até aqui
 pra desistir agora
 
 para Humberto Gessinger
 ---
+1052
+
 conforme flores com forma
 de flores em flores para 
 que eu consiga apanhar 
@@ -12588,13 +12649,19 @@ facilidade eu te
 amei tanto 
 sério
 ---
+1052
+
 no meu aniversário ela
 me deu um passado de
 presente
 ---
+1051
+
 o pasarinho é o melhor 
 amigo do homem
 ---
+1050
+
 eu quebrei o pé caminhando 
 isso diz tudo sobre um 
 ossinho do meu pé 
@@ -12605,10 +12672,14 @@ alguma analogia?
 
 para Matilde Campilho
 ---
+1049
+
 perdemos
 contatos
 físicos
 ---
+1048
+
 Para Com Isso, Continua Com Poesia
 
 fizemos planos agora
@@ -12616,54 +12687,82 @@ penso em planos para
 partir para outro 
 plano
 ---
+1047
+
 mamãe um dia entenderá
 que eu poderia ter par
 tido muito antes
 ---
+1046
+
 opiniões públicas
-atualizado 2025
+(atualizado 2025)
 
 “Dostoiévski é superestimado”
 ---
+1045
+
 palavras azuis
 
 página dos suicídios do dia
 anterior página dos assassi
 natos do dia seguinte
 ---
+1044
+
 juntos compomos um soninho
 até o nascer do sol eu sab
 ia que estava só te sonhan...
 escreven...*
 ---
+1043
+
 poeta nutella
 ---
+1042
+
 por que me existiram?
 ---
+1041
+
 as pessoas andam comentando
 que as minhas qualidades 
 são os meus maiores de
 feitos você acredita
 ---
+1040
+
 percebo detalhes que nem 
 são mais detalhes assim
 ---
+1039
+
 todo poeta é cego de poesia
 ---
+1038
+
 inspirado em você
 mas não para 
 você
 ---
+1037
+
 o fim de um novo começo
 o começo de um novo 
 fim
 ---
+1036
+
 flores de marshmallow
 bem-vinda ao interior
 do meu fígado
 ---
+1035
+
 fo tô na academia
 ---
+1034
+
 insegurança
 
 assim que entrei pensei te
@@ -12671,6 +12770,8 @@ ver saindo ao sair imagin
 ei você voltando não hav
 ia segurança no bar
 ---
+1033
+
 não lembro abso
 lutamente nada que
 li ou escrevi por 
@@ -12680,6 +12781,8 @@ escreve por trás
 dos olhos das 
 pessoas
 ---
+1032
+
 ontem ele me mandou
 flores no trabalho...
 olha vocês combinam...
@@ -12689,99 +12792,148 @@ carinhoso...
 eu estou falando 
 das flores...
 ---
-bem lá no interior trans
-formam estrelas em 
-estrelenses
+1031
+
+bem lá no interior transformam 
+estrelas em estrelenses
 ---
+1030
+
 eu vou escrever cada 
 vez melhor mesmo você 
 não querendo e você 
 nunca vai me amar 
 mesmo você querendo
 ---
+1029
+
 quantas vezes eu já 
 me despedi da vida 
 em sonho e é tão 
 bom acordar
 ---
-ela jurou que me amava!
+1028
+
+ela jurou que me amava
+
 você não sabe que hoje
 em dia os efeitos espe
 ciais estão cada vez
 melhores?
 ---
+1027
+
 brincando de esconde-
 esconde em    poesia
 ---
+1026
+
 diz ti nada
 ---
+1025
+
 hora de bater o ponto
 hora de ir para casa
 hora de bater as asas
-o céu espera a 
-coragem
+o céu espera a coragem
 ---
+1024
+
 escrevo para mim
 quase nunca res
 pondo
 ---
-e qual é a sua história?
-hum você tem tempo?
-todo!
-então vá aproveita-lo
+1023
+
+— e qual é a sua história?
+— hum você tem tempo?
+— todo!
+— então vá aproveita-lo
 porque eu não tenho
 ---
+1022
+
 você emprestou-se de corpo
 e alma e agora eu daria 
 minhas mãos para estar
 de volta
 ---
+1021
+
 se eu não tenho certeza
 que é você então decido
 que é você
 ---
+1020
+
 esse poeta não me passa
 uma energia muito boa...
+
 é muita gente deve ter
 morrido ali dentro...
 ---
+1019
+
 você é um disco 
 de vini arra
 nhado
 ---
+1018
+
 divagar com o amor...
 divagar com o amor...
 divagar com o amor...
 ---
+1017
+
 se eu não dormir agora
-eu perco o bônus
-amanhã
+eu perco o bônus amanhã
 ---
+1016
+
 então busco conexões 
 desconectado... você 
 está recebendo?
 ---
+1015
+
 está cada vez mais
 difícil te fazer 
 ler
 ---
+1014
+
 café é a minha cerveja
 ---
-o capitalismo te massacrando de felicidade
+1013
+
+o capitalismo 
+te massacrando 
+de felicidade
 ---
+1012
+
 cessar-poesia!
 ---
+1011
+
 eu não sou céu a mar
 ---
+1010
+
 charme
 
 prefiro que você
 esteja errada
 sob mim
 ---
+1009
+
 ChatGPT melhore o poema:
 EU TE ODEIO!!!!!!!
 ---
+1008
+
 em um
 bar
 co
@@ -12791,16 +12943,22 @@ en
 contra
 remos
 ---
+1007
+
 amor líquido sem álcool
 
 ontem você salivava na minha
 boca e hoje nós nos transfor
 mamos na letra da música
-Somebody That I Used 
-To Know
+
+Somebody That I Used To Know
 ---
+1006
+
 eu sou uma bicha no mato
 ---
+1005
+
 você está me escondendo
 alguma coisa!
 é só uma aliança amor...
@@ -12809,6 +12967,8 @@ casamento é sério?
 uma aliança com o partido
 comunista amor...
 ---
+1004
+
 amiga eu tenho uma
 poesia para te contar...
 meu deus não vai me
@@ -12820,16 +12980,22 @@ tudo como foi foi
 bom? doeu?
 ah só no começo
 ---
+1003
+
 não tenho nada de bom para
 escrever neste momento não
 há como vencer palavras 
 em silêncio
 ---
+1002
+
 se comparado a abraçar um
 cacto por exemplo você 
 não me machucou 
 tanto não
 ---
+1001
+
 líquido
 
 parece que eu conheço
