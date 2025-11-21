@@ -1,18 +1,28 @@
 ---
 layout: default
 ---
+2640
+
 — Papai, quem mora na lua é o quê?
 — Luana, minha filha, ninguém mora na lua.
 ---
+2639
+
 não tenho nada contra a poesia
 até tenho um amor que é
 ---
-quanto mais livros publicados
+2638
+
+quanto mais livros 
+publicados
 menos reconhecimento
 como escritô
-porque vários livros publicados
+porque vários livros 
+publicados
 e nunca emplacô
 ---
+2637
+
 O TAMANHO DA BUNDA DELA
 
 a bunda dela é do tamanho de Júpiter 
@@ -28,31 +38,41 @@ possui mais de 90 luas incluindo europa
 uma das mais famosas que tem um oceano 
 interno de água líquida
 ---
-EM BREVE ||| quarto livro – primeiro ROMANCE – título: BLUE TU – KNECHT VINÍCIUS
----
+2636
+
 Isso não é literatura!
 Como passamos de Machado de 
 Assis para Vinícius Knecht?
 ---
+2635
+
 É preciso da água para não afundar.
 ---
+2634
+
 — Vinícius Knecht não é literatura. 
 Chamar isso de livro já é uma ofensa 
 à literatura e a toda a história da arte.
 — Criei algo novo? Não sei nem como 
 te agradecer. Sério.	
 ---
+2633
+
 OLHA O DRAMA
 
 pronto um cortezinho agora ele
 vai começar a sangrar quer ver
 olha o drama
 ---
+2632
+
 — Querida, só mais uma coisa, 
 poeta que explica a poesia 
 é pior que mágico que ensina 
 suas mágicas.
 ---
+2631
+
 — É sério. Eu sou perseguido pelos paranoicos.
 — Parece papo de louco, mas eu me identifico.
 — Sempre a um passo de não estar mais aqui.
@@ -61,27 +81,36 @@ suas mágicas.
 — Você já teve a sensação de estar louco?
 — Algumas vezes. Lá fora.
 ---
+2630
+
 — Eu comentei “minha” na foto da minha namorada.
 — Sim. Porque você é retardado.
 — Ela curtiu.
 — Porque ela tem quinze anos.
 ---
+2629
+
 — Vinte e três reais e cinquenta e nove centavos 
 ou de graça? Não superestime a sorte. Você nem 
 tem tempo para isso.
 ---
+2628
+
 — Quer ouvir algo engraçado? Outro dia eu 
 estava tão chapado que fui até um motel e 
 pedi um quarto com cama de solteiro.
 — Eu ri. E a garota? O que ela disse?
 — Ah, atendentes são sempre simpáticas, 
 né.
-
 ---
+2627
+
 Jonny Greenwood tocando um limão
 dançando para o seu prazer 
 com a mão
 ---
+2626
+
 — Vim receber o amor da minha vida.
 — Nome?
 — Vinícius.
@@ -98,31 +127,49 @@ com a mão
 — Eu sei. Sinto muito. Fique bem.
 — O dela. Eu volto na próxima semana.
 ---
-“O futebol brasileiro vai assediar a próxima Copa do Mundo.”
+2625
+
+“O futebol brasileiro vai assediar 
+a próxima Copa do Mundo.”
 ---
+2624
+
 — Esse guri tem muito futuro. 
 Exagerei.
 — Pois eu só vejo passado nele. 
 Exagerei. Ele já tentou ficar comigo.
 É problemático e toma antidepressivos.
 ---
+2623
+
 — É com você que eu quero falar.
-— Eu não converso com pessoas do seu lado político.
+— Eu não converso com pessoas do 
+seu lado político.
 — Por quê?
 — Porque eu me identifico.
 ---
+2622
+
 — Eu vou sentir a sua falta.
 — Eu nunca senti a sua presença.
 — Agora vai.
 ---
+2621
+
 MARTHA MEDEIROS
 
 Martha Prapêche
 ---
+2620
+
 A lua no fim do túnel.
 ---
+2619
+
 TeVê Aumenta O Volume Do Nada (2025)
 ---
+2618
+
 ||| AGENDA
 
 FEIRA DO LIVRO DE PORTO ALEGRE 2025
@@ -133,50 +180,61 @@ e sessão de autógrafos
 
 + Livros espalhados pela Feira. Encontrou? É seu.
 ---
+2617
+
 perco o amor
-mas não perco o poema
+mas não perco 
+o poema
 ---
+2616
+
 um casal
 cada um lendo 
 seu próprio livro
 dividindo 
 a mesma mesa
 é o auge
+
 não importa a poha desse amor
 ---
+2615
+
 dividindo a mesma cama
 o amor que se vire...
 ---
+2614
+
 para não se jogar do sexto andar
 mudou-se para o primeiro 
 ---
+2613
+
 amanhã eu sempre sou feliz
 ---
+2612
+
 — eu sei, a depressão não é algo simples.
 é um tormento terrível.
 mas é importante que você entenda: 
 a culpa não é sua.
 — eu sei. a culpa é sua.
 ---
+2611
+
 sentado paralisado na 
 cama quando eu poderia 
 muito bem ter ficado 
 deitado esse tempo todo
 ---
-às vezes 
-queria
-uma doença 
-terminal
-que curasse
-minha má 
-vontade
-de viver
----
+2610
+
 não sei o que 
 dizer
 da pergunta 
 “você é feliz?”
 ---
+2609
+
 como posso 
 deixar 
 este mundo
@@ -185,6 +243,8 @@ ainda
 
 precisa ser escrito
 ---
+2608
+
 ROTEIRO
 
 queda: 
@@ -195,22 +255,22 @@ trinta anos
 em flash
 back
 ---
-você está 
-linda sério
-lembra 
-a menina do filme 
-O Exorcista
----
+2607
+
 engraçado ela 
 era a guria 
 mais séria 
 do meu mundo
 ---
+2606
+
 espeixealmente
 
 — eu vou sentir a sua falta
 — eu sequer senti a sua presença
 ---
+2605
+
 ei calma aí
 é só mais um sábado
 em que você está sozinho
@@ -221,16 +281,27 @@ no dia seguinte
 e você continuará
 sozinho
 ---
+2604
+
 não existo 
-e cada vez existo menos
+e cada vez 
+existo menos
 ---
+2603
+
 é preciso perguntar 
 quando vou embora 
 daqui
 sem interrogações
 ---
-quarto de motel com uma cama de solteiro
+2602
+
+quarto de motel 
+com uma cama de 
+solteiro
 ---
+2601
+
 Hoje, às 19h, no Podcast: 
 O SEU PSICÓLOGO!
 
@@ -246,26 +317,40 @@ engajamento!
 Não perca. 
 É hoje à noite.
 ---
+2600
+
 sou perseguido pelos paranoicos
 ---
+2599
+
 sempre um passo para 
 não estar mais aqui
 ---
+2598
+
 acendi uma vela 
 querendo ser romântico
 o apartamento explodiu 
-havia um vazamento de gás
+havia um vazamento 
+de gás
 ---
+2597
+
 no sábado à noite
 depois das 23h
 estarei livre
 podemos marcar 
 um café
 ---
+2596
+
 — você pode parar de escrever um pouco?
 — por quê?
-— poxa… você não vê que estamos transando agora?
+— poxa… você não vê que estamos 
+transando agora?
 ---
+2595
+
 INTIMIDADE
 
 — quer ouvir uma história minha
@@ -273,12 +358,18 @@ que só a minha mãe
 e um motorista de Uber 
 conhecem?
 ---
+2594
+
 você está solitário? melhore
 foi baleado? melhore
 ---
+2593
+
 simplesmente deixei de atender
 o celular e as expectativas
 ---
+2592
+
 “I'm Vengeance. I Am The Shadows.”
 
 eu começo o poema
@@ -309,13 +400,23 @@ ela se apaixona por ele
 já está completamente obcecada
 depois de ler isso.
 ---
+2591
+
 minhas palavras você 
 nunca vai superar
 ---
+2590
+
 gente come a gente
 ---
-conversar de igual para igual com o Jack White
+2589
+
+conversar de igual 
+para igual com 
+o Jack White
 ---
+2588
+
 minha psicóloga insistia que 
 eu estudasse neurociência
 falava dos tantos cursos 
@@ -324,6 +425,8 @@ meu psicólogo disse que
 eu tinha potencial para 
 escrever contos eróticos
 ---
+2587
+
 na cena ele está sozinho no bar
 escrevendo o que acontece literalmente
 e muitas coisas estão acontecendo
@@ -331,12 +434,16 @@ e o texto vai ficando (adjetivo aqui)
 
 mas é tudo apenas uma cena
 ---
+2586
+
 — manda algo que você escreveu há pouco?
 qualquer coisa, o que for.
 tô numa crise depressiva. sério.
 ler quem eu conheço me faz bem.
 — não me sinto à vontade pra compartilhar.
 ---
+2585
+
 — eu quero te ajudar.
 — você não quer me ajudar. 
 acredite.
@@ -344,48 +451,66 @@ acredite.
 mas eu quero que você ache 
 que eu quero te ajudar.
 ---
+2584
+
 acho que hoje eu quero mais alguém 
 que confie em mim do que alguém 
 em quem eu possa confiar
 ---
-— oi, amiga. que saudade eu sentia.
-sempre gostei tanto de você. você sabe.
-você deu uma engordadinha, né?
-como andam as coisas? conta tudo!
----
+2583
+
 hoje somos julgados até 
 por um choro bem dado
 ---
-nunca foi tão fácil ser insuficiente
+2582
+
+nunca foi tão fácil 
+ser insuficiente
 ---
+2581
+
 QUIERO CAFÉ
 
 — o que você gostaria de pedir?
 — um café. não é óbvio?
 ---
+2580
+
 eu menti. 
 eu não vou ao psicólogo. 
 eu vou ao psiquiatra.
 ---
+2579
+
 Imagine que seu pai é o David Gilmour. 
 Tipo, o melhor guitarrista da história. 
-E você está no palco fazendo o backing vocal para ele. 
+E você está no palco fazendo o backing 
+vocal para ele. 
 E ele sorri para você. 
-E tudo isso acontece enquanto vocês tocam 
-uma das melhores músicas já feitas. 
+E tudo isso acontece enquanto vocês 
+tocam uma das melhores músicas 
+já feitas. 
 
 Comfortably Numb. 
 
-Já imaginou poder dançar no seu próprio palco?
+Já imaginou poder dançar 
+no seu próprio palco?
 ---
+2578
+
 — qual o conselho que você daria para 
 quem quer escrever um livro? 
 para começar.
 — para começar, nunca faça essa pergunta 
 a outro escritor.
 ---
+2577
+
 eu acho que conheci uma Pessoa
 ---
+2576
+
+AGENDA |||
 LAJEADO RS UNIVATES
 Lançamento de AMARELANDO BLUE
 
@@ -395,6 +520,8 @@ GRAMADO CULTURAL
 
 + distribuição de exemplares gratuitos
 ---
+2575
+
 Este poema se chama “Segue o roteiro”
 
 eles tiveram 
@@ -404,6 +531,8 @@ no antigo
 Titanic fictício 
     que nunca afundou 
 ---
+2574
+
 Este poema talvez se chame
 “Interpretando Euphoria”
 
@@ -415,8 +544,11 @@ ou a série não deixa claro
 se o personagem está interessado 
 romanticamente nela
 ou então o personagem ainda 
+
 não sabe disso
 ---
+2573
+
 eu não estou aguentando 
 de tanta dor de cabeça
 mas eu não consigo parar 
@@ -440,77 +572,110 @@ eu também amo a minha
 avó 
 ele diz
 ---
+2572
+
 beijo poesia sublingual
 ---
+2571
+
 PROMOÇÃO
 
 Livro Amarelando blue
-De 239,90 por 60,00
+De 239,90 por 50,00
 ---
+2570
+
 orgasmo é overdose de poesia
 ---
+2569
+
 estou começando a achar que eu 
 te imagino o tempo todo
 ---
+2568
+
 Ele é aquele cara cujos pais queriam 
 que chegasse antes das 6h em casa.
 ---
+2567
+
 eu quero que você termine a minha poesia 
 com a mesma sensação de quando você 
 acaba de sair de um banho relaxante 
 e vai dormir em uma cama com um conjunto 
 de travesseiros e lençóis novos.
 ---
-— o que foi?
-— nada não. só estou olhando para a sua alma.
----
-Vinícius escrevendo poesia 
-me dá mais cinco anos de vida. 
+2566
 
-Assinado: Vinícius K.
+— o que foi?
+— nada não. só estou olhando 
+para a sua alma.
 ---
+2565
+
 Uma vez fiquei tão chapado que 
 comecei a chorar por causa do 
 talento da Clarice.
 ---
+2564
+
 E foi nesse olhar que o nosso amor 
 passou de razoável para brilhante.
 ---
+2563
+
 Não aceite menos que Beatles.
 ---
+2562
+
 Deixe o solo de Comfortably Numb 
 até terminar 
-o último sexo. 
+o último sexo.
+
 E daí sim, poderei me despedir 
 com toda a força.
 ---
+2561
+
 se eu posso voar 
+?
 deixa eu acreditar
 ---
+2560
+
 Sou apenas um espírito sob efeito 
 de remédios controlados.
 ---
+2559
+
+FINAL
+
 Na hora de finalizar... 
 Na hora de entregar o livro... 
 A história é outra.
 ---
-Duas almas que são imperfeitas uma para a outra.
+2558
+
+Duas almas que são imperfeitas 
+uma para a outra.
 ---
+2557
+
 poesia me deixe em paz 
 eu também tenho uma vida
 ---
-É injusto como tantas pessoas tão talentosas 
+2556
+
+É injusto como tantas pessoas 
+tão talentosas 
 não podem existir.
 ---
-aqui cada detalhe passa 
-despercebido enquanto 
-vivo
----
-não se preocupe com a hora 
-agora você vai morrer
----
+2555
+
 O vilão pode acertar a qualquer momento.
 ---
+2554
+
 parece que ela 
 está sorrindo 
 para mim 
@@ -519,27 +684,41 @@ enquanto dança
 eu quis dizer 
 enquanto canta
 ---
-escreva por mim eu preciso de outra coisa
+2553
+
+escreva por mim 
+eu preciso de 
+outra coisa
 ---
+2552
+
 será que eu posso falar? 
 hoje eu comemoro minha morte
 ---
+2551
+
 — qual o sentido da vida?
 — sim.
 ---
+2550
+
 Parem De Pedir Experiência 
 (Vocês Não Têm Vergonha Na Cara?)
 2025 ‧ Drama ‧ 1h 44m
 ---
+2549
+
 Não Vou Pausar Minha Playlist 
 Para Escutar O Teu Grito 
 De Socorro
 ---
-Estarei em média pelas 20 horas lá! Até! Abraço!
+2548
+
+Estarei em média pelas 20 horas lá. 
+Até! Abraço.
 ---
-Empresta Uma Folha Eu 
-Quero Escrever Um Livro
----
+2547
+
 por que 
 não podem 
 viver de 
@@ -548,9 +727,14 @@ como
 antigamente 
 Vivian
 ---
+2546
+
 hoje o dia tá produtivo 
-mas já passou da meia-noite
+mas já passou da 
+meia-noite
 ---
+2545
+
 River Phoenix certo dia escreveu
 corra para o resgate com amor
 e paz se seguirá 
@@ -559,136 +743,35 @@ eu seguiria com
 corra para o amor com ódio
 e amor te perseguirá
 ---
-a arte nunca começou
----
-até um bicho lida com a arte
----
-hoje artistas pioram 
-suas artes para 
+2544
+
+hoje artistas 
+pioram 
+suas artes 
+para 
 fazer mais 
 sucesso
 ---
-tempo em tempo 
-mim a mim
-anos e anos 
-tantos e tantos
-mins
----
+2543
+
 distraídos escreveremos
 ---
-se não existe existo
-sou autobiográfico 
-na minha
+2542
 
-FICÇÃO CIENTÍFICA
----
-poesia é teste de defesa planetária
----
-O CLÁSSICO
-
-existe poeta de uma poesia só?
----
-poesia é a verdadeira natureza do tempo 
-com legenda sincronizada
----
-mistério mistério 
-esta falta de 
-crédito
----
-poeta naturezado 
-lá de Mario Quintana
----
-ser criando respostas menti 
-rosas para perguntas in 
-ventadas
----
-não fazem ideia 
-com que livros 
-estão li 
-dando
----
-no processo da sua invisibilidade 
-artista é a luz que vem trazendo
-
-SUPERPODERES
----
-por que você acha que virou poeta 
-
-você está pronta?
-acho que virei poeta por esperar 
-sempre dez vezes ou mais que 
-o esperado
----
-nave da NASA colide com futuro 
-de forma inesperada na missão 
-ART
----
-o que é a poesia
-
-poesia é autora da telescópia 
-do universo
----
-poeta é a que le que faz
-copo d’água em tempestade
----
-nalgum 
-provérbio 
-os olhos
-são janelas 
-da alma 
-poetas pre 
-ferem que 
-sejam portas
----
-fechava olhos numa busca do infinito
-ou recusa do finito
----
-necessidade da escrita necessidade de 
-ser artista necessidade de dizer 
-algo como se fosse
-
-O PRIMEIRO E O ÚLTIMO SER HUMANO
----
 escrevo desde que 
 não me conheço 
 por gente
 ---
-olhar para o mundo e pensar eu sou 
-a pessoa mais criativa
-da minha história
----
-RELIGIÃO
+2541
 
-todos os caminhos me levam
-amim!
----
-ROTINA
-
-é muito importante que você acorde 
-para a vida no segundo certo
----
-Eles nunca tiveram tanto tanto medo 
-da arte
----
 poeta tem
 a mesmíssima 
 respons 
 habilidade
 dos passarinhos
 ---
-no mínimo rir no máximo ch 
-orar
----
-arte é forma ilimitada de sermos 
-outros
----
-confie apenas em três tipos de poetas
-os que estão sofrendo os que estão 
-amando ou os que estão os dois
----
-nada se cria sem estar em contato 
-com tudo aquilo que não existe
----
+2540
+
 TEMPOS SOMBRIOS DE
 
 não ouvi
@@ -696,932 +779,258 @@ mas ouvi falar
 não li
 mas li sobre
 ---
+2539
+
 papai como faz pra ser poeta 
 
 fingindo ser poeta filho
 ---
-folhear árvores e árvores e árvores
-e árvores
----
-e os animais estão comentando
----
-FOBIA
+2538
 
-numa História não se
-cobra ingresso 
-se arranha passagem
----
-foi tão bom que eu nem escrevi
----
-tatuadora autoral assina suas tatuagens
----
-lápide é marcada com logotipo
----
-estar só sendo cinema to
-graficamente amado
----
 um pai morre no parto 
 ---
-poesia de cada dia nos dai o tempo
----
-a tarde talvez fosse mais amarela
-não fosse o
+2537
 
-BLUE
----
-papai conta uma história para que
-eu acorde
----
-prefiro quando você escreve sobre amor 
-porque assim eu rio do seu jeito 
-de sentir dor
----
-poesia é o denominador comum
----
-TALENTO GRAVE
-
-disputa de amores termina em arte
-e talento grave em Estrela
----
-escrever sem qualquer 
-forma de anestesia
----
-QUINTANA
-
-pássaro 
-presente 
-e futuro
----
 pobre Gatsby
 ---
-amor não é disciplina 
-amor é costume
----
-escreveu porque ao menos 
-cogitou sentir
----
-era real mente atraente porque 
-estava na cara que não falava 
-tudo o que sabia sabe
----
-parecia que viria um poema 
-era só a vizinha
+2536
 
-IRACEMA
----
-quebrei um silêncio montei 
-vários silenciozinhos
----
-MÃOS CRUZADAS
-
-o chão encanta tanto 
-amada
----
-Atraversando as tuas… 
----
-beber café para dormir 
-escrever poesia para 
-não amar tão cedo
----
-JULGAMENTO CANCELADO
-
-com seus olhos 
-com suas mãos 
-cometeu a arte
-de um escrivão
----
-você com alguma sombra
-de dúvidas é uma das 
-melhores pessoas que 
-nunca conheci em toda 
-a minha vida
----
-esta música me lembra você 
-
-sério? agora ela me lembra você
----
-brecha para amor
-de brechó
----
-POEMA DE TRÊS TÍTULOS
-
-P.S EU TE ODEIO
-
-você fede a perfume Chanel nº 5 
-você é tão ridícula quanto Marilyn Monroe
-você soa tão sem graça quanto Jim Carrey
-você dirige tão mal quanto Tarantino 
-você escreve tão mal quanto Kafka 
-você toca e canta insuportavelmente quanto os Beatles
-você pinta tão cafona quanto Van Gogh
-
-EU ME ODEIO
----
-dei cem por cento de mim 
-ela deu noventa e nove
-decidi pôr um fim
----
-de date p/ hate
----
-O ROMÂNTICO E O ROMANCISTA
-
-você escreve para criar um amor
-ou você escreve para corrigir 
-um amor?
----
-no Majestic não saí do meu quarto já sabia 
-que o dia estava lindo lá fora
----
-em Saint Remy de Provence quando olhava para fora
-da janela o mais importante era o que estava 
-dentro de mim
----
 a poesia nos fez suar
 a noite inteira
 o que isso soa
 para você
 ---
-ela é bonita demais para ele você não acha
+2535
 
-você tem noção do talento que ele tem?
----
-dos olhos que quero nunca sou vista
-para amar dos olhos que me querem
-já nem estou mais aqui
----
-&u e &u
----
-por que todo amor 
-que me aparece 
-parece com o
+ela é bonita demais para 
+ele você não acha
 
-CAVALO DE TROIA
+você tem noção do talento 
+que ele tem?
 ---
+2534
+
 vamos começar do zero?
 
-não nós vamos começar do dez
+não nós vamos começar 
+do dez
 ---
+2533
+
 CORPO VIOLÃO
 
 você é mais difícil
 que pestana para 
 iniciantes
 ---
+2532
+
 hoje o que temos de mais íntimo 
 não é o beijo
 o sexo
 a conexão 
 a troca de vulnerabilidade
+
 é a senha
 ---
+2531
+
 ouça bem você é melhor que
 o solo de Comfortably Numb
 ---
-por fim 
-sempre 
-pôr um fim
----
-alguém – me – explica todo este negócio
-que é o amor nos tempos de capitalismo
----
-então choque a sociedade com amor beleza 
-arte cultura romance acolhimento social 
-resistência
-porque um mundo que se choca com isso está 
-doente e precisa de um
+2530
 
-TRATAMENTO DE CHOQUE
----
 Eu me Ode e eu quero mor.
 ---
+2529
+
 a campainha lhe tocava 
 mais que a companhia
 ---
-para ser sincero
-é preciso ser 
-vidente
----
-sei bem a vozinha que meu vôzinho faz para
-seu cachorro é a razão da sua existência
----
-por que você fala comigo desse jeito
+2528
 
-que jeito
-
-como se estivesse
-
-ESCREVENDO UM POEMA
----
-a voada amou 
----
-você é tão feita
----
-sinto muito a sua fala
----
-então quantas vezes você já namorou
-
-quatorze e você 
-
-vinte e nove 
-
-hum
----
-o que é bom para poder fungar
-o seu pescoço
----
-O QUADRO
-
-café preto sem açúcar 
-que mantém a poesia 
-eufórica e a cor dada
----
-insuportável tal facilidade 
-com que você não me ama
----
-Santos Dumont deveria ser feriado nacional 
-então pergunte aos franceses na frente da 
-Torre Eiffel olharia só para você
----
-então quer dizer que daqui há cento
-e cinquenta anos todo mundo que hoje 
-está vivo vai estar morto e eu só 
-vou te encontrar – uma – vez
-numa – saída – de um bar?
----
-estou completamente lúcido
-por você
----
-comparassem nossas artes 
-você teria ampla 
-paisagem
----
-dama após outra se entregando de corpo
-em corpo sem nenhum drama
----
-a dança passou a ser o único 
-prazer das con 
-versos
----
-Thom Yorke, have you ever heard of Yoñlu?
----
-claro que por ti não tenho mais 
-“aqueles” amores mas algumas 
-noites confesso eu vou até 
-a janela checar a altura
-da lua
----
-cheguei a medir as portas
-por onde passaria “aquele” 
-amor que vindo pela janela 
-pare- céu engano
----
-Hans Zimmer tic-toc-
-ando no nosso 
-mundinho
----
-você é a base da minha NASA
-é algo que Alex Turner 
-escreveria?
----
-todos os meus eus na 
-morando todo o seu
-eu
----
-se o seu amor caísse 
-no vaso sanitário
-o que você faria
----
-não tinha medo de nomear o que sentia
-o medo era sobrenomear
----
-então me conta sobre você
-o que você faz
-
-características que me colocam 
-no espaço-tempo ou quem eu sou 
-e sobre o autoconhecimento que 
-eu adquiri em mais de trinta 
-anos?
----
-em sorrisos de adeuses 
-não aparecem dentes 
-podres dentes tortos
-ou amarelados conheça
-as possíveis causas
-e tratamentos
-
-É POSSÍVEL SALVÁ-LOS?
----
-sinto muita pena em mim
----
-seja apenas mais dois 
-neste mundo nem que 
-apenas mais uma vez
----
-vamos lá escreva tudo para fora
----
-outro dia eu li a pergunta
-quando a pessoa cai muito
-o que pode ser eu sorri 
-até conseguir levantar
-nova mente
----
-metafísica conta que serei
-seu anjo arte conta que serei
-seu fantasma ciência afirma 
-que serei uma espécie de 
-seu satélite
----
-não é justo comigo 
-ser justo com você
-no momento
----
 amores Made in China
 ---
-só um feto provocava afeto
----
-você é tudo que eu quero 
+2527
 
-você é tudo que eu tenho
----
-antigamente no polo sul
-da lua hoje mais no
-polo dance
----
-você fala comigo com mais 
-pontos que vírgulas;
----
-brota mais pra dentro
----
-você me ama? onde? 
-eu eu não consigo vê-lo 
-tocá-lo senti-lo
-
-sim amo
-amo na Fossa das Marianas
-
-não posso fazer nada com 
-as suas palavras vazias
----
-se não 
-escrevemos 
-as nossas 
-próprias 
-histórias
-ao menos 
-uma vez 
-alemos
-
-SIGNIFICADO DE ALEMOS
-
-alemos vem do verbo alar 
-o mesmo que ergamos 
-puxemos elevemos
-subamos icemos
-
-SIGNIFICADO DE ALAR
-
-dar asas elevar erguer alar 
-o espírito às regiões 
-do belo
----
-porque agora acabou 
-para você e eu para
-o adeus final 
-para
-
-O ADEUS INICIAL*
----
-pessoas não são infinitas mas 
-suas almas se expandem 
-o tempo todo
----
-80s
-
-enfrentar a pista descobrir
-na discoteca blecaute agitado 
-nocauteado num globo espelhado 
-vendo-se só para
-
-DANÇAR QUEEN FEITO UMA RAINHA
----
-tendo alcançado um brilho muito intenso 
-objeto que mais brilha no céu noturno 
-depois da lua o nosso amor visível 
-a verso nu
----
-algo catastrófico aconteceu no 
-sistema solar eu me apaixonei 
-por ela e correr não adianta
-ria neste caso
----
 nem tudo é o que aparece
 ---
-o Toby era o meu maior hobby
----
+2526
+
 atualmente se interessa mais 
 por ufologia que por romance
 ---
-ler um bom livro é como você 
-vestir a melhor capa para 
-ficar em vida
----
-bilhões e bilhões de poesias 
-atraversando seu corpo 
-enquanto você lê 
-essa poesia
----
+2525
+
 conhecemos mais o espaço
 e o oceano do que 
 a poesia
 ---
-deixe o meu dia mais leve 
-para onde você estiver
----
-canto ela arranjo namorada 
-gosto da melodia me
-instrumenta
----
-plantas com anos neste ramo
----
+2524
+
 ERA UMA VEZ
 
 o dia em que o ser humano 
 percebeu que abre mão
 de abrir asas
 ---
+2523
+
 paixão tirou os sapatos 
 para não fazer barulho 
-não teve jeito o amor 
+não teve jeito o amor
+
 acordou
 ---
-há coisas tão tão poéticas
-que simplesmente não cabem
-na poesia
----
+2522
+
 nunca teve primeiras intenções
 ---
-JUSTIÇA COM AS PRÓPRIAS MÃES
+2521
 
-ah se o mar fosse no feminino...
----
-eu te amo
-
-eu não seria tão idiota 
-de acreditar nisso
-
-viu só eu não te dei amor 
-mas te dei sabedoria
----
-um ingresso num amor ou
-um ingresso para assistir 
-a estreia de Titanic
-no cinema em 1998?
----
 seus olhos eles são 
 tão lindos quanto
 o seu olhar
 ---
-AMOUR
+2520
 
-clamor orgíaco da solidão
----
-AMOUR
-
-do gozo ao catarro
----
-desligava todas as luzes no entanto
-no momento em que penetrava fechava
-os olhos
----
-“verdade que consegui fazê-lo chorar?”
-repetia dezenas e dezenas de vezes 
-como quem ganhara o Prêmio Nobel
----
-gemido ecoava poesia orquestrada
----
-pulando acerca de
----
-a paleta de cores de uma mulher
----
-você é uma página do World
----
-ter o poder de prever você
----
-ele estava apenas correndo na sua frente
-ou ele estava fugindo de você?
----
-lamento você fala comigo 
-com sintomas e não com 
-sentimentos
----
-suas infidelidades não 
-eram tão dramáticas 
-mais do gênero fantasia
----
 sempre te amei Pierrot 
 
 meu nome é Ferdinand
 ---
-tripulação da alma amor comandante
----
+2519
+
 vertigem ou desejo imenso de cair 
 confiando que Ele a salvasse ou 
 pelo menos a levantasse
 ---
+2518
+
 RELACIONAMENTO SÉRIO CTRL+C 
 CTRL+V RELACIONAMENTO SÉRIO
 ---
-Vinícius ameaça se amar
----
-depois de Paulo Leminski ficou claro para mim
-eu não tinha outra escolha eu tinha que criar 
-Toda Poesia minha própria Bíblia
----
-celebrar-me-ei-a-mando-você
----
-falando tanto sobre amor faltando tanto amor
----
-amar por precaução 
----
-quando encontrares um amor continue
-a procur ares amor neste mesmo amor
----
-o talento é a melhor
-maquiagem do mundo
----
-o talento é a melhor
-maquiagem do mundo
-e não precisa ser 
-artista para ter 
-talento
----
-INTIMIDADE
+2517
 
-querer saber
-o que não se 
-quer saber
----
-quero ser orgulho do meu estado 
-de espírito
----
-primeiros encontros maiores despedidas
----
-eu poderia escrever aquilo que você 
-gostaria de ler mas daí talvez
-você não goste
----
-você está proibido de escrever 
-qualquer coisa a meu respeito
----
-não seria assim
-do mesmo jeitinho
-se não fosse
-
-O CINEMA
----
-vamos colocar
-um ponto inicial 
-na nossa história
-.
----
-a solidão deve partir de você
----
-saudade exige que amor se
-retrate
----
-no escuro ficou bem claro que
-ficar duro era moleza
----
-acordei ao som
-de passarinhos 
-cantando Wonderwall
----
-se bem me lembro no final ela disse
-que eu sou uma pessoa incrível
-eu vou repetir para vocês
-bem entenderem
-
-“no final”
----
-quando estou não consigo acreditar
-que estou quando não mais estou
-não consigo acreditar que 
-já estive
----
-melhores amigos 
-participação especial:
-
-AMOR
----
-poeta naturezado 
-lá de Manoel de Barros
----
-POESIA
-
-vestir palavras para chegar 
-em casa e despi-las
----
-você é a primeira vez que 
-escrevo isso
-e não vou repetir
----
-antigamente amor caía de penhasco 
-era socorrido com vida
----
 musa inspiração prec
 Isa dizer não
 ---
-ela pensa em mim e não se toca
+2516
+
+ela pensa em mim 
+e não se toca
 ---
-amava ela nunca
-me senti tão nervoso 
-na vida meu papel
-estava acabando
----
+2515
+
 HISTÓRIA DE UM ROMANCE MODERNO
 
 Erra uma vez… 
 Fim.
 ---
+2514
+
 MARIETA
 
 poeta que se preza amor
 vira título
 ---
+2513
+
 nostalgia põe saudade para dormir
 ---
+2512
+
 nunca alimente amor
 sem apetite
 ---
+2511
+
 tropeçamos na vida deitamos 
 no chão fizemos amor
 para disfarçar
 ---
-você me lembra alguém
-lembrei
-você me lembra você
-do passado
----
-minha sensibilidade olha minha intensidade 
-que toca minha depressão que beija minha 
-ansiedade que penetra minha
+2510
 
-ARTE
----
-como acordar para a vida sem regular
-o sonho
----
-no final das contas você acaba ficando
-com aquele que estiver mais
-
-- próximo!
----
-seu corpo um mirante
----
-seu sussurro no meu ouvido
-um refrão
----
-o truque da vovó
-é costurar
-o tricô com
-a linha
-do tempo
----
-visitei seu coração para minha 
-surpresa não havia ninguém 
-em casa
----
-não confie tanto nos seus olhos
----
-especialistas analisam em que
-circunstância ainda é 
-recomendado amar
----
-MADRUGADAS
-
-amor que horas parece agora
----
-explique se há alguma intensidade 
-considerada “normal” e como eu 
-faço para medi-la
----
 não lembrava mais
 o seu rosto 
 mas ainda lembrava 
 quanto a amava
 ---
-A NOSSA LIGAÇÃO
+2509
 
-coração chama chama 
-e ninguém atende
----
-entre fique na vontade 
-não repara estou te 
-amando está uma 
-bagunça
----
-descobri não me apaixonava por mim 
-porque não queria nada sério
----
-tomara que o amor nunca mais 
-encoste um dedo em você
----
-não sei se fui o melhor ou 
-apenas o preferido
----
-você não quer me conhecer melhor
-você só quer pistas para 
-solucionar poesia
----
-JULIA DREAM
-
-trocamos olhares agora 
-tenho olhos azuis
----
-ANTES DO AMANHECER
-
-perguntas despidas são mais importantes 
-do que respostas vestidas para impressionar
----
-muito amor pouca mídia
----
-talvez você se encontre aqui Vivian
----
-AMOR
-
-aquilo que supera amizade
----
-AMIZADE
-
-aquilo que supera amor
----
 espere só mais um pouquinho a noite
 não está escura o bastante para nós 
 dois
 ---
-você não sabe com quem está amando
----
-foi amor à última vista
----
-quinze goles de café
-para saber que 
-te quero
----
-você é exatamente como alguém que 
-desejo mas talvez eu não queira 
-alguém que seja exatamente
-como alguém que desejo
----
-vocês se entenderam? 
+2508
 
-não mas nós rimos muito
----
-do teu lado não tenho 
-tamanho tamanho é o 
-amor que tenho
----
-só temos real conexão des 
-conectados
----
-fazer um filme sobre nossa história 
-antes que vire uma novela
----
 escrever um livro contar
 ao mundo quem é você e
 se perder na conta
 ---
-sempre li o meu nome em azul
-e o seu em vermelho
----
-passado dependente de Marias e Josés
----
+2507
+
 NOTAS SOBRE ELA
 
 ela não vai querer você 
 só porque você escreve 
 sobre ela
 ---
+2506
+
 não era insônia 
-era vigília para a saudade
+era vigília para 
+a saudade
 ---
+2505
+
 tédio a dois nunca é tédio
 ---
-primeiro o zíper ou primeiro o botão
----
-novas saudades virão
----
+2504
+
 SEXO EM CRASE
 
 deixar a vontade à vontade
 ---
-há muitas coisas acontecendo dentro
-de mim que não têm nome mas
-todas elas têm fome
----
+2503
+
 sabe aquela pessoa que você ama 
 e não fala isso para ela
 
 ela já morreu no futuro
 ---
-saudade vem de dentro ou vem de fora?
----
-quanta vezes precisa voltar 
-para que não seja mais 
-volta
----
-amor não é duas pessoas sendo tudo uma
-para a outra amor é bem menos que isso
----
-acreditar que é mesmo amor 
-só acredito quando não estou 
-acreditando que está 
-mesmo acontecendo
----
-és fogo quando tu me chamas
----
-nalguns silêncios amor 
-precisa falar mais alto
----
-amor é bem mais complexo que 
+2502
+
+amor é bem mais 
+complexo que 
 separe-se
 ---
-viajamos e moramos na viagem
----
-ME CHAME PELO SEU NOME
+2501
 
-se me chamares pelo
-seu nome eu vou olhar 
-antes
----
-acordar num amor é um acordo entre
-duas partes
----
 amor dispensa curiosos
 ---
+2500
+
 amor que toca
 a companhia e 
 sai correndo
 ---
-amor oscila entre desejo e oscilação
----
-amar sem anestesia geral
----
-ela me encolheu virei seu a 
+2499
+
+ela me encolheu 
+virei seu a 
 feto
 ---
-traição quatro rodas
----
-há lilás não quero te verde novo
----
-achei que viria um amor
-meu time foi campeão do mundo
-achei que viria um amor ganhei 
-na mega-sena
----
-asar no amor
----
-amor líquido sem álcool
----
-oi nós nos conhecemos?
+2498
 
-não mas eu te sigo nas 
-ruas
----
-a manhã em que ela nunca mais voltou
----
-claro que te amo mas
-vou fazer o meu feijão 
-com arroz
----
-nosso amor foi uma febre
----
-ÓCULOS
-
-olhar sem armação
----
-já vi tantas Cenas de um Casamento 
-que o amor não me faz mais piscar
-
-(em memória de Ingmar Bergman)
----
 lembra quando corri até a parada 
 para te encontrar antes de entrar
 no ônibus mas você já estava 
 dentro do táxi
+
 é assim que eu vejo a vida
 ---
-então ouço Bee Gees
-e lembro do meu amigo 
-que está mais aqui
----
-SENTIMENTO VERMELHO
+2497
 
-esta é a parte do livro
-em que escrevo
-
-come on baby blue
----
 GETTING INTO THE SWING... 
 (AND KINGS OF CONVENIENCE)
 
@@ -1644,192 +1053,14 @@ se movimentam
 e o único filme que eu vi não gostei nem um pouco 
 eu prefiro dançar a conversar com você”
 ---
-um segundo após um século de amor
----
-deixa um escritor inspirado 
-o deixando sem palavras
----
-me arrependo de amar você
----
-nunca sinta alguém por
-sentimentos de outros
----
-PRELIMINARES
+2496
 
-promessa de prazer não quero ouvir 
-mais um arrepio uma chama mais que 
-as outras sus surra num embriagado 
-amarrado e desvendado agora começa
-a boca dela... 
-a voz dela...
-o que entra nela...
-o que sai dela... 
-uma poesia
----
-LAS POESIAS
-
-vocês já sabem o que acontece
-em Poesias não fica só
-em Poesias
----
-amor feijão com maionese
----
-você entendeu tudo errado
-
-você disse com todas as letras o tempo todo 
-que queria morar comigo ter filhos comigo
-que me amava e que queria ficar comigo 
-para sempre
-
-mas não literalmente Vinícius 
-você confundiu as coisas
----
-olha eu sei as coisas não têm sido fáceis
-entre a gente por isso decidi fazer algo 
-diferente comprei duas passagens para 
-Paris
-
-eu não sei onde você quer chegar com isso 
-Vinícius
-
-PARIS!
----
-dos melhores arrependimentos
-ter entrado em você
----
-abanar meu corpo pois estou toda sua
----
-AMORES MODERNOS
-
-amei te conhecer sério
-e então
-então estava pensando 
-será que poderíamos 
-dar um tempo?
----
-sentimentos errados
-em artistas certos
----
-tua boca tuas pernas 
-teu cabelo teu sexo 
-meus olhos minha poesia 
-líquida minha poesia 
-mais lúcida que nosso amor
----
-pombos abandonados
----
-ela disse que minhas maiores qualidades 
-são meus defeitos vai entender
----
-divagar com o amor 
----
-não suporto mais amar só
-e apenas através de artes
----
-eu não sou céu a mar 
----
-se eu não tenho certeza que é você
-eu decido que é você
----
-inspirado em você não
-para você
----
-se eu seguisse meu caminho eu teria
-que escrever por você?
----
-velho demais para correr por você
----
-no interior não há pousadas 
-com exceção dos passarinhos
----
-ela é melhor do que
-eu tinha certeza
----
-AMOR LÍQUIDO SEM ÁLCOOL
-
-ontem jorrava saliva
-na minha boca hoje 
-somos a letra de
-Somebody That I Used To Know
----
-assim que entrei pensei
-te ver saindo ao te sair 
-imagem de você voltando
-não havia segurança
----
-passei a dar o seu sorriso
----
-espere para onde vocês estão levando
-o corpo dela
----
-todas estão vestindo sua máscara 
-e isso diz muito sobre a
-moda contemporânea
----
-tenho sido seu tecido
----
-ontem ele mandou flores 
-
-vocês combinam
-
-mas ele não é atencioso 
-nem carinhoso
-
-eu estou falando das flores
----
-conforme flores com forma
-de flores em flores para 
-que eu consiga apanhar 
-sozinho
----
-juntos compomos um soninho até
-o nascer do sol
----
-antes adiavam um pouco as penas dos poetas
----
-não lembro Absolut amente nada
-que eu li ou escrevi por trás
-dos msmsmeus*(?) ERROR
-olhos
----
-te bêjo palavra
----
-falo dos olhos dela 
-ela muda de assunto 
-e fala dos meus
----
-escreverei cada vez melhor 
-você querendo ou não 
-você nunca vai me amar 
-mesmo querendo
----
-nós sempre vamos sair no auge
----
-você é a tradusol do que é o luar
----
-NÃO MONOGAMIA
-
-não foi a melhor traição que você já sofreu?
-
-SIM!
----
-emprestou-se de corpo
-e alma agora daria a mão
-para estar de volta
----
-você mostrou sua cidade 
-eu mostrei meu mundo 
-e sempre vou me perdoar por isso
----
-sabe você é uma pes soa boa demais
-para mim
-
-então o que fazer para me tornar pior
----
 Eu gostei do poema, Vinícius, mas... 
 você está desejando a minha morte, 
 é isso mesmo?
 ---
+2495
+
 JULIETTE BINOCHE
 
 então assisto um filme
@@ -1837,86 +1068,8 @@ e não vejo
 a atriz
 na manhã do dia seguinte
 ---
-não estou tão envolvido 
-você sabe que não sou um grande tolo 
-não por você você não me tem na sua mão
-eu sei que isso não vai se prolongar 
-But I’m in so deep
-You know I’m such a fool for you 
-You got me wrapped around your finger
-Do you have to let it linger? 
-Do you have to,
-do you have to,
-do you have to let it linger
----
-STATIC BLOOM
+2494
 
-Todas as pessoas por quem você 
-já sentiu atração amorosa
-na vida estão chegando.
-Uma a uma.
-Em ordem de intensidade. 
-Os seus maiores amores aparecem primeiro.
-Mas não é um funeral
-— é uma festa.
-A sua grande festa. 
-Teoricamente, você dançaria com a primeira.
-Mas, por algum motivo 
-que ninguém sabe explicar, 
-você dançou apenas com a última.
----
-pobre Gatsby
----
-a melhor terapia é a terapia
----
-talvez você se encontre aqui Isabela
----
-Senhor, o seu café esfriou. 
-Gostaria de se retirar?
----
-adultos ficam tão maduros 
-tão maduros 
-que acabam ficando podres
----
-vocês têm dado meus primeiros passos
----
-transforme traumas em alívio 
-transforme traumas em alívio 
-transforme traumas em alívio
----
-O TITANIC
-
-para saber o rumo 
-que vou tomar 
-preciso saber
-do rumo 
-de outras pessoas
----
-lá no interior 
-bem lá no interior 
-minha vida sempre foi 
-motivo de piada
----
-O SHOW DE
-
-nunca fui amor
-de ninguém só
-entretenimento
----
-quando 
-me vejo 
-apenas
-lembranças 
-me sinto 
-bonito
----
-homem único animal 
-que aprecia ver 
-outra alma 
-incen 
-dia
-ndo
----
 eu juros a tristeza
 e a melancolia moram
 nos meus olhos mas
@@ -1925,50 +1078,8 @@ moraram
 e hoje cobro bem caro 
 o aluguel
 ---
-às vezes lembram quem nunca fui
-e me esqueço
----
-sou fantasma inútil onde pousam anjos
----
-muitos torcem pelo seu fracasso 
-outros lutam por ele
----
-não é vergonha pedir ajuda 
-não é vergonha implorar ajuda 
-não é vergonha exigir ajuda
----
-você nunca esteve preocupada 
-em saber como eu estava
-você só esteve curiosa 
-em saber se eu 
-ainda
-estava vivo
----
-não está pior porque está sendo filmado 
-está pior – e – está sendo filmado
----
-dinheiro compra euforia
-que compra ganância que
-compra guerras que vende 
-doenças que com o tempo
-tenta comprar o tempo
----
-lutam melhor 
-os que tiveram 
-os piores 
-pesadelos
----
-não me mato 
-me floresto
----
-guitarras do Kurt Cobain ainda estão afinadas
----
-todas as vezes em que penso desistir
-repito a frase
-você não precisa decidir isso agora 
-você não precisa decidir isso agora 
-você não precisa decidir isso agora
----
+2493
+
 a baleia disse
 para nunca subesti 
 mar alguém que 
@@ -1977,15 +1088,8 @@ funda depressão
 
 Continua…
 ---
-pessoas costumam ficar
-o tempo todo lembrando 
-que falhei
-daí me sinto
-na obrigação 
-de lembra-las 
-que também falharam
-e detesto ter que fazer isso
----
+2492
+
 1994
 
 talvez apenas 
@@ -1995,88 +1099,8 @@ que Friends
 
 e olhe lá
 ---
-qual o maior sentimento da humanidade
-na sua opinião
+2491
 
-a fé 
-ainda
----
-uma das coisas 
-que mais odeio
-na vida 
-é me sentir 
-superior 
-a alguém
----
-escrevendo poesia com a
-asa direita quebrada
----
-as pessoas 
-interpretam 
-da pior forma 
-e da melhor forma 
-e ainda assim 
-erram
----
-CHANDLER MURIEL BING
-
-The one with the Friends’ soul Matty,
-
-I can’t write this script. 
-Sorry.
-
-(em memória de Matthew Perry)
----
-estou com depressão 
-me anima depressa
----
-bem o que posso dizer 
-acredite 
-poucas vezes
-você vai ouvir 
-de um artista 
-talvez por sorte 
-suicídio não vai ser 
-a causa da minha morte
----
-não exigem dos seus Deuses
-o que exigem dos ateus
----
-pintam mês de amarelo 
-na hora de salvar vida 
-de alguém ao lado 
-
-amarelam
----
-alguém favor faça cócegas nos meus poemas
-mais tristes
----
-um artista 
-que consegue 
-criar
-e trabalhar 
-com o seu 
-próprio **ego 
-nunca vai
-se sentir
-*****pregado
----
-por que existem tantas pedras 
-nos trilhos de trans?
----
-tive um quadro 
-que nunca tratei 
-plantas 
-que nunca plantei
----
-então Vinícius eu vou pedir 
-que você faça um novo exame
-
-qual doutor uma autópsia
----
-não riam do meu humor 
-mas riam dos meus sonhos
----
 PIPOCA
 
 imenso taBUH! 
@@ -2097,200 +1121,6 @@ pedida
 de monóxido de carbono 
 
 (em memória de Yoñlu)
----
-a morte foi uma surpresa 
-com alarmes tocando
-No Surprises
----
-artista que só
-tentava chamar 
-atenção de todo 
-aquele mundo
-que sempre 
-fazia questão
-de mata-lo
----
-é real mas não significa que você precisa sentir
----
-você já reparou que as pessoas 
-não estão falando muito sobre?
-
-não
-
-é porque você não reparou
----
-toda a vida dele era escrita
-e apagaram
----
-amigo imaginário da infância voltou armado
----
-PÂNICO
-
-sentir coração 
-uma Ferrari 
-descontrolada 
-batendo em ar…es
----
-fotografias tirando pessoas
----
-emoções públicas e emoções privadas
----
-querida seja a melhor paciente
-com o tempo você será apenas 
-cliente
----
-seu animal político apenas um animal
----
-doutor eu tenho quanto tempo de morte
----
-no trabalho o chefe chama a atenção
-“se liga nisso você anda sempre desligada”
----
-meus livros serão 
-compartilhados 
-pelo Sol
-daqui a bilhões de anos 
-a evolução de uma estrela 
-com a sua morte
----
-às vezes um pai au 
-sente é sempre pres 
-ente
----
-você me pregou
-de surpresa 
-agora tenho que 
-sofrer mais rápido
----
-sempre me escondi bem lá
-no fundo esperando 
-me encontrar
----
-mas calma você não precisa
-se apavorar pois até
-o momento não detectaram
-nenhuma estrela 
-com condições de se tornar 
-uma supernova
-nas redondezas da Terra
-a mais próxima que tivemos 
-explodiu-se
-em 5 de abril de 1994
----
-você está estritamente proibida
-de desenvolver uma depressão 
-neste ambiente de trabalho
----
-chuva para secar as lágrimas
----
-um filme dramático 
-que virou comédia 
-por ser um péssimo filme
-é assim que eu vejo a vida
----
-exibiam seus 
-desprezos 
-inúmeras fotos
-de jovens mulheres 
-velhas esposas 
-cotidianamente 
-na guerra 
-fotografias 
-ao fundo tanques
-de lavar roupas 
-limpas
----
-estou em ruínas 
-há mais de trinta anos 
-alma mutilada 
-mente não restaurada 
-conservado em ruínas
-para que ninguém
-possa culpar-me 
-de não ter
-sofrido o bastante
----
-esperando-a se confessar mais fraca
----
-torturar o Diabo seria pecado? 
----
-maior facilidade em engolir comprimidos maiores
----
-Kundera disse que poder viver 
-apenas uma vida é como não
-viver nunca 
-Vinícius disse que morrer
-apenas uma vez na vida
-é como não morrer nunca
----
-escrevo compulsiva 
-mente para me sentir 
-menos consciente
----
-se está melhor talvez já nem percebe
----
-sentimos tão pouco e pessoas nos dão menos
----
-sua sensibilidade
-olha para sua intensidade 
-que toca sua depressão 
-que beija sua ansiedade 
-que penetra na sua arte
----
-por que você não consegue criar outras personagens
-
-porque todas acabariam sendo eu mesma
----
-eu mesmo já morri 
-aos trinta 
-e virei um urubu
-sobrevoando 
-atrás de 
-poesias mortas 
-que nunca foram
-veladas
----
-longe de serem 
-mais sensatos 
-depois de mortos 
-em cima d’eles 
-imitações de palácios 
-ostentando 
-supostas 
-importâncias
----
-depressão versa sobre 
-não conseguir ouvir
-seus próprios silêncios
----
-súbitas ondas de ódio
-o mar é tão gentil...
----
-atualmente o mais triste 
-plantado naquele cemitério
----
-amar você foi ir até o hospital 
-por conta de uma espinha
-e ser internado
----
-queria tanto não ter o que dizer
-naquele instante
----
-nos extremismos 
-luz intensa que cega
-ou escuridão total
----
-era como ter sua mãe
-no ventre e ouvi-la 
-implorar
-para que ele
-não abandonasse 
-sua alma
-era como ter sua mãe
-no ventre e ouvi-la 
-gargalhar 
-para que sua alma
-não o abandonasse
 ---
 2490
 
