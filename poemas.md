@@ -2292,6 +2292,8 @@ gargalhar
 para que sua alma
 não o abandonasse
 ---
+2490
+
 teve oito pretendentes
 
 o primeiro era mais bonito
@@ -2310,394 +2312,100 @@ dica
 todos se ajoelhavam da mesma maneira
 mas só um tinha... belas bolhas...
 ---
-fizeram um filho sem dizer uma só palavra
----
-pus-me na 
-sua sombra 
-e o sol
-desaparecera 
-ponha-se
-no meu lugar
----
-amor NO SIGNAL
----
-eu vou do inferno ao seu
----
-não tinha 
-a menor ideia
-de qual olhar
-e o que 
-aquele olhar
-lhe ameaçava 
-mas instintivamente 
-cismava
-em tentar 
-se defender
----
-ainda que sus
-surrando 
-era ordem
----
-arremessaram uma corda 
-para tirar 
-aquele artista 
-do fundo do poço 
-mas ele usara
-da forma mais triste
----
-era dia claro a razão ven 
-céu
----
-eu sinto muito a sua fala
----
-parei de ficar
-jogando as coisas 
-por aí 
-porque sou 
-muito frágil
----
-dores passando pano 
-para outras dores
----
-Vinícius Knecht anuncia que
-vai se aposentar como poeta 
-porque Xavier Dolan
-vai se aposentar como cineasta
+2489
 
-POR FALTA DE APOIO
----
-me questiono 
-se minhas poesias
-são ruins 
-e eu sei que não são
----
-eu não quero 
-que a minha filha 
-chegue perto
-da sua poesia 
-você entendeu
----
-sangro antes mesmo
-de tocar nos cacos de vidro
----
-vou engolir suas cinzas 
----
-desamor pelo destino 
-como é simples
+desamor 
+pelo 
+destino 
+como é 
+simples
 e ameno 
 se tornar 
-o que não se é
+o que 
+não 
+se é
 ---
-ponto de fuga artística 
-voltar-se para dentro
----
-não fornecia esclarecimento a respeito
-impressões sucintas mesmo na comunidade 
-literária especialmente amorosa
-nunca chamou atenção
----
-só tentando não tropeçar 
-enquanto não escrevo
----
-faço justiça com minhas próprias imaginações
----
-espelho da minha vida 
-interior 
-passivo de herói 
-apenas ter
-mero efeito 
-de construção artística
-como forma de
+2488
 
-IMPERFEIÇÕES
----
 escritos em excesso 
 sinto-me lutando
 pela inexistência
 ---
-você prendeu minha solidão 
-que me era tão violenta
----
-quando não dói lembro o tanto que doía
----
-do parto parti para
-a parte que parte
----
-tenho tanto o que temo que tenho
----
-se tudo isso 
-passar 
-saibam que 
-me precipitei
+2487
 
-O PRECIPÍCIO
----
-sinto que só apanhava de
-cinto
----
-em cactos de vidro
-plantão 24h 
-de poesia
----
 ela estava ali para
 proteger-me de si
 ---
+2486
+
 eu pensando nela 
 ela pensando nela
 ---
-crise existencial ultrapassa
-crise econômica
----
+2485
+
 amor minha palavra pré 
 ferida
 ---
+2484
+
 teu futuro te condena
 ---
+2483
+
 poeta apanha da vida
 e poesia é aplaudida
 ---
-chega uma hora que morrer enjoa
----
-SENSÍVEL
+2482
 
-não saberia sequer 
-entrar
-num ringue
----
-eis que em 
-todos esses anos 
-o monstro morava
-em cima da cama
----
-olhar para o céu 
-amortece medo da 
-morte
----
-poesia deveria ser tiro
-no peito de quem usa colete
-à prova de balas
----
-é como se o olho mágico 
-fosse de fora para dentro
----
-morte é escrever poesia à lápide
----
-sentia que era o melhor paciente 
-que os meus problemas 
-através da forma 
-que eu contava 
-eram os mais interessantes
----
-do fundo do poço 
-passou a ver
-as pessoas 
-lá de cima
----
-somos uma obra de morte
----
-finada poesia
-lhe entrego um poeta
----
-às vezes sinto que a vida
-é como se fosse um ídolo 
-chutando seu próprio fã
----
-artista trabalha na vida
-para quem se atrapalha na vida
----
 escrevo na condição de sobrevivente
 ---
-no final 
-da sua
-última carta 
-dizia que
-nem a arte
-lhe fazia mais 
-sentido
----
-exausto de folhas em branco
----
-depressão e criatividade se separam 
-após doze anos de relacionamento
----
-artista sofre pra cachorro 
-rato
-leão 
-formiga 
-passarinho…
----
-vesti minha melhor roupa 
-para a festa
-a dor pensou 
-que foi para ela
----
-sobe o preço da poesia 
----
+2481
+
 condeno ataques de pânico
 ---
+2480
+
 PÂNICO
 
-meu medo dirigiu-se às vias
+meu medo dirigiu-se 
+às vias
 respiratórias
 ---
-PÂNICO
+2479
 
-tanto gatilho que
-me sinto um 
-arsenal
----
-sorteei minha alma
-os vencedores 
-não quiseram 
-receber o prêmio
----
-me enfrento todos os dias
-costumo perder
----
-da noite 
-para o dia 
-percebi 
-que meus objetivos 
-não eram
-meus sonhos
----
-depender 
-de dom
-e vocação 
-é algo
-extremamente 
-perigoso
----
-uma voz gritando 
-na minha cabeça
-você não vai conseguir
-eu vou deixá-la rouca
----
 venci a depressão 
-fiquei em terceiro lugar
+fiquei em 
+terceiro lugar
 ---
-amei o jeito que você me abandonou
----
-me tiro na cabeça
----
-elogiando minha poesia 
-estava indiretamente 
-elogiando minha dor
----
-anjo na guitarra 
-você chegou no solo 
-antes que eu
----
-conheça os novos nem-nem
-nem reconhecimento 
-nem respeito
----
-você não tem vergonha
-de chegar aqui 
-deprimido desse jeito
----
-por deus nunca iniciar 
-seu nome 
-com letra maiúscula
----
+2478
+
 DEPRESSÃO
 
-com o astigmatismo 
+com o 
+astigmatismo 
 pude ver
 três luas 
 olha só
 ---
+2477
+
 poeta acamado pelo público
 ---
-num mundo distópico
-eu faço sucesso
----
+2476
+
 estou sofrendo tanto 
 
 mas está bem escrito?
 ---
-pode ficar lá fora um pouquinho? 
-não quero que você me veja 
-tomando medicamentos
----
-a diferença era que 
-ele só a visitava 
-no sol
-e ela visitava ele 
-no atemporal
----
-adultos brincam de esconde- 
-esconde para chorar
-em banheiros
----
-FLASHBACK ANTES DA MORTE
+2475
 
-melhores momentos 
-ou maiores arrependimentos?
----
-só precisava me esconder mas só tinha meu corpo
----
-dancei com depressão 
-me senti herói
-de guerra
-
-UNDER PRESSURE
----
-Querida,
-Você está esperando o amor 
-E não a morte.
-
-Ass: V.K.
----
-pode ler minha mente 
-mas não uso vírgulas
----
-acabei de receber a notícia 
-de que ele se matou estou 
-em choque
-
-mas ele se vitimizava 
-o tempo todo né amiga
----
-olha para ele ele está visivelmente deprimido
-
-hum não acho que esteja tão visível assim
----
-vendendo minha arte 
-tanto quanto 
-dizem que Van Gogh 
-vendia a sua
----
-quem sou eu 
-para falar assim
-comigo desse jeito
----
-não basta ser pesadelo 
-tenho que estar 
-num labirinto
----
-para alguns solitários 
-noites serão 
-mais lembradas 
-que companhias
----
-você vive com sono Vinícius?
-
-na verdade eu vivo com ansiedade
-e falta de ar você respira fundo 
-quando boceja e joga mais oxigênio 
-nos pulmões ou seja
-eu bocejo para respirar melhor 
-entendeu agora
----
-frestas da janela 
-festas da solidão
----
 RADIOHEAD EM RIMA
 
 Let Down 
 no meu funeral
 ---
+2474
+
 DOIS DIAS ANTES DA PRÓXIMA CONSULTA
 
 “Droga Agora Começou A Tocar Hallelujah 
@@ -2706,189 +2414,129 @@ Versão De Jeff Buckley”
 “ Droga Agora Começou A Tocar Hurt
 Versão De Johnny Cash”
 ---
+2473
+
 DOIS DIAS ANTES DA PRÓXIMA CONSULTA
 
 Já É Quarta-Feira 
 E Não Escrevi Nada 
 Que Preste Na Vida
 ---
-então eu vim tentar
+2472
+
+então 
+eu vim 
+tentar
 a terapia 
-para ver se ela
+para ver 
+se ela
 me supera
 ---
-se a vista da janela 
-for assustadora 
-faça de conta que 
-é um quadro
----
-medo de descobrir 
+2471
+
+medo de 
+descobrir 
 os segredos
 da vida 
 e a vida 
-me punir por isso
+me punir 
+por isso
 ---
-um dia um passarinho me contou 
-que voar nunca foi 
-um sonho dele
----
-um dia o mar me disse que
-no fundo ser alguém 
-é saber mergulhar
----
-a poesia não me paga
-mas também não me apaga
----
-depressão e ansiedade juntas
-é esconder-se de um ladrão 
-que acabou de te roubar 
-no mesmo lugar 
-em que o ladrão
-está se escondendo
----
+2470
+
 quanto às suas dores 
 quem vai falar delas 
 senão você?
 ---
-dos piores inimigos 
-dificilmente ficaremos sabendo
----
-comuniquem minha família 
-meus amigos e demais conhecidos 
-que ainda estou para nascer
----
-papai por que às vezes os amigos somem?
-perguntei a mim 
-fingindo ter um filho
----
-DESCARTO O SEGUINTE POEMA
+2469
 
-penso que logo logo vou existir
+papai por que às vezes 
+os amigos somem?
+perguntei a mim 
+fingindo ter 
+um filho
 ---
-penso logo desisto 
----
-ao vivo
-nem sempre 
-é mais colorido
----
-era poeta e ninguém fazia muita questão
----
-ele perdoa 
-pessoas 
-sem que elas 
-tenham pedido 
-desculpa
----
+2468
+
 comecei a escrever 
 porque queria ajudar
 a pessoa mais triste 
 e solitária 
 que eu conhecia 
 na minha vida 
+
 eu
 ---
-lembro muito bem do dia
-em que a melancolia 
-criticou o amor
-“ele é tão melancólico”
----
-já imaginou morrer
-no dia mais feliz 
-da sua vida
----
-futuro que eu quero esquecer
----
+2467
+
 estou no fundo do posso
 ---
-ele tenta atropelar passarinhos 
-porque tem certeza de que nunca
-vai alcança-los
+2466
+
+não adianta nada 
+estar preso no 
+paraíso
 ---
-não adianta nada estar preso no paraíso
----
+2465
+
 olhei para o céu 
 para sofrer 
 caiu a pena de um anjo
+
 acho que a gente sofre parecido
 ---
+2464
+
 sempre preparado 
 para o pior 
 chega o pior 
 e sempre
 me surpreende
 ---
-CRIANÇAS
+2463
 
-infância muito mais feliz 
-quando era muinto
----
-sentimos mais que os outros 
-ou os outros 
-não querem falar
-sobre isso?
----
 homens também sentem que não sentem
 ---
+2462
+
 as piores despedidas 
 são sempre aquelas 
 que acontecem
 ---
-escrever para cicatrizar
+2461
+
+não deixe que 
+o seu dia 
+estrague
+a sua vida 
+não deixe que 
+a sua vida 
+estrague 
+o seu dia
 ---
-não deixe que o seu dia estrague
-a sua vida não deixe que a sua vida 
-estrague o seu dia
----
-me entrego e sempre me pego de volta
----
-parecia que ele 
-estava sempre
-se despedindo 
-do mundo
-e isso
-o encantava
----
-Vinícius esgotado em menos de 
-trinta e três anos 
-considera-se
-sucesso de bilheteria
----
+2460
+
 machuca-se fácil
 aquele que veste 
 muitas armaduras
 ---
+2459
+
 escrevo por aparelhos 
 ---
+2458
+
 a dor perde a criatividade com arte
 ---
-SAUDADE
+2457
 
-quando tudo final 
-mente em caixa
----
-AUTOAJUDA
-
-o mais importante não é vencer a depressão
-o mais importante é competir
----
-RD – Recursos Desumanos 
----
-tu tropeças teatrais
----
-DSM-5 edição de bolso
----
-fantasmas assustam 
-apenas quando 
-você também
-for um deles
----
 DEPRESSÃO
 
 mais goteiras dentro
 que chuva fora
 ---
-Deus sabe o que Diabos tinha na cabeça
----
+2456
+
 CORTA PARA:
 INTERIOR. APARTAMENTO DE LINDA – NOITE
 
@@ -2899,144 +2547,8 @@ VINÍCIUS. Mas aconteceu alguma coisa?
 Sério. Não precisava disso.
 LINDA. É só uma lembrancinha...
 ---
-acadêmico estudioso dedicado 
-visitou dezenas 
-de clínicas psiquiátricas 
-todas elas paciente
----
-morrendo fazendo o que mais gosto viver
----
-cada um com 
-a sua utopia 
-a minha é sobreviver
----
-como a natureza ousa invadir os humanos
----
-ALHO E ÓLEO SOBRE TELA
+2455
 
-Nome: Pedra
-Data: No meu caminho
----
-A PEDRA
-
-sempre lembro de uma amável e magnífica frase de Goethe
-que me inspira nos dias mais bem-aventurados 
-e com tamanha emoção reflito
-“muitas vezes gostaria de rasgar o peito e golpear o crânio
-por sermos tão poucos uns para os outros”
-
-acho que o caminho é por aí
----
-oportunidade de ouro
-para você ficar mais pobre
----
-você tem dom vocação muito talento
-
-você está sendo injusta com meu sofrimento
----
-sem se despedir
-de ninguém porque
-há mais de vinte anos 
-que vive ali 
-sente-se sozinho
----
-espécie de poesia nativa
-que reconstitua o sentimento 
-que foi destruído
----
-DEPRESSÃO
-
-por Ana Claudia Quintana Arantes Henry Charles Bukowski
-e Vinícius Knecht
-
-é claro que você já ouviu que
-a depressão é o câncer da alma
-
-2.
-eu gostaria de escrever para o pássaro azul 
-que está se sentindo
-o pássaro mais solitário do mundo 
-neste momento 
-eu diria fique aí eu vou lhe mostrar
-o mundo olhe este mundo 
-que não merece ver você
-
-1.
-Ana Claudia encontrou a melhor explicação de depressão 
-imagine então uma pessoa curada do câncer 
-que se sente completamente infeliz
-estando viva
-
-3.
-crises periódicas do fígado 
-pulei do décimo quarto salário 
-é claro que você já ouviu 
-que a depressão é o câncer da alma 
-e se eu rastejasse direto para as suas pernas... 
-veria então… o que eu vejo agora?
----
-preciso construir 
-um cemitério 
-para passarinhos 
-que não seja
-no chão
-
-eu não entendo isso não faz
-o menor sentido Vinícius
-
-você não entende mamãe
-eu preciso encontrar 
-Matilde Campilho
-é a única maneira 
-que eu encontrei a
-
-POESIA
----
-as janelas 
-cumprirão apenas 
-um papel 
-decorativo 
-na casa
-
-(para Van Gogh)
----
-a medida 
-de um QI 
-raramente
-se assemelha 
-ao diâmetro 
-da alma
----
-deixando a Terra pintada 
-de sangue 
-derramou o azul
----
-abandonou a página abandonou todo o passado
----
-sentava na frente 
-para me sentir
-o piloto 
-hoje sento na frente 
-para ser
-o primeiro 
-a ir embora
----
-nos chamam de 
-loucos 
-mas o que esses 
-normais 
-estão fazendo 
-que preste
----
-PAIS E FILHOS
-
-você não pensou em nós 
-antes de ter depressão?
----
-minha mãe me penteou minha poesia me enterrou
----
-azar na vida sorte na arte
----
 tenho que anunciar
 a gravidez 
 da velha poesia 
@@ -3054,192 +2566,38 @@ da solidão
 e todas as solidões 
 sem sentido 
 ---
-minha infância teve a voz dos meus olhos
----
-a morte acordou comigo 
-e fomos passear
-no último passeio 
-eu já desconfiava
-e isso 
-ninguém ficou sabendo
----
-sinto muito mas já escreveram isso 
+2454
 
-do mesmo jeito que eu senti?
+minha infância teve 
+a voz dos meus olhos
 ---
-por que você ainda escreve poesia?
+2453
 
-acredito que é minha maneira diária 
-de me despedir
-eternamente
----
-os pobres morrem de fome
-em massas
----
-será que 
-vou assistir 
-o seu show 
-ou será que 
-finalmente 
-eu vou aprender
-a não dançar 
-no final
----
-SEIS
-
-decidi que meu sangue 
-de inocência
-aos sorrisos dos olhos
-virão no dia 
-do meu aniversário 
-estou velho demais
-para impedir
-anseio pelo descanso 
-e que não chegue
-no meio da noite 
-então lamente 
-apenas duas vezes 
-no mesmo dia
----
-seria clichê demais terminar mal
-no final
----
-morte es cura
----
-a dor está no ar
----
-a minha sorte 
-que não alcanço 
-o teto
-e não dou corda 
-para as cadeiras
----
-o fim de um
-novo começo
-o começo de 
-um novo fim
----
-se eu escrever não chores não 
-é só poesia
----
-tenho cicatrizes imaginárias
----
-O QUADRO
-
-como você decora 
-tudo que você sente
----
-mamãe um dia entenderá 
-que eu poderia 
-ter partido
-muito antes
----
-estou guardado nas nuvens 
-do seu drive
----
-de vez em quando sinto 
-a sua falta por ex
-nas novas despedidas 
-atuais rejeições 
-humilhações
-você costumava estar lá
----
-confesse você chorou com outro ontem
----
-você me preparou um belo café 
-mas não me preparou para 
-terminar
----
-é hora de bater o ponto
-.
-..
-é hora de ir para casa 
-é hora de bater as asas
-o céu espera a coragem.. .
----
-este poeta não me passa 
-uma energia muito boa
-
-é muita gente deve ter 
-morrido ali dentro
----
-no meu aniversário 
-ela deu um passado
-de presente
----
 um ridículo
 com repertório ;)
 ---
-fizemos tantos planos
-e agora penso em um plano 
-para estar em outro plano
----
+2452
+
 saiu da sala do psicólogo 
 a mãe que conseguiu ouvir 
 tudo lá do lado de fora e 
 não fazia ideia de como 
 era lá dentro disse
+
 “você não deveria ter dito aquilo”
 ---
+2451
+
 o que vocês ainda esperam de mim
 eu já não escrevi o insuficiente?
 ---
-livro conta a história 
-de uma criança deficiente 
-visual que descobre
-o superpoder
-de poder enxergar
----
-O Poema Continua...
+2450
 
-em cada acidente cotidiano
-um artista emergê
----
 A morte te convida para ficar.
 Você não sabe o que a resposta significa.
 ---
-pobre Gatsby
----
-e foi então que Deus inventou 
-que Deus existe
----
-hoje em dia pessoas já discordam das perguntas
----
-gostaria humildemente 
-me retratar aqui mas
-não sou nenhum 
-pintor
----
-você é o meu chuchu 
+2449
 
-e você é o meu pepino
----
-Menos informações em breve.
----
-SOBRE O ATUAL ESTADO DA POÉTICA
-
-você gosta de uma prosa? 
-
-Prozac?
----
-ouço os vizinhos cochicharem tanto 
-porque na verdade estão gritando
----
-a cada dez minutos uma mulher é entediada
----
-únicos artistas locais 
-reconhecidos nas pequenas 
-cidades do interior 
-são os turistas
----
-começou a circular nas redes mentes
-quadradas
----
-a única inteligência 
-que um escritor pode 
-subestimar é
-a sua
----
 comida ou sexo? 
 
 sexo
@@ -3248,795 +2606,78 @@ sexo ou poesia?
 
 bah
 ---
-você ainda acredita em Deus? 
+2448
 
-(o padre responde que sim) 
+escreveria esta poesia 
+Rimbaud escreveu antes
+---
+2447
 
-vai passar
----
-ENTREVISTA DE EMPREGO
-
-mas verdadeira até
-uma cobra-coral é
----
-um poeta pode ser 
-extremamente perigoso
-nas suas últimas
-semanas
----
-quando estou escrevendo demoro mais para gozar
----
-superpoder já tenho invisibilidade 
-só não sou nenhum super-herói
----
-pretensioso seria
-seguir carreira solo 
-com a mesma banda
----
-BRAZIL
-
-criança pedindo dinheiro
-em semáforo no Acre
-gera revolta
-nas redes sociais
-
-“este vagabundo deveria estar trabalhando”
----
-o que choca menos
-a sociedade que
-um galinha?
----
-você ainda fuma? 
-
-não
-só quando eu tento parar
----
-risível se opor
-ao humor chorável 
-se rir da delinquência
----
-eu sou escritor
-
-hum e você ganha dinheiro com isso?
-
-sim inclusive alcancei
-o meu primeiro milhão 
-com a poesia
----
-com estes passinhos o tempo não praça
----
-CAPITALISMO
-
-até o meu último fio de cabelo
-vou comprar o shampoo mais caro
-da farmácia
----
-CAPITALISMO
-
-pode ir passando tudo rápido
-
-pode me matar 
-mas por favor 
-eu imploro
-não leve meu iPhone
----
-Mario pelo menos assinava
-as provas de matemática 
-eu errava ou esquecia
----
-SMARTPHONES
-
-amei a companhia de vocês 
-a meia companhia de vocês
----
-ah vai ler um Mário 
-
-(destratou)
-
-Mario não tem acento
-
-(corrigiu)
----
-EUA
-
-suspeito por andar embriagado
-em sua bicicleta é preso nos EUA 
-nesta quarta-feira polícia alega
-que o sujeito pego em flagrante 
-era preto
----
-JIM & PAM
-
-entre quatro paredes 
-quebrando a quarta parede
----
-ainda não sei o estado
-que vou estar depois 
-de morto
----
-estou no controle mas ele está 
-desconectado do videogame 
-sem eu saber
-é assim que eu vejo a vida
----
-desistiu dos seus sonhos?
-
-acho que eu só parei de ser 
-tão ambiciosa sabe
----
-artistas locais levam
-os outros artistas 
-locais para o pessoal
----
-escreveria esta poesia Rimbaud escreveu antes
----
-amiga você terminou com o Vinícius? 
+amiga você terminou 
+com o Vinícius? 
 você não o amava?
 
-eu deixei para a próxima
+eu deixei para 
+a próxima
 ---
-um dia uma nave pousou
-na minha frente e de lá 
-saiu um ser de outro mundo 
-era uma criatura verde 
-e de cara perguntei 
-quem eu sou e de onde eu vim
----
-filmaços de cigarros
----
-inimigo não declarado ainda
-pode ser seu amigo declare-se
----
-AGORA QUE EU PASSARINHO…
+2446
 
-acho que agora que ele morreu 
-já podemos ler o que ele escreveu
-vocês não acham
+você consegue deixar 
+o sexo mais cristão?
 ---
-eles querem democracia igualdade social
-direitos e inclusão para minorias práticas 
-de liberdades direito à vida à segurança à 
-propriedade todos iguais perante a lei você 
-acredita nisso alguns até falam em equidade 
-representantes que combatem a corrupção 
-contribuem com o acesso à educação desonram 
-nossas filhas ensinam elas a ler e escrever 
-direitos humanos ausência de classes sociais 
-uma constituição eles são doentes doentes
-ou pior do que isso
+2445
 
-ELES SÃO COMUNISTAS
----
-rir pra não RIP
----
-leitor na obrigação de despertar 
-insiste ler dormindo
----
-então qual o tamanho 
-do seu documento 
-no World
----
-olhando minhas fot. de quando 
-eu era criança engraçado 
-parece que eu era mais velho
----
-Mario disse que um cachorro serve 
-para a gente falar sozinho
-não seria mais fácil ser louco
-sem precisar de um cachorro
----
-dá para sentir daqui
-seu bafo de ligação 
-para ex
----
-o humor paciente
-não funciona muito 
-bem na terapia
----
-você não tem medo que a vida acabe do nada?
-
-eu tenho medo de aviso
----
-da academia saí de fininho
----
-vou contar meus 
-sonhos em forma
-de piada para que
-você não ache tão 
-engraçado
----
-noticiário esportivo in
-forma de circo
----
-ódiododiadia
----
-privilégio cósmico de não existir neste
-meio artístico
----
-músico escrevendo para
-si maior
----
-pão e wi-fi
----
-bebê não consegue dormir 
-porque mãe grita carneirinhos
----
-gente antiga olhando apenas 
-para o seu próprio bingo
----
-DEU A LOUCA NOS FILÓSOFOS (2025)
-Comédia/Romance/Fantasia/Drama/Mistério
-
-Tenso, logo excito. Verse-te a ti mesmo.
-A tristeza depende de nós mesmos.
-A vida é a flor para a qual o amor é o meu. 
-O que sabemos é um sêmen; o que ignoramos é um oceano.
-A vida não examinada não vale um diagnóstico.
-Não existe evento favorável para quem não sabe onde sai.
-A única coisa que sei é que nadar de costas sei. 
-O que não me mata, me torna mais rio.
-O homem é condenado a ser live.
----
-politicamente correto não leva humor a sério
----
-mais receio que humor
----
-na aula de hoje trataremos 
-do discernimento 
-necessário para distinguir
-o politicamente incorreto do 
-humor apropriado por movimentos 
-de extrema-direita
----
-cheguei em um velório
-me perguntaram se eu estava
-na lista de convidados
----
-não é desemprego é só um isolamentinho domiciliar
----
-filme aborda história de artista gaúcho poeta que
-era admirado na rua onde morava pelo fato de não 
-trabalhar e fazer muito barulho
----
-TUDO GOSTOSO – RECEITA BELO SIMPLES E FOFO
-
-Ingredientes (1 poção)
-
-1 e como isso te faz sentir? vamos explorar isso melhor 
-2 me fale mais sobre isso o que você acha que 
-isso significa para você? 
-isso faz sentido para você?
-1 perceba como seu corpo reage a isso o que você pode 
-aprender com essa experiência? você já passou por algo parecido antes?
-4 o que você diria para um amigo na mesma situação?
-você está se cobrando demais? a mudança começa
-com pequenos passos o que está sob seu controle nessa situação? 
-1 seu pensamento está baseado em fatos ou suposições?
-3 o passado não pode ser mudado mas podemos ressignificá-lo 
-autocuidado não é egoísmo
-
-Modo de despreparo 33 anos
----
-Vinícius você já declarou que busca o reconhecimento 
-e que sempre se sentiu invisível no meio artístico 
-mas o que você faz para mudar isso?
-
-bem recentemente eu aumentei
-o tamanho da minha letra
----
-todas as vozes que eu ouço 
-na minha cabeça garantem
-eu não sou louco
----
-já tenho vergonha de ler
-o que estou escrevendo 
-neste exato poema
----
-parece estar tudo bem até eu 
-desconfiar que está apenas 
-parecendo
----
-viria ao meu funeral se eu
-a convidasse pessoalmente?
----
-ele não é bom ator ele só é desinibido
----
-se Deus existisse hoje
-sem terapia Ele seria 
-Ateu
----
-paga mais caro pela pirataria 
-do que pagaria ao próprio artista
----
-a alma saiu para comprar cigarro
----
-ursinho Tédio
----
-as noites na abalada
----
-não sou a pessoa
-mais solitária do 
-mundo graças aos 
-ácaros que vivem
-dentro do meu 
-travesseiro
----
-80% dos desastres poéticos
-ocorrem por falas humanas
----
-fazem de tudo para não fazer nada
----
-psicanalista cobra por explicações
----
-pinturas nunca serão ex tintas
----
-conheci o amor da minha vida no
-iPhone 12
----
-eu sou o Banksy
----
-o psicanalista vai lhe ajudar 
-a contar todos os motivos que 
-te fazem sofrer sem motivos 
-por 200 contos
----
-criatividade não é prática 
-criatividade não é prática 
-criatividade não é prática
-
-o que você está fazendo? 
-
-aperfeiçoando minha escrita 
-
-repetindo a mesma frase?
----
-estou em todas as 
-bancas da cidade 
-bancando
-
-O IDIOTA
----
-você acredita em Zeus?
----
-se você cruzasse hoje 
-com a sua esposa 
-na rua
-você a cumprimentaria?
----
-a vaca estava o 
-tempo todo re 
-moendo o
-past
----
-andei pensando melhor em tudo
-o que você me disse e acho que 
-realmente
-eu tenho toda a razão
----
-calado você é um poeta 
-
-sim
----
-preferi outro caminho 
-peguei um desvio 
-de conduta
----
-conservadorismos modernos con tradições
----
-ao persistirem alguns médicos 
-as consultas poderão ser 
-sintomáticas
----
-está na Caras que o hype não vale a pena
----
-saiba como enlouquecer um homem entre
-quatro paredes exiba Interestelar
-do Christopher Nolan para ele
----
-procriação água benta & gospel
----
-o sucesso estava tão bom
-que não vi o tenho passar
----
-como não deixar para depois
-se o capitalismo não deixa
-fazer agora
----
-problemas com as drogas? 
-não se preocupe
-nós podemos lhe ajudar 
-com um preço
-muito mais em conta
----
-o pó criticando a fumaça
----
-por que pisar em uma peça de ego dói tanto
----
-a natureza humana 
-promove condições 
-de trabalho 
-visando sempre
-
-O VERDE
----
-este poeminho se chama
-LEONARDO DICAPRIO
-
-o sim você já tem
----
-Charles Bukowski elitismo
-literário com alto teor 
-alcoólico
----
-você consegue deixar o sexo mais cristão?
----
-meu cachorro pensa que é cachorro
----
-VOCÊ SABIA?
-
-poeta nunca erra 
-ou é licença
-poética ou é
-neologismo
----
-papai é domingo calvo
----
-prova de vida é uma prova
-com consulta
----
-esta é a minha letra? melhor que
-Champagne Supernova do Oasis
----
-a estrela mais próxima da Terra é o Sol 
-mentira
-é o David Bowie
----
-inventar a roda aprender
-a manipular o fogo desbravar
-os sete mares e foder
----
-você é um desses que não me desce
----
-eu não ronco eu passo o trator
-nos pesadelos
----
-o cosmos nos diz que somos
-mais conectados com a internet 
-do que com o Universo
----
-o louco inventa 
-um carro voando
-o gênio cria
-o carro que voa
----
 cu que não tem assento
 ---
-pessoas nunca perdem
-a oportunidade de falar mal 
-dos melhores amigos
-para estranhos em festas
----
-temo que teimo com teimosos
----
-pessoas limpando mais suas casas 
-do que tomando banho
----
-no restaurante ela pergunta
-o que vamos pedir e ele responde
-o de sempre saúde paz e amor
----
-nem tudo é sobre
-a gente às vezes
-é literalmente 
-tudo
-sobre a gente
----
-AQUI A GENTE FALA ASSIM
+2444
 
-uma goma de bergamota 
-no chão da escola 
-uma goma de bergamota 
-no chão da escola 
-abandonada esmagada 
-parecia muito
-mas muito 
-com um camarão
-e isso foi a coisa
-mais poética
-que eu poderia ver no momento 
-que eu poderia escrever no momento
-e eu não estou ficando louco 
-imagina
----
-please welcome back to the program THE STROKES
----
-ser motivo das gargalhadas das amigas
-da sua namorada
----
-não pegaria muito bem para mim 
-nossa história ser escrita por você
----
 eu já li o texto três vezes
 e ainda não entendi
 
 eu só precisei ler uma vez
 para não entender
 ---
-se formos apenas
-um conjunto de átomos 
-aleatórios no universo 
-então existir faz todo o sentido
----
-rinietzsche da poeira das bibliotecas
----
+2443
+
 apetite de ler devorando mangás
 ---
-a reunião social
-a crise de ansiedade 
-se trancar 
-no banheiro local 
-respirar
-sentir 
-respirar 
-sentir
-odores
+2442
+
+custou Karl ser Marx?
 ---
-aquele aposentado que tem mais ambição
----
-custou Karl ser Marx? 
----
-a única coisa que não sei poupar 
-é dinheiro
----
-quando um artista tem 
-um tempinho livre
-ele faz mais arte
----
-você não precisa lidar comigo
-só quero ser lido
----
-uma crítica negativa? 
-por fim alguém me entendeu
----
+2441
+
 vocês terminaram 
 tão bem
 é este o término 
-que eu quero para mim
+que eu quero 
+para mim
 ---
-saí
-do armário 
-e entrei
-nas estantes
----
-AMOUR
+2440
 
-sinto que posso ser careca com você
----
-estou vendo trilhos onde não trem
----
-o ateu naquele avião caindo
-tem mais medo da morte que 
-supostamente crê em um Deus
-e na queda crentes 
-também morrerão
----
-tropecei nela dançamos para disfarçar
----
-um carro escrito detetive está me seguindo
----
-furtar o carro da polícia 
-sofrer acidente na frente
-do hospital
----
-vendi a minha arma para o Diabo
----
-como você consegue ter uma pele tão bonita
-
-são seus óleos
----
-peço desculpa por você ser assim
----
-você tá ligado que você apagou
----
-burros são aqueles 
-que entendem 
-uma poesia
-de primeira
----
-eu disse 
-que seria
-diferente mas 
-em nenhum 
-momento
-eu disse que 
-seria melhor
----
-live de velório
----
-não aguenta meia-horinha de poesia
----
-malditos versos que aparecem durante banhos
----
-tragicômico seria
-cama de casal num 
-quarto de hospital
----
-ela me juntou do chão
-e me colocou no lixo
----
-escrever poesia
-é mastigar palavras 
-como quem come 
-comida alienígena
----
-durante a terapia o psicólogo
-teve uma crise de ansiedade 
-logo tratei de acalma-lo
----
-a babá disse que o bebê bebe bába
----
-éramos
-apenas garotos 
-se perguntando 
-como chegar 
-nas garotas 
-hoje apenas 
-homens vendendo
-suas guitarras 
-abandonadas
----
-você está me ofendendo 
-
-por que
-
-eu não sei
----
-você acha que existe vida em outro poema?
----
-o azul do semáforo
----
-papai existem crianças com trinta anos
-que ainda escrevem poesias?
----
 eu te amo 
 
 eu também?
 ---
-eu não quero mais nadar com você
----
-talvez você se encontre aqui Vitória
----
-vida me deu um pé
-na bunda então virei
-um moribundo
----
-TAPETE
+2439
 
-não prepare a bagunça
+eu não quero mais 
+nadar com você
 ---
-mostre um documento por gentileza 
+2438
 
-tudo bem toma aqui
+talvez você se encontre aqui 
+Vitória
+---
+2437
 
-isso é uma carta de amor Vinícius
----
-meu amor está em outro estado 
-
-entendo relacionamento à distância 
-é sempre complicado
-
-não
-ela mora aqui mesmo está em outro
-estado civil é casada
----
-amei
-por certezas 
-vivi
-por incertezas 
-morri
-por engano
----
-a melhor comida 
-do mundo 
-é a sua
-e eu posso provar
----
-o lanche predileto 
-do escritor
-é o mil-folhas
----
-oi como eu estou? 
-
-hum bem e eu? 
-
-bem melhor
----
-infiltrado naquele 
-hospício na verdade
-eu era um pirata
----
-bom dia dr. está melhor hoje?
----
-esta é a hora em que a gente ora?
----
-morte acabando com despertadores
----
-ser rejeitado como artista 
-um prazer para poucos
----
-o que te faz se sentir em casa
-a companhia ou a cama?
----
-corria atrás
-dos meus sonhos 
-numa esteira elétrica
-é assim que eu vejo a vida
----
-A PROVOCAÇÃO
-
-Abujamra o que é a morte?
-
-(em memória de Antônio Abujamra) 
----
-cocaína está em fim de carreira
----
-está decidido eu vou me matar 
-
-você vai desse jeito?
-
-sim por que? estou feio? 
-
-não você está ótimo
----
-por que você escreve desse jeito 
-
-por que você lê desse jeito
----
-quando viu o preço do 
-imóvel ficou imóvel
----
-nunca trate como biblioteca 
-quem te trata como livraria
----
-quais são os panos para o futuro
----
-ela dá opinião sobre tudo 
-menos sobre ela 
-dando opinião sobre tudo
----
-acho que vamos deixar o Vinícius 
-de fora da festa
-
-por que
-
-porque você sabe ele vive se vitimizando 
-dizendo que nunca é convidado para 
-as festas
----
-nas virtudes
-do interesse próprio 
-o que faz uma pessoa 
-parecer
-sexualmente 
-atraente
-segundo a ciência?
-ser cientista
----
-poeta precisa acordar 
-novinho em folhas
----
-não sou paciente diagnosticado 
-sou doente com certificado
----
-você começa a se sentir velho
-quando percebe mais maturidade 
-que os seus pais
----
 eu e minha ex-namorada hoje somos
 grandes amigos ela me chama pelo 
 apelido carinhoso ‘corninho’
 e diz que aprendeu muito comigo
 ---
+2436
+
 Jô Soares
 não querendo 
 interromper
@@ -4046,50 +2687,32 @@ interrompendo
 
 (em memória de Jô Soares)
 ---
+2435
+
 APOSENTAR
 
 ah! pô! sentar?
 ---
-acabei de contar
-uma história sem 
-começo meio nem 
-fim 
-enquanto você 
-lia esse poema
----
+2434
+
 todo mundo quando diz 
 eu não sou um astro 
 do rock ‘n’ roll 
 diz com alguma 
 esperança
 ---
-foi amor à última vista 
----
+2433
+
 eu seria do tipo que 
 pediria autógrafos 
 aos fãs
 ---
-brigamos e acabei dormindo
-no sofá da sala estava tão 
-frio meu amor veio me cobrir
-de porrada
----
+2432
+
 Freud tratava o seu gato
 ---
-amiga você ficou sabendo do Vinícius?
+2431
 
-sim amiga que ele está melhor eu fico 
-muito feliz pela sua recuperação eu 
-não esperava sabe
-
-amiga ele se matou ontem
----
-como foi a viagem?
-
-preciso ver as minhas fotos 
-porque sinceramente eu não 
-me recordo amiga
----
 CONFORTO PARA UMA VELHINHA 
 DE NOVENTA E NOVE ANOS 
 DE IDADE
@@ -4097,226 +2720,45 @@ DE IDADE
 “a senhora é muito forte 
 vai viver até os cem anos”
 ---
-desculpa por você me aguentar
----
-Vinícius é encontrado apaixonado
-em sua casa
-aos trinta e três anos de idade
-por causas naturais
----
-estava no 
-fundo do poço 
-e lá também
-havia uma 
-igreja
----
-ele é tão ridículo me convidou 
-para sair de novo acredita
+2430
 
-e o que você respondeu 
-
-que sim né
----
 posso não ser do tipo
 sentimental mas tenho 
 piscina em casa
 ---
-PAUTA
+2429
 
-homem mostra seu 
-órgão genital 
-para mulher 
-em restaurante 
-é que ela estava 
-muito apaixonada
-e pediu para ver
----
-não se preocupe se o nosso primeiro 
-encontro for uma tragédia eu te darei
-outra oportunidade
-
-e se o segundo também for 
----
 gostos se discutem
 ---
+2428
+
 GERMANO
 
-impressionante como nossos bichinhos 
-sentem quando estamos tristes
-outro dia flagrei meu gato
-ligando para o meu ps 
+impressionante como 
+nossos bichinhos 
+sentem quando estamos 
+tristes
+outro dia flagrei 
+meu gato
+ligando para 
+o meu ps 
 pspsiquiatra
 ---
-olha filho ele está fazendo arte na praça
+2427
 
-acho que ele tá passando vergonha mamãe
----
-hoje é um dia muito especial 
-você vai morrer e nós vamos 
-celebrar a vida
----
-bocejou na missa 
-missão cumprida
----
-Kieran Culkin você
-poderia ser meu amigo?
-e falar em português
----
-perguntei para 
-a vida qual
-o próximo passo
-o moonwalk 
-ela respondeu
----
-estou na lista dos 
-sete bilhões melhores
-poetas do mundo
----
-a melancolia é boa de cama
----
-desculpa eu pensei sem falar
----
-me separei
-da minha namorada 
-imaginária
-eu não estava 
-sendo verdadeiro
----
-SLOGAN PARA PSICÓLOGOS
-
-“Eu me devo explicações.”
----
-o que o gato diria 
-se pudesse falar
-perguntou o cachorro
----
-A MULHER-MARAVILHA
-
-seria vergonhoso 
-salvar o mundo 
-mal vestida
----
-você gosta de poesia? é a única coisa
-que eu sei fazer na vida
+você gosta de poesia? 
+é a única coisa que 
+eu sei fazer na vida
 
 não
 ---
-APLICATIVO DE NAMORO
+2426
 
-“no cardápio parecia maior”
----
-coincidências para dizer que acertei
----
-Vinícius não fique tão triste 
-nós cogitamos lhe convidar
----
-cigarro traga poesia
----
-eu sou nova neste ramo 
-de flores
----
-o amor faz até uma cebola chorar
----
-você é tão linda
-
-que gentil são meus olhos
----
-as pessoas não têm mais
-medo de se relacionar 
-elas têm fobia
----
-TERROR MODERNO
-
-Eu Sei O Que Vocês Fizeram No Amor Passado
----
-certo dia flagrei minha dor 
-na cama com meu melhor poema
----
 motorista flagrado bêbado 
 enquanto não dirigia
 ---
-você só diz eu te amo entre “aspas”
----
-a companhia pareceu 
-tão boa na verdade 
-foi você fazendo 
-o papel da companhia
----
-maturidade 
-é saber
-a hora certa 
-de voltar 
-para o colo 
-da sua mãe 
-e chorar
----
-você já faz tanto tempo 
-parece que foi outrem
----
-TROTE UNIVERSITÁRIO
+2425
 
-lembro quando 
-participei do 
-trote universitário 
-ligaram-me
-se passando por 
-uma Universidade 
-dizendo que passei 
-no vestibular
----
-mágoa você mede com trégua
----
-se amor tivesse 
-cheiro seria 
-cheiro de bergamota
----
-quem é você para julgar você
----
-era psicólogo e poeta
-não podia ler mentes
-sem seus óculos
----
-paixão é amor entre aspas e beijos
----
-você sabe qual
-o super-herói 
-preferido
-da depressão
-e da ansiedade?
-
-O SUPER-AR
----
-ainda serei um figurante 
-recebendo o Oscar
----
-ele disse que quer voltar comigo
-
-o que eu respondo
-
-que quer voltar sem ele ué
----
-sorriu de saudade faltando um ente
----
-então meu caro poeta sobre 
-o seu diagnóstico infelizmente 
-trata-se de pneumoultramicroscopicossilicovulca- 
-noconiótico
----
-a palavra neologismo 
-faz com que palavras 
-sejam infinitas
----
-ELOGIOS CONTEMPORÂNEOS
-
-“ele é tão artista”
----
-é crédito ou plágio?
----
-o IML sequestrou o meu corpo 
----
-mais biblio
-menos bíblia
----
 POPULAR
 
 camisa
@@ -4324,67 +2766,22 @@ do seu time
 em promoção 
 por 549,99
 ---
-CARTA DO DESCOBRIMENTO
+2424
 
-meu deus plagiei 
-Pero Vaz
-de Caminha
+não sou 
+preguiçoso 
+não estou 
+deprimido 
+sequer doente 
+apenas estou 
+encamado
 ---
-chefe eu poderia trabalhar 
-em dobro amanhã?
-é que minha vida pessoal 
-está uma merda
----
-ISTO NÃO É POESIA
----
-a vida
-é uma piada 
-e por isso 
-vale a pena
----
-louco
-não medicado 
-tem a droga 
-da razão
----
-AMBIGUIDADE
+2423
 
-não há 
-tantos 
-inimigos 
-assim
----
-VEÍCULOS
-
-artista rebaixado 
-por veículos 
-de imprensa
----
-não sou preguiçoso não estou 
-deprimido sequer doente 
-apenas estou encamado
----
-CORTA PARA:
-INTERIOR. APARTAMENTO DE ASSASSINO – NOITE
-
-ASSASSINO. Não somos tão terríveis quanto as as- 
-sassinadas pensavam.
----
-Eu acho que a gente podia...
-
-CORTA PARA
-INTERIOR. VOZ DELA – NOITE
-
-VOZ DELA. Eu só consigo te ver como amigo, Vinícius...
----
 a vaga foi pro bêjo
 ---
-como estava o funeral do Vinícius 
+2422
 
-não tinha nem wi-fi você acredita
----
-amar não é decoreba
----
 Querido,
 Como você está? 
 Eu havia esquecido 
@@ -4393,137 +2790,25 @@ Da sua existência
 
 Ass: I. W.
 ---
-ladies and gentleman it’s THE STROKES
----
-é impressionante como você é bom
-naquilo que você faz vejo que estuda 
-muito trabalha duro parece determinado 
-até mesmo obcecado mas eu lhe 
-pergunto qual é o segredo?
+2421
 
-100% Jesus
----
 Maria dizia 
 eu te amo 
 para Pedro
 que respondia 
 para Paulo
 ---
-tenho sobrado pra cachorro
----
-CONTINHO DE TERROR
+2420
 
-um morto senta 
-na praça 
-afinal de contos 
-não dá para
-lhe seguir
-o tempo todo
----
 felicidade não traz dinheiro
 ---
-delinquente cai
-em golpe das fake news 
-e acaba espalhando 
-notícia verdadeira
----
-proclamar a independência alcoólica 
----
+2419
+
 “não gosto muito de futebol
 mas nada contra o racismo”
 ---
-um peixe nada 
-como um dia 
-após o outro
----
-Deputado Vinícius Knecht cria 
-projeto de lei “Lei A.”
----
-o louco diz 
-que é um
-viajante do tempo
-o gênio é aquele 
-que cria
-uma máquina do tempo
----
-e me conta eles ficam juntos no final? 
+2418
 
-no final todo mundo morre meu amor
----
-do xadrez 
-para choque 
-mata
-que pena
----
-a lua pisou no amor
-pela primeira vez no dia  / /	 
-mas foi tudo inventado
-e o Stanley Kubrick 
-que fez aquelas filmagens
----
-MONÓ LOGO
-
-para quem não sabe o Vini foi
----
-você é a favor da escala
-ao Everest?
----
-MODÉSTIA PARTE
-
-modéstia parte fizemos
-grandes inimigos temos 
-que reconhecer
----
-CRÍTICA CONSTRUTIVA
-
-“belo concreto”
----
-um fantasma que 
-não aguenta mais 
-o que não vê
----
-sombrio demais para chegar nela
----
-abordar missão
----
-é muito solo
-para quem 
-deseja voar
----
-atiro
-a última flor
-e erro o alvo
----
-defunto não 
-faz piada
-com corpo
----
-os seus inimigos 
-por sorte
-sobreviveram
----
-EU AINDA ESTOU LENDO ISSO?
----
-CHAPLIN
-
-no meu próximo filme mudo
----
-é a sua sétima esposa mas 
-talvez o seu grande amor
----
-acordo
-entre multidão 
-e silêncio 
-durmo com
-o Mick Jagger
----
-não invente de dar muita corda 
-para músicos
----
-você é a favor de humanizar as pessoas?
-
-desculpa não estudei economia
----
 atenção, crianças! prestem muita atenção.
 na aula de hoje, vamos falar sobre as incríveis 
 redes sociais. 
@@ -4544,24 +2829,8 @@ vocês simplesmente não serão ninguém.
 
 (com Inteligência Artificial)
 ---
-nenhum humano possui mais 
-autoconhecimento que uma 
-pomba
----
-e ela tem um carrão 
-com aquele seu 
-ka belo
----
-Vinícius Knecht dispensa apresentações
-pois ninguém se importa realmente 
-em conhecê-lo
----
-nas mãos 
-ao pé
-da letra
+2417
 
-ARTE
----
 ela está sempre atrás de mim 
 
 está te perseguindo?
@@ -4569,71 +2838,15 @@ está te perseguindo?
 não você não entendeu 
 eu sou a marionete
 ---
+2416
+
 na sede
 da empresa 
 tomei 
 providências
 ---
-rima não
-é solução 
-mas eu 
-detesto 
-dizer
-não
----
-estarei chorando 
-mas saiba 
-que isso será
-o máximo
----
-brincando de esconde-esconde 
-em poesias
----
-capitalismo
-te massacrando 
-de felicidade
----
-o blues tá em todo encanto 
----
-tá faltando vermelho
----
-bem lá bem lá
-no interior 
-transformam 
-estrelas 
-em estrelenses
----
-o passarinho 
-é o melhor 
-amigo
-do homem
----
-rotina esconde rotas
----
-meu negócio é poesia
-e eu não ganho nada 
-com isso
----
-candidato confirma turnô
-veja datas locais 
-e horrores
----
-psicóloga narcisista 
-explica
-como identificar 
-um narcisista
----
-PLOT TWIST
+2415
 
-no labirinto da memória 
-labirintite 
-então estou fugindo
-do Jack Nicholson
----
-o que eu não estou fazendo aqui? 
----
-tudo tão fútil e tão especial
----
 POESIA CAUSA CÂNCER DE PULMÃO
 
 POESIA ENVELHECE 
@@ -4648,71 +2861,19 @@ POESIA INFARTA
 
 POESIA MATA
 ---
-leia um livro agora 
-senão você vai morrer
----
-homem é solto
-após pagar 
-aliança
-de 15 mil
----
-benzedeira ou benzetacil 
-ver preço pesquisar
----
-você está me escondendo alguma coisa 
+2414
 
-é só uma aliança amor
-
-você vai me pedir em casamento 
-eu não acredito
-
-uma aliança com o partido comunista amor
----
 REDE DE CASA
 
-notarão seu sumiço 
-mesmo só no seu 
+notarão 
+seu 
+sumiço 
+mesmo só 
+no seu 
 emprego
 ---
-ChatGPT melhore o poema: EU TE ODEIO!!!
----
-você é muito talentoso
+2413
 
-obrigado acho que é 
-a minha invocação
----
-e qual é a sua história? 
-
-você tem tempo? 
-
-todo
-
-então vá aproveita-lo 
-pois eu não tenho
----
-quebrei o pé caminhando
-e isso diz tudo sobre 
-um ossinho
-do meu pé direito 
-
-pensou que eu faria
-uma analogia?
----
-ele não dirige em cidade pequena
----
-percebo 
-detalhes 
-que nem são 
-tão 
-detalhes 
-assim
----
-eu sou uma bicha no mato
----
-OPINIÕES CONTEMPORÂNEAS
-
-“Dostoiévski é superestimado”
----
 se eu
 não dormir 
 agora
@@ -4720,21 +2881,22 @@ eu perco
 o bônus 
 amanhã
 ---
-saiba separar 
-a arte do ar
+2412
 
-não
----
 eu vou escrever 
 a minha biografia 
 acho que ninguém 
 melhor 
 que eu
 ---
+2411
+
 aproveite o feriado 
 aproveite o feriado 
 para se medicar
 ---
+2410
+
 ainda acredito 
 no poder
 da palavra
@@ -4743,11 +2905,18 @@ taça
 de vinho 
 duvidoso
 ---
-estamos com um pequeno probleminha
+2409
+
+estamos com 
+um pequeno 
+probleminha
 não se preocupe 
 não envolve você 
-pois você é dos grandes
+pois você é dos 
+grandes
 ---
+2408
+
 queria escrever
 em outro momento 
 o que sinto
@@ -4757,6 +2926,8 @@ em outro momento
 o que escrevo 
 agora
 ---
+2407
+
 não procure 
 por ela 
 vocês nunca irão 
@@ -4764,6 +2935,8 @@ se reencontrar
 naquele
 mesmo estilo
 ---
+2406
+
 em breve 
 serei 
 anônimo
@@ -4771,10 +2944,17 @@ só que
 dessa vez
 de propósito
 ---
+2405
+
 nunca serei uma data
 ---
-os paranoicos continuam me perseguindo
+2404
+
+os paranoicos continuam 
+me perseguindo
 ---
+2403
+
 que que você anda fazendo 
 por que você fala tanto
 em patrulha como você é 
@@ -4786,12 +2966,8 @@ o seu serviço
 de vigilância você escreve
 de uma maneira muito burra
 ---
-e o final e o final
-todos nós sabemos
-um novo começo 
-se não para nós 
-para os outros
----
+2402
+
 bom caminhar 
 ao seu lado 
 porque você 
@@ -4801,120 +2977,10 @@ o que é
 correr 
 a favor do tempo
 ---
-a voz veio 
-das nuvens 
-fim da linha 
-poeta
-e então 
-subi 
-disfarçado 
-ainda assim 
-desconfiado
----
-Vinícius Knecht o que é a poesia? 
+2401
 
-a poesia está em todas as artes
-a poesia está na arquitetura na literatura na música 
-na dança no cinema no teatro nas artes plásticas nas 
-esculturas nas pinturas nos desenhos a poesia é a 
-produção mesmo que inconsciente de obras formas ou 
-objetos a poesia é não apenas a expressão da subjetividade 
-humana mas a explicação ou a mera interpretação da mesma
----
-o importante é dar o último passo
----
-ABUJAMRA
-Vinícius Knecht o que é a poesia?
-
-VINÍCIUS
-é o dever de ver é o observar
-o reparar reparar para observar 
-e reparar para consertar
-
-ABUJAMRA
-Vinícius o que é a poesia?
-
-VINÍCIUS
-hum expressar o que ainda não foi expresso 
-e impresso anotar o que não foi notado
-
-ABUJAMRA
-o que é… a poesia?
-
-VINÍCIUS
-certo poesia são partículas de luz 
-e partículas mensageiras fótons 
-e glúons
-
-ABUJAMRA
-você vem com essa para cima de mim?
-
-(risos)
-
-vem cá e me dá um abraço
----
-por que você fez isso? sério
-
-porque... você sabe... 
-acredito que ninguém pensaria 
-que eu faria
----
-na escuridão do atempo
-por que é escuro à noite
-os minutos finais da juventude 
-a eternidade
-os minutos finais da coragem 
-o medo
-os minutos finais dos pensamentos 
-as lembranças
-os minutos finais das lembranças 
-última visão
-os minutos finais do amor 
-o cinema
-os minutos finais do silêncio 
-os pensamentos
-os minutos finais da história 
-o tempo
-os minutos finais do medo 
-a coragem
-os minutos finais da eternidade 
-a juventude
-os minutos finais do cinema 
-o amor
-última visão noite ele diz 
-noite ela diz 
-noite eles dizem
-por que é tão escuro 
-durante o dia 
-a morte
----
 nunca é demais plantar 
 um museu numa estrela
----
-somos artistas Vinícius nós não 
-passamos por borboletas como se 
-fôssemos formiguinhas e nós 
-jamais ofenderíamos as formigas
----
-me deixo nas mãos da arte
----
-brindamos com cacos de vidro
----
-Vinícius sentiu que algo de bom 
-estava prestes a acontecer saiu 
-da cama vestiu a sua melhor roupa 
-e caminhou até o parque e algo de 
-bom aconteceu Vinícius saiu da 
-cama vestiu a sua melhor roupa 
-e caminhou até o parque
----
-meu sonho 
-era ser poeta 
-agora 
-é ser anjo
----
-foi perfeito mas
-eu esperava mais
 ---
 2400
 
