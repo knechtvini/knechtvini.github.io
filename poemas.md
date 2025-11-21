@@ -9668,43 +9668,64 @@ papai é domingo calvo
 prova de vida é uma prova 
 com consulta
 ---
+1590
+
 esta é a minha letra? 
 melhor que Champagne Supernova 
 do Oasis
 ---
-a estrela mais próxima da Terra é o Sol 
+1589
+
+a estrela mais próxima da Terra 
+é o Sol 
+
 mentira 
 é o David Bowie
 
-a estrela mais próxima da Terra é o David Bowie
+a estrela mais próxima da Terra 
+é o David Bowie
 ---
+1588
+
 inventar 
 a roda 
-aprender a manipular 
+aprender 
+a manipular 
 o fogo 
-desbravar os 
+desbravar 
+os 
 sete mares 
 e 
 foder
 ---
+1587
+
 você é um desses 
 que não me desce
 ---
+1586
+
 eu não ronco 
 eu passo o trator
 nos pesadelos
 ---
+1585
+
 o cosmos nos diz que 
 somos mais conectados 
 com a internet 
 do que 
 com o Universo
 ---
+1584
+
 o louco inventa um carro voando 
 o gênio cria o carro que voa
 ---
 cu que não tem assento
 ---
+1583
+
 pessoas nunca perdem 
 a oportunidade 
 de falar mal 
@@ -9712,6 +9733,8 @@ dos melhores amigos
 para estranhos 
 em festas
 ---
+1582
+
 quando você 
 usa a violência 
 contra um 
@@ -9722,50 +9745,61 @@ toda a razão
 com toda 
 a razão
 ---
+1581
+
 temo que 
 teimo com 
 teimosos
 ---
-pessoas limpando mais suas casas 
+1580
+
+pessoas limpando 
+mais suas casas 
 que tomando banho
 ---
-no restaurante ela pergunta 
+1579
+
+no restaurante 
+ela pergunta 
 o que vamos pedir 
 e ele responde 
 o de sempre 
 saúde paz e amor
 ---
-nem tudo é sobre a gente
+1578
 
-às vezes é 
-literalmente 
-tudo sobre a gente
----
-gaste mais tinta 
-Editora
-gaste mais tinta
-nesta impressora
----
 a capa sempre poderia ser melhor
 ---
+1577
+
 please welcome back to the program THE STROKES
 ---
+1576
+
 ser motivo das gargalhadas 
 das amigas 
 da sua namorada
 ---
+1575
+
 sério de onde você tira tudo isso
 
 com certeza não é da cabeça
 ---
+1574
+
 não pegaria muito bem para mim 
 nossa história ser escrita 
 por você
 ---
+1573
+
 eu já li o texto três vezes e ainda não entendi
 
 eu só precisei ler uma vez para não entender
 ---
+1572
+
 se formos apenas 
 um conjunto de átomos 
 aleatórios 
@@ -9773,14 +9807,21 @@ no universo
 então existir 
 faz todo o sentido
 ---
+1571
+
 rinietzsche da poeira das bibliotecas
 ---
+1570
+
 apetite de ler 
 devorando mangás
 ---
+1569
+
 a reunião social 
 a crise de ansiedade 
-se trancar no banheiro local 
+se trancar 
+no banheiro local 
 respirar 
 sentir 
 respirar 
@@ -9788,32 +9829,46 @@ sentir
 
 odores
 ---
+1568
+
 aquele aposentado 
 que tem mais ambição
 ---
+1567
+
 custou Karl ser Marx?
 ---
-a única coisa que não sei poupar 
+1566
+
+a única coisa 
+que não sei poupar 
 é dinheiro 
 ---
+1565
+
 quando um artista 
 tem um tempinho livre 
 ele faz mais arte
 ---
-você não precisa lidar comigo 
-eu só quero ser 
-lido 
----
+1564
+
 uma crítica negativa?
 por fim alguém me entendeu
 ---
+1563
+
 vocês terminaram tão bem 
 é este o término 
 que eu quero para mim
 ---
+1562
+
 saí do armário 
-e entrei nas estantes
+e entrei nas 
+estantes
 ---
+1561
+
 AMOUR
 
 sinto que 
@@ -9821,6 +9876,8 @@ posso ser
 careca 
 com você
 ---
+1560
+
 estou 
 vendo 
 trilhos 
@@ -9828,6 +9885,8 @@ onde
 não 
 trem
 ---
+1559
+
 o ateu naquele avião 
 que está caindo 
 tem mais 
@@ -9840,30 +9899,48 @@ na queda
 os crentes 
 também morrerão
 ---
+1558
+
 tropecei nela 
-dançamos para disfarçar
+dançamos para 
+disfarçar
 ---
+1557
+
 um carro escrito 
 detetive 
 está me seguindo
 ---
+1556
+
 furtar o carro da polícia 
 sofrer um acidente 
 na frente do hospital
 ---
+1555
+
 é o diagnóstico ou é o tratamento?
 ---
+1554
+
 vendi a minha 
 arma 
 para o Diabo
 ---
-como você consegue ter uma pele tão bonita
+1553
+
+como você consegue ter 
+uma pele tão bonita
 
 são seus óleos
 ---
+1552
+
 peço desculpa 
 por você ser assim
 ---
+1551
+
 você tá ligado 
 que você apagou 
 ---
