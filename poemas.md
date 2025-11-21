@@ -9867,160 +9867,197 @@ por você ser assim
 você tá ligado 
 que você apagou 
 ---
+1550
+
 burros são aqueles 
 que entendem 
 uma poesia
 de primeira
 ---
+1549
+
 eu disse que seria diferente 
-mas em nenhum momento 
-eu disse que 
-seria melhor
+mas em nenhum momento eu disse 
+que seria melhor
 ---
+1548
+
 live de velório
 ---
+1547
+
 não aguenta 
 meia- 
 horinha 
 de poesia
 ---
-malditos versos 
-que aparecem durante 
+1546
+
+malditos 
+versos 
+que aparecem 
+durante 
 os banhos
 ---
-tragicômico seria uma cama de casal 
-num quarto de hospital
+1545
+
+tragicômico seria 
+uma cama de casal 
+num quarto de 
+hospital
 ---
-ela me juntou do chão 
-e me colocou no lixo
----
-escrever poesia é mastigar palavras 
-como quem come comida 
-alienígena
----
+1544
+
 durante a terapia 
-o psicólogo teve uma crise de ansiedade 
+o psicólogo teve 
+uma crise de ansiedade 
 logo tratei 
 de acalma-lo
 ---
+1543
+
 a babá disse que o bebê bebe bába
 ---
-éramos apenas garotos 
-se perguntando 
-como chegar nas garotas 
-hoje apenas homens 
-vendendo 
-as suas guitarras 
-abandonadas
----
+1542
+
 você está me ofendendo 
 
 por que
 
 eu não sei
 ---
+1541
+
 você acha que 
 existe vida 
 em outro poema?
 ---
+1540
+
 o azul do semáforo
 ---
-papai existem crianças com trinta anos 
+1539
+
+papai existem crianças 
+com trinta anos 
 que escrevem poesias?
 ---
+1538
+
 eu te amo 
 
 eu também?
 ---
+1537
+
 eu não quero mais nadar com você
 ---
-pai se você está mesmo lendo este livro 
-me diga o número desta página
----
+1536
+
 talvez você se encontre 
 Vitória
 ---
+1535
+
 vida me deu 
 um pé na bunda 
 então virei 
 um moribundo
 ---
+1534
+
 TAPETE 
 
 não prepare a bagunça
 ---
+1533
+
 mostre um documento por gentileza
 
 certo toma aqui
 
 isso é uma carta de amor Vinícius
 ---
-meu amor está em outro estado
+1532
 
-entendo relacionamento à distância é sempre 
-complicado
-
-não ela mora aqui mesmo está em outro estado 
-civil
----
 amei por certezas 
 vivi por incertezas 
 morri por engano
 ---
-a melhor comida do mundo 
+1531
+
+a melhor 
+comida 
+do mundo 
 é a sua 
 e eu posso 
 provar
 ---
+1530
+
 o lanche predileto 
 do escritor 
 é o mil-folhas
 ---
-preenchendo
-preenchendo
-preenchendo
-preenchendo
-preenchendo
----
+1529
+
 oi como eu estou?
 
 hum bem e eu? 
 
 bem melhor
 ---
+1528
+
 infiltrado 
 naquele hospício 
 na verdade 
 eu era um pirata
 ---
+1527
+
 bom dia dr. está melhor hoje?
 ---
+1526
+
 esta é a 
 hora 
 em que 
 a gente 
 ora?
 ---
-morte acaba com despertadores
----
+1525
+
 ser rejeitado como artista 
 um prazer para poucos
 ---
+1524
+
 o que te faz se sentir em casa 
 a companhia ou a cama?
 ---
+1523
+
 corria atrás dos meus sonhos 
 numa esteira elétrica
 é assim que eu vejo a vida
 ---
+1522
+
 A PROVOCAÇÃO
 
 Abujamra o que é a morte?
 
 (em memória de Antônio Abujamra)
 ---
-cocaína está em final de carreira
+1521
+
+cocaína está 
+em final de 
+carreira
 ---
+1520
+
 está decidido 
 eu vou me matar
 
@@ -10030,22 +10067,19 @@ sim por quê? estou feio?
 
 não você está ótimo
 ---
+1519
+
 por que você escreve deste jeito
 
 por que você lê deste jeito
 ---
-quando viu o preço do imóvel 
-ficou imóvel
----
+1518
+
 nunca trate como biblioteca 
 quem te trata como livraria
 ---
-quais são os panos para o futuro
----
-ela dá opinião sobre tudo
-menos sobre ela 
-dando opinião sobre tudo
----
+1517
+
 acho que vamos deixar o Vinícius de fora 
 da festa
 
@@ -10055,66 +10089,96 @@ porque você sabe ele vive se vitimizando
 dizendo que nunca é convidado para as 
 festas
 ---
-nas virtudes do interesse próprio 
-o que faz uma pessoa parecer 
-sexualmente 
-atraente 
-segundo a ciência?
-ser cientista
----
+1516
+
 poeta precisa acordar 
 novinho em folhas
 ---
+1515
+
 não sou paciente diagnosticado 
 sou doente com certificado
 ---
+1514
+
 você começa a se sentir velho 
 quando percebe mais maturidade 
 que os seus pais
 ---
-eu e minha ex-namorada hoje somos amigos 
-ela me chama pelo apelido carinhoso 
+1513
+
+eu e minha ex-namorada 
+hoje somos amigos 
+ela me chama pelo 
+apelido carinhoso 
 corninho 
-e diz que aprendeu muito comigo
+e diz que aprendeu 
+muito comigo
 ---
+1512
+
 Jô Soares não querendo interromper 
 a sua morte mas já interrompendo
 
 (em memória de Jô Soares)
 ---
+1511
+
 APOSENTAR
 
 ah! pô! sentar?
 ---
-acabei de contar uma história 
+1510
+
+acabei 
+de contar 
+uma história 
 sem começo 
 meio 
 nem fim 
-enquanto você lia 
+enquanto você 
+lia 
 esse poema
 ---
+1509
+
 todo mundo quando diz 
-eu não sou um astro do rock ‘n’ roll 
+eu não sou um astro 
+do rock ‘n’ roll 
 diz com alguma esperança
 ---
+1508
+
 foi amor à última vista
 ---
-eu seria do tipo que pediria 
+1507
+
+eu seria 
+do tipo 
+que pediria 
 autógrafos 
 aos fãs
 ---
+1506
+
 AUTOBULLYING DE MÃE
 
 “seu mal criado”
 ---
+1505
+
 brigamos e acabei dormindo 
 no sofá da sala 
 estava tão frio 
 meu amor veio me cobrir 
 de porrada
 ---
+1504
+
 Freud tratava o seu gato
 ---
+1503
+
 amiga você ficou sabendo do Vinícius?
 
 sim que ele está melhor eu fico muito feliz 
@@ -10122,186 +10186,287 @@ pela sua recuperação eu não esperava sabe
 
 amiga ele se matou ontem
 ---
+1502
+
 como foi a viagem?
 
 preciso ver as minhas fotos porque 
 sinceramente eu não me record amiga 
 ---
+1501
+
 CONFORTO PARA UMA VELHINHA 
 DE NOVENTA E NOVE ANOS DE IDADE
 
 “a senhora é muito forte 
 vai viver até os cem anos”
 ---
-com licença você gostaria de um café tradicional 
+1500
+
+com licença você gostaria 
+de um café tradicional 
 ou extra-forte?
 
-estou completamente apaixonado por você
+estou completamente apaixonado 
+por você
 
 que? 
 
 forte
 ---
+1499
+
 desculpa por você me aguentar
 ---
-Vinícius é encontrado apaixonado em sua casa 
-aos trinta e três anos de idade 
+1498
+
+Vinícius é encontrado 
+apaixonado em sua casa 
+aos trinta e três anos 
+de idade 
 por causas naturais
 ---
+1497
+
 estava no fundo do poço 
-e lá também havia uma igreja
+e lá também havia uma 
+igreja
 ---
-ele é tão ridículo me convidou para sair de novo 
-acredita
+1496
+
+ele é tão ridículo 
+me convidou para sair 
+de novo acredita
 
 e o que você respondeu
 
 que sim né
 ---
+1495
+
 posso não ser do tipo sentimental 
 mas eu tenho piscina em casa
 ---
+1494
+
 PAUTA
 
-homem mostra o seu órgão genital 
+homem mostra 
+o seu órgão genital 
 para mulher 
 em restaurante 
-é que ela estava muito apaixonada 
+é que ela estava 
+muito apaixonada 
 e pediu para ver
 ali mesmo
 ---
+1493
+
 não se preocupe se o nosso encontro 
 for uma tragédia 
 eu te darei outra oportunidade
 
 e se o segundo também for
 ---
+1492
+
 gostos se discutem
 ---
+1491
+
 GERMANO
 
-impressionante como os nossos bichinhos 
-sentem quando estamos tristes 
-outro dia flagrei o meu gato 
-ligando para o meu ps
+impressionante como 
+os nossos bichinhos 
+sentem quando estamos 
+tristes 
+outro dia flagrei 
+o meu gato 
+ligando 
+para o meu ps
 pspsiquiatra
 ---
+1490
+
 olha filho ele está fazendo arte na praça
 
 acho que ele tá passando vergonha mamãe
 ---
+1489
+
 hoje é um dia muito especial
 você vai morrer 
 e nós vamos celebrar a vida
 ---
+1488
+
 bocejou na missa 
 missão cumprida
 ---
+1487
+
 pode ser a minha última leitura
 ---
-gaste mais tinta 
-Editora
-gaste mais tinta
-nesta impressora
----
+1486
+
 Kieran Culkin você pode ser meu amigo? 
 ---
+1485
+
 perguntei para a vida 
 qual o próximo passo 
 o moonwalk 
 ela respondeu
 ---
-estou na lista dos sete bilhões 
-melhores poetas do mundo
+1484
+
+estou na lista 
+dos sete bilhões 
+melhores poetas 
+do mundo
 ---
+1483
+
 a melancolia é boa de cama
 ---
+1482
+
 desculpa eu pensei sem falar
 ---
-me separei da minha namorada imaginária 
-eu não estava sendo verdadeiro
+1481
+
+me separei da minha 
+namorada imaginária 
+eu não estava sendo 
+verdadeiro
 ---
+1480
+
 SLOGAN PARA PSICÓLOGOS
 
 “Eu me devo explicações.”
 ---
-o que o gato diria se pudesse falar
+1479
+
+o que o gato diria 
+se pudesse falar
+
 perguntou o cachorro
 ---
+1478
+
 A MULHER-MARAVILHA
 
-seria vergonhoso salvar o mundo 
+seria vergonhoso 
+salvar o mundo 
 mal vestida
 ---
+1477
+
 você gosta de poesia? 
 é a única coisa 
 que eu sei fazer na vida
 
 não.
 ---
+1476
+
 APLICATIVO DE NAMORO 
 
 “no cardápio parecia maior”
 ---
-coincidências para dizer que acertei
+1475
+
+coincidências para 
+dizer que acertei
 ---
+1474
+
 Vinícius não fique 
 tão triste 
 nós 
 cogitamos 
 lhe convidar
 ---
+1473
+
 cigarro traga poesia
 ---
+1472
+
 eu sou nova neste ramo 
 de flores
 ---
+1471
+
 amor faz até cebola chorar
 ---
+1470
+
 você é tão linda
 
 que gentil 
 são meus olhos
 ---
-as pessoas não têm mais medo 
+1469
+
+as pessoas não 
+têm mais medo 
 de se relacionar
 elas têm fobia
 ---
+1468
+
 TERROR MODERNO
 
 Eu Sei O Que Vocês Fizeram No Amor Passado
 ---
+1467
+
 certo dia flagrei 
 a minha dor 
 na cama 
 com o meu melhor 
 poema
 ---
+1466
+
 PAUTA
 
 motorista flagrado bêbado 
 enquanto não dirigia
 ---
-você só diz eu te amo 
+1465
+
+você só diz 
+eu te amo 
 entre “aspas”
 ---
+1464
+
 pode ser a minha primeira leitura
 ---
-companhia pareceu tão boa 
-na verdade foi você 
+1463
+
+companhia pareceu 
+tão boa 
+na verdade foi 
+você 
 fazendo o papel 
 da companhia
 ---
-maturidade é saber 
+1462
+
+maturidade 
+é saber 
 a hora certa 
 de voltar 
 para o colo 
 da sua mãe 
 e chorar
 ---
-você já faz tanto tempo 
-parece que foi outrem
----
+1461
+
 TROTE UNIVERSITÁRIO
 
 lembro quando participei 
@@ -10311,139 +10476,163 @@ por uma Universidade
 dizendo que eu passei 
 no vestibular
 ---
+1460
+
 mágoa você mede com trégua
 ---
-se amor tivesse cheiro 
-seria o de bergamota
----
+1459
+
 quem é você para julgar você
 ---
+1458
+
 era psicólogo e poeta
 não podia ler mentes
 sem seus óculos
 ---
-paixão é amor entre aspas e beijos
+1457
+
+paixão é amor 
+entre aspas 
+e beijos
 ---
+1456
+
 quando eu era um bebê 
 eu realizava 
 todos meus sonhos
 ---
+1455
+
 você sabe 
-qual o super-herói preferido 
+qual o super-herói 
+preferido 
 da depressão 
 e da ansiedade? 
 
 O SUPER-AR
 ---
-serei um figurante recebendo o Oscar
+1454
+
+serei um figurante 
+recebendo o Oscar
 ---
-ele disse que quer voltar comigo 
+1453
+
+ele disse que 
+quer voltar comigo 
 o que eu respondo
 
 que quer voltar 
 sem ele ué
 ---
+1452
+
 sorriu de saudade 
 faltando um ente 
+---
+1451
+
 então poeta
 sobre o seu diagnóstico 
-infelizmente trata-se de pneumoultramicroscopicossilicovulcanoconiótico
+infelizmente trata-se de 
+pneumoultramicroscopicossilicovulcanoconiótico
 ---
+1450
+
 a palavra 
 neologismo 
-faz com que palavras 
-sejam infinitas
+faz com 
+que palavras 
+sejam 
+infinitas
 ---
+1449
+
 ELOGIOS CONTEMPORÂNEOS
 
 “ela é tão artista”
 ---
+1448
+
 é crédito ou plágio?
 ---
+1447
+
 o IML sequestrou o meu corpo
 ---
-tédio e sexo ruim só depois do casamento
+1446
+
+tédio e sexo ruim 
+só depois do casamento
 ---
+1445
+
 mais biblio menos bíblia
 ---
+1444
+
 POPULAR
 
 camisa do seu time em promoção 
 por 549,99
 ---
+1443
+
 CARTA DO DESCOBRIMENTO 
 
 meu deus 
 plagiei Pero Vaz de Caminha
 ---
+1442
+
 me candidatei a ver a dor
 ---
-inteligência artificial sequer entende 
-uma piada
----
-chefe eu poderia trabalhar em dobro amanhã?
+1441
+
+chefe eu poderia trabalhar 
+em dobro amanhã?
 é que a minha vida pessoal 
 está uma merda
 ---
-ISTO NÃO
-É POESIA
----
-CORTA PARA:
-INTERIOR. ESCRITÓRIO DE UM HOMEM – DIA
+1440
 
-UM HOMEM. 	Você está se sentindo desconfortável com a minha presença? Digo... por eu ser um homem. Eu posso chamar outros cinco para você se sentir mais segura. 
-a vida é uma piada 
-e por isso vale a pena
----
-louco não medicado 
-tem a droga da razão
----
-AMBIGUIDADE
-
-não há tantos inimigos
-assim
----
-VEÍCULOS
-
-artista rebaixado 
-por veículos de imprensa
----
 não sou preguiçoso 
 não estou deprimido
 sequer doente
 apenas estou 
 encamado
 ---
+1439
+
 CORTA PARA:
 INTERIOR. APARTAMENTO DE ASSASSINO – NOITE
 
 ASSASSINO.	  Não somos tão terríveis quanto as assassinadas pensavam.
 ---
-ele é um bom poeta 
+1438
 
-é sim 
-mas aposto que ele já matou alguém
----
 foram criados juntos 
 na Alemanha 
 do interior 
 do Rio Grande do Sul
 ---
+1437
+
 por que você não foi na festa
 
 eu ainda não havia voltado da guerra
 ---
-não tenha medo 
-de envelhecer 
-tenha pavor 
-e pânico
----
+1436
+
 Adolfo 
 você está 
 com os séculos 
 contados 
 Adolfo
 ---
+1435
+
 Eu acho que a gente podia...
 
 CORTA PARA
@@ -10451,20 +10640,24 @@ INTERIOR. VOZ DELA – NOITE
 
 VOZ DELA.	Eu só consigo te ver como amigo, Vinícius...
 ---
+1434
+
 a vaga 
 foi pro 
 bêjo
 ---
-como estava o funeral do Vinícius
+1433
 
-não tinha nem wi-fi você acredita
----
 amar não é decoreba
 ---
+1432
+
 me ama? 
 então diga que me ama
 nas normas da ABNT
 ---
+1431
+
 Querido,
 Como você está?
 Eu havia esquecido 
@@ -10473,9 +10666,14 @@ Da sua existência
 
 Ass: I. W.
 ---
+1430
+
 ladies and gentleman it’s THE STROKES
 ---
-é impressionante como você é bom 
+1429
+
+é impressionante 
+como você é bom 
 naquilo que você faz 
 vejo que estuda muito 
 trabalha duro 
@@ -10486,13 +10684,19 @@ qual é o segredo?
 
 100% Jesus
 ---
+1428
+
 Maria dizia eu te amo 
 para Pedro 
 que respondia 
 para Paulo
 ---
+1427
+
 tenho sobrado pra cachorro
 ---
+1426
+
 CONTINHO DE TERROR
 
 um morto senta na praça 
@@ -10500,36 +10704,45 @@ afinal de contos
 não dá para lhe seguir 
 o tempo todo
 ---
-felicidade não traz dinheiro
----
-delinquente cai em golpe das fake news 
-e acaba espalhando notícia verdadeira
----
+1425
+
 proclamar a independência alcoólica
 ---
+1424
+
 “não gosto muito de futebol 
 mas nada contra o racismo”
 ---
+1423
+
 um peixe nada 
-como um dia após o outro
+como um dia 
+após o outro
 ---
-Deputado Vinícius Knecht cria projeto de lei 
+1422
+
+Deputado Vinícius Knecht 
+cria projeto de lei 
 “Lei A.”
 ---
+1421
+
 Inteligência Artificial é réu primária
 ---
+1420
+
 o louco diz que é um viajante do tempo 
 o gênio é aquele que cria uma máquina do tempo
 ---
-e me conta eles ficam juntos no final?
+1419
 
-no final todo mundo morre meu amor
----
 do xadrez 
 para choque 
 mata 
 que pena
 ---
+1418
+
 a lua pisou no amor 
 pela primeira vez 
 no dia __/__/____
@@ -10537,64 +10750,88 @@ mas foi tudo inventado
 e o Stanley Kubrick que fez 
 aquelas filmagens
 ---
+1417
+
 MONÓ LOGO
 
 para quem não sabe o Vini foi
 ---
-você é a favor da escala ao Everest?
+1416
+
+você é a favor da escala 
+ao Everest?
 ---
+1415
+
 MODÉSTIA PARTE
 
 modéstia parte 
 fizemos grandes inimigos 
 temos que reconhecer
 ---
+1414
+
 CRÍTICA CONSTRUTIVA
 
 “belo concreto”
 ---
-um fantasma que não aguenta mais o que não vê
----
-um homofóbico que acredita mais nas fadas 
+1413
+
+um homofóbico que 
+acredita mais nas 
+fadas 
 que nos machos
 ---
+1412
+
 pai se você está mesmo lendo este livro 
 me diga o número desta página
 ---
-sombrio demais para chegar nela
+1411
+
+sombrio demais 
+para chegar nela
 ---
+1410
+
 abordar missão
 ---
-é muito solo para quem deseja voar
+1409
+
+é muito solo 
+para quem deseja 
+voar
 ---
-atiro a última flor e erro o alvo
+1408
+
+atiro a última flor 
+e erro o alvo
 ---
+1407
+
 defunto não faz piada com corpo
 ---
+1406
+
 os seus inimigos 
 por sorte 
 sobreviveram
 ---
-CHAPLIN
+1405
 
-no meu próximo filme 
-mudo
----
-é a sua sétima esposa
-mas talvez o seu grande amor
----
 acordo entre multidão 
 e silêncio 
 durmo com o Mick Jagger
 ---
-não invente de dar muita corda 
+1404
+
+não invente 
+de dar muita 
+corda 
 para músicos
 ---
-você é a favor de humanizar as pessoas?
+1403
 
-desculpe 
-não estudei economia 
----
 atenção, crianças! 
 prestem muita atenção.
 na aula de hoje, 
@@ -10608,34 +10845,42 @@ o tempo todo, postando cada segundo da sua vida…
 porque, obviamente, a verdadeira medida do sucesso 
 é o número de seguidores que vocês têm.
 então, lembrem-se: 
-se não estiverem conectados 24 horas por dia, atualizando suas redes e contando para todo mundo 
+se não estiverem conectados 24 horas por dia, 
+atualizando suas redes e contando para todo mundo 
 o que estão fazendo a cada momento, 
 pode esquecer. 
 vocês simplesmente não serão ninguém.
 
 (com Inteligência Artificial)
 ---
+1402
+
 nenhum humano 
-possui mais autoconhecimento
+possui mais 
+autoconhecimento
 do que uma pomba
 ---
+1401
+
 MAU HÁLITO
 
 dizem que tenho um péssimo gosto
 ---
-e ela tem um carrão
-com aquele seu 
-ka belo
----
+1400
+
 Vinícius Knecht dispensa apresentações 
 pois ninguém se importa 
 realmente 
 em conhecê-lo
 ---
+1399
+
 nas mãos ao pé da letra
 
 ARTE
 ---
+1398
+
 ela está sempre atrás de mim
 
 está te perseguindo?
@@ -10643,58 +10888,92 @@ está te perseguindo?
 não você não entendeu 
 eu sou a marionete
 ---
+1397
+
 amor eu confesso 
-usei inteligência artificial 
+usei inteligência 
+artificial 
 para amar você
 ---
+1396
+
 na sede da empresa
 tomei providências 
 não álcool 
+---
+1395
+
 rima não é solução
 mas eu detesto 
 dizer não
 ---
+1394
+
 deixa disso camarada 
 me vê camarão 
 e nada de cigarro
 barato
 ---
-“que depressivo lindo”
----
+1393
+
 estarei chorando 
-mas saiba que isso será 
-o máximo
+mas saiba que 
+isso será o máximo
 ---
-brincando de esconde-esconde 
+1392
+
+brincando de 
+esconde-esconde 
 em poesias
 ---
+1391
+
 capitalismo te massacrando 
 de felicidade
 ---
+1390
+
 o blues tá em todo encanto
 ---
+1389
+
 tá faltando vermelho
 ---
+1388
+
 bem lá bem no interior 
 transformam estrelas 
 em estrelenses
 ---
+1387
+
 o passarinho é o melhor amigo do homem
 ---
+1386
+
 rotina esconde rotas
 ---
+1385
+
 meu negócio é poesia
-e eu não ganho nada com isso
+e eu não ganho nada 
+com isso
 ---
+1384
+
 candidato confirma turnô
 veja datas 
 locais 
 e horrores
 ---
+1383
+
 psicóloga narcisista explica 
 como identificar 
 um narcisista
 ---
+1382
+
 PLOT TWIST
 
 no labirinto da memória 
@@ -10703,10 +10982,16 @@ e então
 estou fugindo 
 do Jack Nicholson
 ---
+1381
+
 o que eu não estou fazendo aqui?
 ---
+1380
+
 tudo tão fútil e especial
 ---
+1379
+
 POESIA CAUSA
 CÂNCER DE PULMÃO
 
@@ -10722,15 +11007,24 @@ POESIA INFARTA
 
 POESIA MATA
 ---
+1378
+
 leia um livro agora 
 senão você vai morrer
 ---
-homem é solto após pagar aliança 
+1377
+
+homem é solto 
+após pagar aliança 
 de 15 mil
 ---
+1376
+
 benzedeira ou benzetacil
 ver preço pesquisar
 ---
+1375
+
 você está me escondendo alguma coisa
 
 é só uma aliança amor
@@ -10740,50 +11034,70 @@ acredito
 
 uma aliança com o partido comunista amor
 ---
+1374
+
 REDE DE CASA
 
 notarão o seu sumiço 
 mesmo 
 só no seu emprego
 ---
-ChatGPT melhore o poema: EU TE ODEIO!!!
----
+1373
+
 você é muito talentoso
 
 obrigado acho que é a minha 
 invocação
 ---
+1372
+
 e qual é a sua história?
 
 você tem tempo?
 
 todo
 
-então vá aproveita-lo pois eu não tenho
+então vá aproveita-lo 
+pois eu não tenho
 ---
+1371
+
 quebrei o pé caminhando 
 e isso diz tudo 
 sobre um ossinho do meu pé direito 
 pensou que eu faria uma analogia?
 ---
+1370
+
 ele não dirige em cidade pequena
 ---
+1369
+
 percebo detalhes 
 que nem são 
 tão detalhes
 assim
 ---
+1368
+
 eu sou uma bicha no mato
 ---
+1367
+
 OPINIÕES CONTEMPORÂNEAS
 
 “Dostoiévski é superestimado”
 ---
-se eu não dormir agora 
+1366
+
+se eu não 
+dormir agora 
 eu perco o 
 bônus 
 amanhã
 ---
+1365
+
 INTERIOR. CASA DE VITÓRIA – DIA
 
 Isabela acorda sentindo-se criativa. 
@@ -10801,6 +11115,8 @@ Isabela vê os registros das câmeras.
 No momento em que a campainha tocou, não havia ninguém no portão. 
 Ninguém próximo à sua casa.
 ---
+1364
+
 EXTERIOR. CASA DE VITÓRIA – DIA
 
 Sobrevoamos a casa de Isabela 
@@ -10811,6 +11127,8 @@ Toca a campainha dezenas e dezenas de vezes.
 Toca a campainha de forma violenta. 
 Até a campainha, em algum momento, tocar.
 ---
+1363
+
 INTERIOR. CASA DE CULTURA MARIO QUINTANA – DIA
 
 Vinícius e Vitória terminam as gravações do curta-metragem sem nome definido. A sugestão é de “Companhia na campanhia”.
@@ -10821,6 +11139,8 @@ VITÓRIA.	Então... as gravações ficaram boas? Você mesmo vai editar?
 VINÍCIUS.	Já está tudo pronto. Vou lhe enviar o link para o seu e-mail. Olha só... na verdade eu escrevi o roteiro e convidei você para atuar… você sabe… para ter a desculpa de vir aqui e te encontrar... você sabe disso, não sabe?
 VITÓRIA.	Vini... você sabe que... você é meu amigo... Conta mais sobre o curta. O que você vai fazer com ele? 
 ---
+1362
+
 INTERIOR. CASA DE VITÓRIA – NOITE
 
 Vitória chega em casa. 
@@ -10848,8 +11168,8 @@ Não vê ninguém.
 Fantasmagórico.
 João atravessa a rua.
 ---
-EPÍLOGO
----
+1361
+
 que que você anda fazendo 
 por que você fala tanto em patrulha 
 como você é burro cara 
@@ -10859,17 +11179,24 @@ ou é a sua própria arte
 o seu serviço de vigilância 
 você escreve de uma maneira muito burra
 ---
+1360
+
 e o final 
-e o final todos nós sabemos
+e o final 
+todos nós sabemos
 um novo começo 
 se não para nós
 para os outros
 ---
+1359
+
 bom caminhar ao seu lado
 porque você faz pausas 
 e me ensina o que é correr 
 a favor do tempo
 ---
+1358
+
 a voz veio das nuvens 
 fim da linha poeta 
 e então subi 
@@ -10877,6 +11204,8 @@ disfarçado
 ainda assim 
 desconfiado
 ---
+1357
+
 Vinícius Knecht o que é a poesia?
 
 a poesia está em todas as artes 
@@ -10942,15 +11271,22 @@ você vem com essa para cima de mim?
 
 vem cá e me dá um abraço
 ---
+1356
+
 o importante é dar o último passo 
 ---
+1355
+
 por que você fez isso? 
 sério
 
 porque... você sabe... 
-eu acredito que ninguém pensaria que 
+eu acredito que ninguém 
+pensaria que 
 eu faria
 ---
+1354
+
 na escuridão do atempo 
 por que é escuro à noite
 os minutos finais da juventude 
@@ -10984,18 +11320,29 @@ por que é tão escuro durante o dia
 
 a morte
 ---
-nunca é demais plantar um museu 
+1353
+
+nunca é demais 
+plantar um museu 
 numa estrela
 ---
+1352
+
 somos artistas Vinícius 
 nós não passamos por borboletas 
 como se fôssemos formiguinhas 
 e nós jamais ofenderíamos as formigas
 ---
+1351
+
 me deixo nas mãos da arte
 ---
+1350
+
 brindamos com cacos de vidro
 ---
+1349
+
 Vinícius sentiu que 
 algo de bom 
 estava prestes a acontecer 
@@ -11009,96 +11356,44 @@ Vinícius saiu da cama
 vestiu a sua melhor roupa 
 e caminhou até o parque
 ---
-meu sonho era ser poeta 
+1348
+
+meu sonho 
+era ser poeta 
 agora é ser anjo
 ---
+1347
+
 foi perfeito mas 
 eu esperava mais
 ---
-WRITTEN AND 
-DIRECTED BY
-VINÍCIUS KNECHT
----
-Prólogo
-Primeira parte – Amor
-Segunda parte – Dor e sofrimento
-Terceira parte – Humor
-Epílogo
----
+1346
+
 Tá gravando?
 ---
-Cast
+1345
 
-Isabela – Isabela W. Agoniada
-Leonardo DiCaprio – Leonardo DiCaprio
-Vitória – Vitória Luísa
-Vinícius – Vinícius Knecht
-Mario – Quintana
-João – Lucas
-Airton – Airton Engster dos Santos
-Thom Yorke – Thom Yorke
-Adriani – Adriani Knecht
-Van Gogh – Vincent van Gogh
-Jorge – Jair Jorge Knecht
-Daniel – Daniel W. Arenhart
-Vô – José Roque Wendt
-Vó – Laine Wendt
-Adriano – Adriano Guindani
-Vivian – A Vivian
-Lylian – Lylian Cândido
-Matthew Perry – Matthew Perry
-Régis – Régis Ebeling
-Alex Turner – Alex Turner
-Guilherme – Guilherme Borchardt
-Binho – Fábio A. Costa B.
-João – João Miguel Ströher
-Kieran Culkin – Kieran Culkin
-João – João Marcos Graeff Bastos
-Ethan Hawke – Ethan Hawke
-Jim Carrey – Jim Carrey
-Brendan Fraser – Brendan Fraser
-Xavier Dolan – Xavier Dolan
-Kurt Cobain – Kurt Cobain
-Jonas Mekas – Jonas Mekas
-Jéssica – Jéssica M.
-Yoñlu – Vinicius Gageiro Marques
-Andrew Solomon – Andrew Solomon
-Clarice – Lispector
-Lina – Lina Justi
-Pâmela – Pâmela Costa
-Déo – Déo L. Moraes
-Paulo – Ciência
-Nati – Nataniel I. da Silva
-Ester – Na Mente
-Sara – Não Tem Nome
-Banksy
-Matilde – Matilde Campilho
-
-Music
-
-“Let Down” – Radiohead
----
-1ª Edição 
-Copyright © 2025 por Vinícius Knecht
----
-Texto: Vinícius Knecht
-Arte: Vinícius Knecht
-Revisão: Vinícius Knecht
----
 Este livro é baseado em fatos reais. 
 Além do poeta, nenhum animal foi ferido durante a produção.
 ---
+1344
+
 conheça os novos nem-nem
 nem reconhecimento
 nem respeito
 ---
+1343
+
 sou o dublê da felicidade
 ---
-olhar para o mundo e 
-pensar eu sou a pessoa 
-mais criativa da 
-minha história
+1342
+
+olhar para o mundo e pensar 
+eu sou a pessoa mais criativa 
+da minha história
 ---
+1341
+
 escrever a mão
 ---
 1340
