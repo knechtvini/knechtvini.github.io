@@ -6823,10 +6823,15 @@ em azul
 e o seu 
 em vermelho
 ---
+2030
+
 passado 
-a dependência em
-Marias e Josés
+a dependência 
+em Marias 
+e Josés
 ---
+2029
+
 NOTAS SOBRE ELA
 
 ela não vai 
@@ -6836,24 +6841,36 @@ você
 escreve 
 sobre ela
 ---
+2028
+
 não era insônia 
 era vigília 
 para a saudade
 ---
+2027
+
 tédio a dois 
 nunca é tédio
 ---
+2026
+
 primeiro o zíper 
 ou primeiro o botão
 ---
+2025
+
 novas saudades virão
 ---
+2024
+
 SEXO EM CRASE
 
 deixar
 a vontade 
 à vontade
 ---
+2023
+
 há muitas coisas 
 acontecendo 
 dentro de mim 
@@ -6862,95 +6879,156 @@ têm nome
 mas todas elas 
 têm fome
 ---
+2022
+
 sabe aquela pessoa 
 que você ama 
-e não fala isso para ela?
+e não fala isso 
+para ela?
 
 ela já morreu no futuro. 
 ---
+2021
+
 saudade vem de dentro 
 ou vem de fora?
 ---
+2020
+
 quanta vezes precisa voltar 
 para que não seja mais volta?
 ---
-amor não é duas pessoas 
+2019
+
+amor não é 
+duas pessoas 
 sendo tudo 
-uma para a outra 
-amor é bem menos 
+uma para 
+a outra 
+amor é bem 
+menos 
 que isso
 ---
+2018
+
 acreditar 
-que é mesmo amor 
+que é mesmo 
+amor 
 só acredito 
-quando não estou acreditando 
-que está acontecendo
+quando não estou 
+acreditando 
+que está 
+acontecendo
 ---
+2017
+
 és fogo 
 quando 
-tu me chamas
+tu me 
+chamas
 ---
+2016
+
 nalguns silêncios 
 amor precisa falar 
 mais alto
 ---
-amor é bem mais complexo 
+2015
+
+amor é bem 
+mais complexo 
 do que 
 separe-se
 ---
-viajamos e moramos na viagem
+2014
+
+viajamos 
+e moramos na viagem
 ---
+2013
+
 ME CHAME PELO SEU NOME
 
 se me chamares 
 pelo seu nome 
 eu vou olhar antes
 ---
+2012
+
 acordar 
 num amor 
 é um acordo 
-entre duas partes
+entre duas 
+partes
 ---
+2011
+
 amor dispensa curiosos
 ---
+2010
+
 amor que toca a companhia 
 e sai correndo
 ---
+2009
+
 amor oscila 
 entre desejo 
 e oscilação
 ---
+2008
+
 amar sem anestesia geral
 ---
+2007
+
 ela me encolheu 
 virei o seu a 
 feto
 ---
+2006
+
 traição quatro rodas
 ---
+2005
+
 há lilás 
 não quero 
 te verde 
 novo
 ---
+2004
+
 achei que viria um amor 
-meu time foi campeão do mundo 
+meu time foi campeão 
+do mundo 
 achei que viria um amor 
 ganhei na mega-sena
 ---
+2003
+
 asar no amor
 ---
+2002
+
 amor líquido sem álcool
 ---
+2001
+
 oi nós nos conhecemos? 
 
 não mas eu te sigo nas 
 ruas
 ---
+2000
+
 a manhã 
 em que ela 
-nunca mais voltou
+nunca mais 
+voltou
 ---
+1999
+
 é claro 
 que te amo 
 mas eu 
@@ -6958,18 +7036,23 @@ vou fazer
 o meu 
 feijão com arroz
 ---
-nosso amor foi uma febre
----
+1998
+
 ÓCULOS
 
 olhar sem armação
 ---
-já vi tantas Cenas de um Casamento
+1997
+
+já vi tantas 
+Cenas de um Casamento
 que o amor não me faz 
 mais piscar
 
 (em memória de Ingmar Bergman)
 ---
+1996
+
 lembra quando corri 
 até a parada
 para te encontrar 
@@ -6978,19 +7061,26 @@ no ônibus
 mas você 
 já estava 
 dentro do táxi
+
 é assim que eu vejo a vida
 ---
+1995
+
 então ouço Bee Gees 
 e lembro 
 do meu amigo que 
 está mais aqui
 ---
+1994
+
 SENTIMENTO VERMELHO
 
 esta é a parte do livro 
 em que eu escrevo 
 come on baby blue
 ---
+1993
+
 GETTING INTO THE SWING... 
 (and KINGS OF CONVENIENCE)
 
@@ -7030,6 +7120,8 @@ não gostei nem um pouco
 eu prefiro dançar 
 a conversar com você” 
 ---
+1992
+
 um 
 segundo 
 após 
@@ -7037,88 +7129,77 @@ um
 século 
 de amor
 ---
-deixou um escritor 
+1991
+
+deixou 
+um escritor 
 inspirado
 o deixando 
 sem palavras
 ---
+1990
+
 T’ESCOLHA
 
-me arrependo de amar você
+me arrependo 
+de amar você
 ---
+1989
+
 nunca sinta alguém
-por sentimentos de outros
+por sentimentos 
+de outros
 ---
-PRELIMINARES
+1988
 
-promessa de prazer 
-não quero ouvir mais um arrepio 
-uma chama mais que as outras
-sus surra num embriagado
-amarrado 
-e desvendado
-
-agora começa
-
-a boca dela... 
-a voz dela...
-o que entra nela... 
-o que sai dela...
-
-uma poesia. 
----
-LAS POESIAS
-
-vocês já sabem
-o que acontece 
-em Poesias
-não fica 
-só em Poesias
----
 amor feijão com maionese
 ---
-você entendeu tudo errado
+1987
 
-você disse com todas as letras 
-o tempo todo 
-que queria 
-morar comigo 
-ter filhos comigo 
-que me amava 
-e que queria ficar comigo 
-para sempre
-
-mas não literalmente Vinícius 
-você confundiu as coisas
----
 olha eu sei 
-as coisas não têm sido fáceis 
+as coisas não têm 
+sido fáceis 
 entre a gente 
 por isso decidi 
 fazer algo diferente 
-comprei duas passagens para Paris
+comprei duas passagens 
+para Paris
 
-eu não sei onde você quer chegar com isso 
+eu não sei onde você 
+quer chegar com isso 
 Vinícius
 
 PARIS!
 ---
+1986
+
 dos meus 
-melhores arrependimentos 
+melhores 
+arrependimentos 
 ter entrado 
 em você
 ---
+1985
+
 abanar o meu corpo 
 pois estou toda sua
 ---
+1984
+
 AMORES MODERNOS
 
 eu amei te conhecer 
 e estava pensando 
-poderíamos dar um tempo?
+poderíamos dar 
+um tempo?
 ---
-sentimentos errados nos artistas certos
+1983
+
+sentimentos errados 
+nos artistas certos
 ---
+1982
+
 tua boca 
 tuas pernas 
 teu cabelo 
@@ -7131,93 +7212,95 @@ mais lúcida
 que 
 nosso amor
 ---
-mais uma noite 
-dor
-mindo com você
-mais uma noite 
-dor
-mindo sem você
----
+1981
+
 pombos abandonados
 ---
-ela disse que as minhas maiores qualidades 
-são os meus defeitos 
+1980
+
+ela disse que as 
+minhas maiores 
+qualidades 
+são os meus 
+defeitos 
 vai entender
 ---
-divagar com o amor
----
-não suporto mais amar 
-só 
-e apenas
-através das artes
----
-eu não sou céu a mar
----
-se eu não tenho certeza 
-que é você 
-eu decido 
-que é você
----
-AMOR NOS RIOS DO PANTANAL
-[REMAKE]
+1979
 
-corpo 
-em 
-balsa 
-amado
----
 inspirado em você
 não para você
 ---
-se eu seguisse o meu caminho 
-eu teria que escrever 
+1978
+
+se eu seguisse 
+o meu caminho 
+eu teria 
+que escrever 
 por você?
 ---
+1977
+
 velho demais 
 para correr 
 por você
 ---
+1976
+
 no interior 
 não há pousadas
 
 só para passarinhos
 ---
+1975
+
 ela é melhor do que eu tinha certeza
 ---
+1974
+
 AMOR LÍQUIDO SEM ÁLCOOL
 
 ontem jorrava saliva 
 na minha boca 
 hoje somos a letra de 
+
 Somebody That I Used To Know
 ---
+1973
+
 assim que ten 
 entrei 
-pensei te ver saindo 
+pensei te ver 
+saindo 
 e ao te sair 
 a imagem de você 
 voltando 
 
 não havia seguranças
 ---
+1972
+
 passei a dar o seu sorriso
 ---
+1971
+
 para onde vocês estão levando 
 o corpo dela
 ---
+1970
+
 todas estão vestindo 
 sua máscara 
-e isso reflete profundamente 
+e isso reflete 
+profundamente 
 a moda contemporânea
 ---
+1969
+
 tenho sido 
 seu tecido
 ---
-ela jurou que me amava
+1968
 
-hoje em dia os efeitos especiais 
-estão cada vez melhores
----
 ontem ele mandou flores
 
 vocês combinam
@@ -7227,6 +7310,8 @@ nem carinhoso
 
 eu estou falando das flores
 ---
+1967
+
 conforme flores 
 com forma 
 de flores em flores 
@@ -7234,17 +7319,16 @@ para que eu
 consiga 
 apanhar sozinho
 ---
-juntos compomos 
-um soninho 
-até o nascer do sol 
----
-TINTA & PURGATÓRIO
+1966
 
-antes adiavam 
-um pouco 
-as penas 
-dos poetas
+juntos 
+compomos 
+um soninho 
+até o nascer 
+do sol 
 ---
+1965
+
 não lembro Absolut 
 amente nada 
 que eu li 
@@ -7252,29 +7336,44 @@ ou escrevi
 por trás 
 dos msmsmeus*(?) olhos
 ---
+1964
+
 te bêjo palavra
 ---
+1963
+
 falo dos olhos dela 
 ela muda de assunto
 fala dos meus 
 ---
+1962
+
 escreverei cada vez melhor 
 você querendo ou não 
 você nunca vai me amar 
 mesmo querendo
 ---
+1961
+
 nós sempre vamos sair no auge 
 nós sempre vamos sair no auge
 nós sempre vamos sair no auge
 ---
+1960
+
 você é a tradusol do que é o luar
 ---
+1959
+
 NÃO MONOGAMIA
 
-não foi a melhor traição que você já sofreu?
+não foi a melhor traição 
+que você já sofreu?
 
 SIM!
 ---
+1958
+
 emprestou-se 
 de corpo e alma 
 agora daria 
@@ -7282,18 +7381,16 @@ a mão
 para estar 
 de volta
 ---
+1957
+
 você mostrou sua cidade 
 eu mostrei meu mundo
 
-e sempre vou me perdoar por isso
+e sempre vou me perdoar 
+por isso
 ---
-sabe você é uma pes
-soa boa demais 
-para mim
+1956
 
-então o que fazer 
-para me tornar pior?
----
 CORTA PARA:
 INTERIOR. APARTAMENTO DE AMADA – NOITE
 
@@ -7302,6 +7399,8 @@ AMOR.	Tá gravando?
 SAUDADE.	E se eu corresse sorrindo… direto para os seus braços... veriam então... 
 o que eu vejo agora?
 ---
+1955
+
 INTERIOR. CASA DE VITÓRIA – DIA
 
 Telefone não toca. 
@@ -7329,27 +7428,38 @@ Espia pela última vez.
 Não há ninguém. 
 Isabela atravessa a rua.
 ---
-2. 
----
-pobre Gatsby
----
+1954
+
 a melhor terapia é a terapia
 ---
+1953
+
 talvez você se encontre 
 Isabela
 ---
-adultos ficam tão maduros 
+1952
+
+adultos ficam 
 tão maduros 
-que acabam ficando 
+tão maduros 
+que acabam 
+ficando 
 podres
 ---
+1951
+
 vocês têm dado 
-meus primeiros passos
+meus primeiros 
+passos
 ---
+1950
+
 transforme traumas em alívio
 transforme traumas em alívio
 transforme traumas em alívio
 ---
+1949
+
 O TITANIC
 
 para saber o rumo 
@@ -7358,24 +7468,40 @@ preciso saber
 do rumo 
 de outras pessoas
 ---
-lá no interior 
-bem lá no interior 
-minha vida sempre foi 
-um motivo de piada
+1948
+
+lá 
+no interior 
+bem lá 
+no interior 
+minha vida 
+sempre foi 
+um motivo 
+de piada
 ---
+1947
+
 O SHOW DE
 
-nunca fui amor de ninguém 
+nunca fui amor 
+de ninguém 
 só entretenimento
 ---
+1946
+
 quando me vejo 
 como lembranças 
-me sinto mais bonito
+me sinto mais 
+bonito
 ---
+1945
+
 o homem é o único animal 
 que aprecia ver outra alma 
 incendiando
 ---
+1944
+
 eu juros 
 a tristeza e a melancolia 
 moram nos meus olhos 
@@ -7385,17 +7511,27 @@ e hoje eu cobro bem caro
 
 O ALUGUEL
 ---
-às vezes lembram quem nunca fui 
+1943
+
+às vezes lembram 
+quem nunca fui 
 e me esqueço
 ---
+1942
+
 sou fantasma inútil 
 onde pousam anjos
 ---
+1941
+
 muitos torcem 
-pelo seu fracasso 
+pelo seu 
+fracasso 
 outros lutam 
 por ele
 ---
+1940
+
 não é vergonha
 pedir ajuda
 não é vergonha
@@ -7403,6 +7539,8 @@ implorar ajuda
 não é vergonha
 exigir ajuda
 ---
+1939
+
 você nunca esteve 
 preocupada em saber 
 como eu estava 
@@ -7412,6 +7550,8 @@ se eu
 ainda 
 estava vivo
 ---
+1938
+
 não está pior 
 porque está 
 sendo filmado 
@@ -7419,6 +7559,8 @@ está pior
  – e – está 
 sendo filmado
 ---
+1937
+
 dinheiro compra euforia 
 que compra ganância 
 que compra guerras 
@@ -7426,20 +7568,32 @@ que vende doenças
 que com o tempo 
 tenta comprar o tempo
 ---
-lutam melhor os que tiveram 
-os piores pesadelos
+1936
+
+lutam melhor 
+os que tiveram 
+os piores 
+pesadelos
 ---
+1935
+
 não me mato 
 me floresto
 ---
+1934
+
 guitarras do Kurt Cobain ainda estão afinadas
 ---
+1933
+
 todas as vezes em que penso desistir 
 repito a frase
 você não precisa decidir isso agora 
 você não precisa decidir isso agora
 você não precisa decidir isso agora
 ---
+1932
+
 a baleia nos disse 
 para nunca subesti 
 mar alguém que 
@@ -7448,23 +7602,32 @@ funda depressão
 
 Continua… 
 ---
-as pessoas costumam ficar 
+1931
+
+as pessoas 
+costumam ficar 
 o tempo todo 
 lembrando 
 que falhei 
 e daí me sinto 
 na obrigação 
 de lembra-las 
-que também falharam 
+que também 
+falharam 
 e detesto 
-ter que fazer isso
+ter que fazer 
+isso
 ---
+1930
+
 talvez apenas 
 meus amigos 
 me animam 
 mais do que 
 Friends
 ---
+1929
+
 qual o maior sentimento 
 da humanidade 
 na sua opinião
@@ -7473,14 +7636,23 @@ a fé
 
 ainda
 ---
-uma das coisas que eu mais odeio 
+1928
+
+uma das coisas 
+que eu mais odeio 
 na vida 
-é me sentir superior 
+é me sentir 
+superior 
 a alguém
 ---
+1927
+
 escrevendo poesia 
-com a asa direita quebrada
+com a asa direita 
+quebrada
 ---
+1926
+
 Chandler Muriel Bing
 The one with the Friends’ soul
 
@@ -7492,70 +7664,29 @@ Sorry.
 
 (em memória de Matthew Perry)
 ---
+1925
+
 estou com 
 depressão 
 me anima 
 depressa
 ---
-bem
-o que eu posso dizer 
-acredite 
-poucas vezes 
-você vai ouvir 
-de um artista 
+1924
 
-talvez por sorte 
-suicídio 
-não vai ser 
-a causa 
-da minha morte
----
-não exigem 
-dos seus 
-Deuses 
-o que exigem dos 
-ateus
----
-pintam o mês 
-de amarelo 
-na hora de salvar 
-a vida de alguém 
-ao seu lado 
-amarelam
----
-alguém por favor 
-faça cócegas 
-nos meus poemas mais tristes
----
-um artista 
-que consegue criar 
-e trabalhar 
-com o seu próprio **ego 
-nunca vai se sentir 
-*****pregado
----
-por que existem tantas pedras 
+por que existem 
+tantas pedras 
 nos trilhos de 
 trans?
 ---
+1923
+
 tive um quadro 
 que nunca tratei 
 plantas 
 que nunca plantei
 ---
-então Vinícius eu vou pedir que você 
-faça um novo exame
+1922
 
-qual doutor
-
-uma autópsia
----
-não riam do meu humor 
-riam dos meus sonhos
----
-aqui não sobrou nem a carcaça 
-de uma poesia
----
 Pipoca 
 um imenso taBUH 
 rápido 
@@ -7583,61 +7714,82 @@ monóxido de carbono
 
 (em memória de Yoñlu)
 ---
-a morte foi 
-uma surpresa 
-com alarmes tocando 
-No Surprises
----
-um artista que só tentava chamar a atenção 
+1921
+
+um artista que só 
+tentava chamar a atenção 
 de todo aquele mundo 
 que sempre fazia questão 
 de mata-lo
 ---
+1920
+
 é real 
-mas não significa 
+mas não 
+significa 
 que você 
-precisa sentir
+precisa 
+sentir
 ---
+1919
+
 você já reparou 
 que as pessoas 
-não estão falando muito sobre?
+não estão falando 
+muito sobre?
 
 não
 
-é porque você não reparou
+é porque você não 
+reparou
 ---
-toda a vida dele era escrita 
-apagaram
----
-o amigo imaginário 
+1918
+
+o amigo 
+imaginário 
 da infância 
 voltou 
 armado
 ---
+1917
+
 PÂNICO
 
 sentir seu coração 
 uma Ferrari 
 descontrolada 
 batendo 
-em ar…es…
+em ar…es… 
 ---
-fotografias tirando pessoas 
+1916
+
+emoções públicas 
+e emoções privadas
 ---
-emoções públicas e emoções privadas
----
+1915
+
 querida 
-seja a melhor paciente 
+seja 
+a melhor 
+paciente 
 com o tempo 
 você será 
-apenas cliente
+apenas 
+cliente
 ---
-seu animal político é apenas um animal
+1914
+
+seu animal político 
+é apenas um animal
 ---
+1913
+
 doutor 
 eu tenho quanto tempo 
 de morte 
 ---
+1912
+
 O INSCONSCIENTE
 
 encontrava-me então 
@@ -7672,13 +7824,20 @@ agarrando
 a minha 
 mãe 
 ---
+1911
+
 no trabalho 
-o chefe chama a atenção
+o chefe chama 
+a atenção
 
 “se liga nisso 
-você anda sempre desligada”
+você anda sempre 
+desligada”
 ---
-meus livros serão compartilhados 
+1910
+
+meus livros 
+serão compartilhados 
 pelo Sol 
 daqui a bilhões 
 de anos 
@@ -7687,6 +7846,8 @@ de uma estrela
 com a sua 
 morte
 ---
+1909
+
 às vezes 
 um pai au 
 sente 
@@ -7694,17 +7855,23 @@ sente
 pres 
 ente
 ---
+1908
+
 você me pregou 
 de surpresa 
 agora tenho 
 que sofrer 
 mais rápido
 ---
+1907
+
 sempre me escondi 
 bem lá no fundo 
 esperando 
 me encontrar
 ---
+1906
+
 mas calma 
 você não precisa se apavorar
 pois até o momento 
@@ -7716,25 +7883,40 @@ a mais próxima que tivemos
 
 explodiu-se em 5 de abril de 1994
 ---
-você só está aí deitada 
-ouvindo um disco do Joy Division 
-porque estrelas morreram 
+1905
+
+você só está aí 
+deitada 
+ouvindo um disco 
+do Joy Division 
+porque estrelas 
+morreram 
 há milhões de anos
 ---
+1904
+
 você está estritamente 
 proibida 
 de desenvolver 
 uma depressão 
-neste ambiente de trabalho
+neste ambiente 
+de trabalho
 ---
+1903
+
 chuva para secar as lágrimas
 ---
+1902
+
 um filme dramático 
 que virou comédia 
 por ser 
 um péssimo filme 
+
 é assim que eu vejo a vida
 ---
+1901
+
 exibiam seus desprezos 
 inúmeras fotos 
 de jovens mulheres 
@@ -7744,8 +7926,11 @@ fotografias
 ao fundo 
 tanques de 
 lavar roupas
+
 limpas
 ---
+1900
+
 estou em ruínas 
 há mais de trinta anos 
 alma mutilada 
@@ -7758,21 +7943,32 @@ de
 
 não ter sofrido o bastante
 ---
+1899
+
 esperando-a se confessar mais fraca
 ---
+1898
+
 torturar o Diabo seria pecado?
 ---
+1897
+
 maior facilidade 
 em engolir 
 comprimidos maiores
 ---
+1896
+
 Kundera disse que 
 poder viver apenas uma vida 
 é como não viver nunca
+
 Vinícius disse que 
 morrer apenas uma vez na vida 
 é como não morrer nunca
 ---
+1895
+
 escrevo 
 compulsiva
 mente 
@@ -7781,30 +7977,41 @@ me sentir
 menos 
 consciente 
 ---
-abusador entra em 
-festa de corpo 
+1894
+
+abusador 
+entra em 
+festa 
+de corpo 
 de penetra
 ---
-se está melhor talvez 
-já nem percebe
----
-sentimos tão pouco 
+1893
+
+sentimos 
+tão pouco 
 e pessoas 
 nos dão 
+
 menos 
 ---
+1892
+
 sua sensibilidade 
 olha para sua intensidade 
 que toca sua depressão 
 que beija sua ansiedade 
 que penetra na sua arte
 ---
+1891
+
 por que você não consegue criar 
 outras personagens
 
 porque todas acabariam sendo 
 eu mesma
 ---
+1890
+
 eu mesmo já morri 
 aos trinta 
 e virei um urubu 
@@ -7813,41 +8020,63 @@ de poesias mortas
 que nunca 
 foram veladas
 ---
-longe de serem mais sensatos 
+1889
+
+longe de serem 
+mais sensatos 
 depois de mortos 
-em cima d’eles imitações de palácios 
+em cima d’eles 
+imitações de palácios 
 ostentando 
 supostas importâncias
 ---
+1888
+
 depressão versa sobre 
 não conseguir ouvir 
 seus próprios silêncios
 ---
+1887
+
 súbitas ondas de ódio 
 o mar é tão gentil...
 ---
+1886
+
 atualmente 
 o mais triste 
 plantado 
-naquele cemitério
+naquele 
+cemitério
 ---
-amar você foi como ir 
+1885
+
+amar você 
+foi como ir 
 até o hospital 
 por conta de 
 uma espinha 
+
 e ser internado
 ---
+1884
+
 queria tanto 
-não ter o que dizer 
+não ter 
+o que dizer 
 naquele 
 instante
 ---
+1883
+
 nos extremismos 
 luz intensa 
 que cega 
 ou escuridão 
 total
 ---
+1882
+
 era como ter sua mãe 
 no ventre 
 e ouvi-la implorar 
@@ -7861,6 +8090,8 @@ para que
 a sua alma 
 não o abandonasse
 ---
+1881
+
 teve oito pretendentes
 
 o primeiro era mais bonito
@@ -7881,58 +8112,100 @@ todos se ajoelhavam da mesma maneira
 mas só um tinha bolhas 
 na alma
 ---
+1880
+
 fizeram um filho 
 sem dizer uma só 
 palavra
 ---
-silêncio Ludwig van Beethoven 
-eu não quero ouvir mais um 
+1879
+
+silêncio 
+Ludwig van Beethoven 
+eu não quero 
+ouvir 
+mais um 
 piano
 ---
-pus-me na sua sombra 
-e o sol desaparecera 
+1878
+
+pus-me 
+na sua sombra 
+e o sol 
+desaparecera 
 ponha-se 
 no meu lugar
 ---
+1877
+
 amor no signal
 ---
+1876
+
 eu vou do inferno ao seu
 ---
-não tinha a menor ideia 
+1875
+
+não tinha 
+a menor ideia 
 de qual olhar 
-e o que aquele olhar 
+e o que 
+aquele 
+olhar 
 lhe ameaçava 
-mas instintivamente 
-cismava em tentar 
+mas 
+instintivamente 
+cismava 
+em tentar 
 se defender
 ---
-ainda que sus 
+1874
+
+ainda 
+que sus 
 surrando 
 era uma 
 ordem
 ---
+1873
+
 arremessaram uma corda 
 para tirar aquele artista 
 do fundo do poço 
 mas ele usara 
 da forma mais triste
 ---
+1872
+
 era dia 
 claro
-a razão ven
+a razão 
+ven
 céu
 ---
+1871
+
 eu sinto muito a sua fala
 ---
-parei de ficar jogando as coisas por aí 
-porque eu sou muito frágil
+1870
+
+parei de ficar 
+jogando as coisas 
+por aí 
+porque eu sou 
+muito frágil
 ---
+1869
+
 dores 
 passando 
 pano 
-para outras 
+para 
+outras 
 dores
 ---
+1868
+
 Vinícius Knecht anuncia que 
 vai se aposentar como poeta 
 porque Xavier Dolan 
@@ -7940,32 +8213,53 @@ vai se aposentar como cineasta
 
 POR FALTA DE APOIO
 ---
-me questiono se minhas poesias 
+1867
+
+me questiono 
+se minhas poesias 
 são ruins 
-e eu sei que não são 
+e eu sei 
+que não são 
 ---
-o maior castigo da vida 
-está longe de ser 
+1866
+
+o maior 
+castigo 
+da vida 
+está longe 
+de ser 
 a morte
 ---
+1865
+
 eu não quero 
 que a minha filha 
 chegue perto 
 da sua poesia 
 você entendeu
 ---
+1864
+
 sangro antes mesmo 
 de tocar 
 nos cacos de vidro
 ---
+1864
+
 vou engolir as suas cinzas
 ---
-desamor pelo destino 
+1863
+
+desamor 
+pelo destino 
 como é simples 
 e ameno 
 se tornar 
-o que não se é
+o que não 
+se é
 ---
+1862
+
 ponto de fuga artística 
 voltar-se para dentro
 ---
