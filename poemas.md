@@ -1,6 +1,92 @@
 ---
 layout: default
 ---
+ESTE CONTEÚDO CONTÉM CENAS 
+DE CONSUMO DE CIGARROS E CAFEÍNA.
+---
+Quero dedicar este site ao amor da minha vida. 
+Aquele que jamais viverei, muito menos conhecerei.
+
+E ao Quentin Tarantino.
+---
+2648
+
+— Eu não sei, porque eu nunca tive. Mas eu imagino. 
+E eu sinto muito. Como começou? 
+Qual foi o motivo dessa depressão ter começado?
+— Porque. Porque, num Natal, a minha avó se atrapalhou 
+e me deu uma calcinha em vez de uma cueca. 
+Desde então, fui diagnosticado com depressão e estou 
+em tratamento até hoje.
+---
+2647
+
+— Qual é o limite do humor?
+— A fronteira do México com os EUA.
+---
+2646
+
+— Vou me mudar para a Europa. 
+Nós vamos morar na Espanha.
+— Bah, que notícia maravilhosa, cara! 
+Precisamos fazer uma festa de despedida. 
+De comemoração. Quando vocês se mudam?
+— Já estamos por Portugal.
+---
+2645
+
+— Se eu posso voar, deixa eu acreditar. 
+Sou apenas um espírito sob efeito de remédios controlados. 
+Duas almas que são imperfeitas uma para a outra. 
+Ouviu? Ouviu isso? POESIA, ME DEIXE EM PAZ, POESIA. 
+EU TAMBÉM TENHO UMA VIDA! É injusto como tantas pessoas 
+tão talentosas não podem simplesmente existir. 
+Por que as pessoas, todas as pessoas, são sempre tão más 
+umas com as outras? Não faz sentido. Julgamento. Controle. 
+Toda essa coisa. SOCIETY! SOCIETY! SOCIETY!
+
+(Em memória de Christopher McCandless, Into The Wild)
+---
+2644
+
+— Uma vez, fiquei tão chapado que comecei a chorar 
+por causa do talento da Clarice.
+— Clarice Lispector?
+E foi nesse olhar que o nosso amor passou de razoável 
+para brilhante. 
+— E, se eu pudesse te dar um único conselho para toda 
+a sua vida restante, não aceite menos que Beatles.
+— A banda?
+Meu. deus.
+---
+2643
+
+— Eu menti. Eu não vou ao psicólogo. 
+Eu vou ao psiquiatra. 
+De três em três meses.
+— Particular?
+— Óbvio. 
+Por que eu tornaria isso público?
+---
+2642
+
+— Na cena, ele está sozinho no bar, escrevendo exatamente o que acontece. 
+E muita coisa está acontecendo. O texto vai ganhando adjetivo, exageros. 
+Mas, no fim, é só uma cena, entende? Não há verdade ali. As coisas já não 
+acontecem mais. Você realmente acredita que conseguiria conversar de igual 
+para igual com o Jack White, por exemplo? Sem bebida, sem cigarro, sem jaqueta 
+de couro, sem baixista, sem humanos. Só caretas e frases. Apenas diálogos. 
+Você e Jack fucking White.
+---
+2641
+
+— Acendi uma vela querendo ser romântico 
+e o apartamento da Cláudia explodiu. 
+Havia um vazamento de gás. 
+Estou tremendo até agora.
+— E ela está bem?
+— Está tremendo até agora.
+---
 2640
 
 — Papai, quem mora na lua é o quê?
