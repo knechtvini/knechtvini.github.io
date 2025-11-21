@@ -7969,42 +7969,72 @@ o que não se é
 ponto de fuga artística 
 voltar-se para dentro
 ---
-não fornecia esclarecimento a respeito 
-impressões sucintas 
-mesmo na comunidade literária 
-especialmente na amorosa
-nunca chamou a atenção
+1861
+
+não fornecia 
+esclarecimento 
+a respeito 
+impressões 
+sucintas 
+mesmo na comunidade 
+literária 
+especialmente 
+na amorosa
+nunca chamou 
+a atenção
 ---
+1860
+
 só 
 tentando não 
 tropeçar 
 enquanto não 
 escrevo
 ---
+1859
+
 faço justiça com minhas próprias imaginações
 ---
-espelho da minha vida interior 
+1858
+
+espelho da minha 
+vida interior 
 passivo de herói 
 apenas ter 
 o mero efeito 
-de construção artística 
+de construção 
+artística 
 como forma de 
 imperfeições
 ---
+1857
+
 escritos em excesso 
-sinto-me lutando pela inexistência
+sinto-me lutando 
+pela inexistência
 ---
-você prendeu a minha solidão 
-que me era tão violenta
+1856
+
+você prendeu 
+a minha solidão 
+que me era 
+tão violenta
 ---
+1857
+
 quando não dói 
-lembro o tanto que doía
+lembro o tanto 
+que doía
 ---
+1856
+
 do parto 
 parti para 
 a parte 
 que parte
 ---
+1855
+
 tenho 
 tanto 
 o que 
@@ -8016,128 +8046,205 @@ me precipitei
 
 O PRECIPÍCIO
 ---
+1854
+
 sinto que 
 só
 apanhava 
 de cinto
 ---
+1853
+
 em cactos 
 de vidro 
-plantão 24h de poesia
+plantão 24h 
+de poesia
 ---
+1852
+
 ela estava ali 
 para proteger-me 
 de si
 ---
+1851
+
 eu pensando nela
 ela pensando nela
 ---
-crise existencial ultrapassa crise econômica
+1850
+
+crise existencial 
+ultrapassa crise 
+econômica
 ---
+1849
+
 amor 
 minha
 palavra 
 pré
 ferida
 ---
+1848
+
 termino 
 um livro 
 não me 
 livro
 ---
+1847
+
 teu futuro te condena
 ---
+1846
+
 poeta apanha da vida 
 e poesia é aplaudida
 ---
-chega uma hora que morrer enjoa
+1845
+
+chega uma hora 
+que morrer enjoa
 ---
+1844
+
 GLOBALIZAÇÃO
 
-a morte envia indiretas 
+a morte envia 
+indiretas 
 em tempo real
 a vida toda
 ---
+1843
+
 UM SER SENSÍVEL
 
-não saberia sequer entrar 
+não saberia 
+sequer entrar 
 num ringue
 ---
-eis que em todos esses anos 
+1842
+
+eis que em todos 
+esses anos 
 o monstro morava 
 em cima da cama
 ---
+1841
+
 olhar 
 para o céu 
 amortece 
 o medo 
 da morte
 ---
+1840
+
 poesia deveria ser 
 um tiro no peito 
 de quem usa colete 
 à prova de balas
 ---
+1839
+
 é como se o olho mágico 
 fosse de fora para dentro
 ---
+1838
+
 morte é escrever poesia à lápide
 ---
+1837
+
 sentia que era 
 o melhor paciente 
-que os meus problemas 
+que os meus 
+problemas 
 através da forma 
 que eu contava 
-eram os mais interessantes
+eram os mais 
+interessantes
 ---
+1836
+
 do fundo do poço 
-passou a ver as pessoas 
+passou a ver 
+as pessoas 
 lá de cima
 ---
+1835
+
 somos uma obra de morte
 ---
+1834
+
 finada poesia 
-lhe entrego um poeta
+lhe entrego 
+um poeta
 ---
+1833
+
 às vezes eu sinto 
-que a vida é como se fosse 
+que a vida é como 
+se fosse 
 um ídolo chutando 
 seu próprio fã
 ---
+1832
+
 artista trabalha 
 na vida 
-para quem se atrapalha 
+para quem 
+se atrapalha 
 na vida
 ---
+1831
+
 escrevo na condição de 
 sobrevivente
 ---
+1830
+
 no final 
-da sua última carta 
+da sua última 
+carta 
 dizia que 
 nem a arte 
-lhe fazia mais sentido
+lhe fazia mais 
+sentido
 ---
-exausto de folhas em branco
----
+1829
+
 depressão e criatividade 
 se separam 
 após doze anos 
 de relacionamento
 ---
+1828
+
 artista sofre pra cachorro 
 rato 
 leão 
 formiga 
 passarinho…
 ---
-vesti minha melhor roupa para a festa 
-a dor pensou que foi para ela
+1827
+
+vesti minha melhor 
+roupa para a festa 
+a dor pensou que 
+foi para ela
 ---
+1826
+
 sobe o preço da poesia
 ---
+1825
+
 condeno ataques de pânico
 ---
+1824
+
 PÂNICO
 
 meu medo 
@@ -8145,6 +8252,8 @@ dirigiu-se
 às vias 
 respiratórias
 ---
+1823
+
 PÂNICO
 
 tanto gatilho 
@@ -8152,40 +8261,60 @@ que me sinto
 um 
 arsenal
 ---
-sorteei minha alma 
+1822
+
+sorteei minha 
+alma 
 os vencedores 
 não quiseram 
 receber 
 o prêmio
 ---
-me enfrento todos os dias 
-costumo perder
----
-da noite para o dia 
+1821
+
+da noite para 
+o dia 
 percebi que 
 meus objetivos 
 não eram 
 meus sonhos
 ---
-depender de dom e vocação 
+1820
+
+depender de dom 
+e vocação 
 é algo 
 muito perigoso
 ---
+1819
+
 há uma voz 
 gritando 
 na minha cabeça 
-você não vai conseguir 
-eu vou deixá-la rouca
+você não vai 
+conseguir 
+eu vou deixá-la 
+
+rouca
 ---
+1818
+
 venci a depressão
 fiquei em 
 terceiro lugar
 ---
+1817
+
 amei o jeito 
-que você me abandonou
+que você me 
+abandonou
 ---
+1816
+
 me tiro na cabeça
 ---
+1815
+
 elogiando 
 minha poesia 
 ela estava 
@@ -8193,31 +8322,15 @@ indiretamente
 elogiando 
 minha dor
 ---
-anjo na guitarra 
-você chegou 
-no solo 
-antes 
-do que eu
----
+1814
+
 conheça os novos 
 nem-nem
 nem reconhecimento
 nem respeito
 ---
-você não tem 
-vergonha 
-de chegar aqui 
-deprimido 
-desse
-jeito?
----
-por deus 
-nunca vou 
-iniciar 
-seu nome 
-com letra 
-maiúscula
----
+1813
+
 DEPRESSÃO
 
 com o astigmatismo 
@@ -8226,117 +8339,165 @@ três luas
 
 olha só
 ---
+1812
+
 poeta acamado pelo público
 ---
+1811
+
 num mundo distópico 
 eu faço sucesso
 ---
+1810
+
 estou sofrendo tanto
 
 mas está bem escrito? 
 ---
+1809
+
 pode ficar lá fora um pouquinho?
 eu não quero que você me veja 
 tomando medicamentos
 ---
+1808
+
 a diferença era que 
 ele só a visitava 
 no sol 
 e ela visitava ele 
 no atemporal
 ---
+1807
+
 adultos brincam 
 de esconde-esconde 
 para chorar 
 em banheiros
 ---
-não me considerava a pessoa certa 
+1806
+
+não me considerava 
+a pessoa certa 
 para mim
 ---
+1805
+
 FLASHBACK ANTES DA MORTE
 
 melhores momentos 
 ou 
 maiores arrependimentos? 
 ---
-eu só precisava me esconder 
+1804
+
+eu só precisava 
+me esconder 
 mas eu só tinha 
 o meu corpo
 ---
+1803
+
 dancei com depressão 
 me senti um
 herói de guerra
 
 UNDER PRESSURE
 ---
+1802
+
 Querida, 
 Você está esperando o amor 
 E não a morte.
 
 Ass: V.K.
 ---
+1801
+
 pode ler a minha mente 
 mas eu não uso 
 vírgulas
 ---
+1800
+
 acabei de receber a notícia 
-de que ele se matou 
-estou em choque
+de que ele se matou estou 
+em choque
 
 mas ele se vitimizava 
-o tempo todo 
-né amiga
+o tempo todo né amiga
 ---
-olha para ele 
-ele está 
-visivelmente 
-deprimido
+1799
+
+olha para ele ele está 
+visivelmente deprimido
 
 hum não acho que esteja
-tão visível
-assim
+tão visível assim
 ---
-estou vendendo minha arte 
+1798
+
+estou vendendo 
+minha arte 
 tanto quanto 
 dizem 
-que o Van Gogh 
+que Van Gogh 
 vendia a sua
 ---
+1797
+
 quem sou eu 
 para falar 
 assim comigo 
 desse jeito
 ---
+1796
+
 não basta ser pesadelo 
-tenho que estar 
-num labirinto
+tenho que estar num 
+labirinto
 ---
+1795
+
 para alguns solitários 
-noites serão 
-mais lembradas
+noites serão mais lembradas
 que companhias
 ---
+1794
+
 você vive com sono Vinícius?
 
-na verdade eu vivo com ansiedade e falta de ar 
+na verdade eu vivo com ansiedade 
+e falta de ar 
 você respira fundo quando boceja 
 e joga mais oxigênio nos pulmões 
 ou seja 
 eu bocejo para respirar melhor
 entendeu agora
 ---
+1793
+
 frestas da janela 
 festas da solidão
 ---
-quando a mulher já nasce 
+1792
+
+quando 
+a mulher 
+já nasce 
 fugindo 
-de predadores
+de 
+predadores
 ---
+1791
+
 RADIOHEAD EM RIMA
 
 Let Down 
 no meu funeral
 ---
+1790
+
 DOIS DIAS ANTES DA PRÓXIMA CONSULTA
 
 “Droga Agora Começou A Tocar 
@@ -8344,6 +8505,8 @@ Hallelujah Versão De Jeff Buckley”
 “Droga Agora Começou A Tocar 
 Hurt Versão De Johnny Cash”
 ---
+1789
+
 DOIS DIAS ANTES DA PRÓXIMA CONSULTA
 
 Já É Quarta-Feira 
@@ -8351,16 +8514,22 @@ E Não Escrevi
 Nada Que Preste 
 Na Vida
 ---
+1788
+
 então eu vim tentar 
 a terapia 
 para ver se ela 
 me supera
 ---
+1787
+
 se a vista da janela 
 for assustadora 
 faça de conta 
 que ela é um quadro
 ---
+1786
+
 medo de 
 descobrir 
 os segredos 
@@ -8369,6 +8538,8 @@ e a vida
 me punir 
 por isso
 ---
+1785
+
 um dia 
 um passarinho 
 me contou 
@@ -8376,6 +8547,8 @@ que voar
 nunca foi 
 um sonho dele
 ---
+1784
+
 um dia 
 o mar 
 me disse 
@@ -8384,11 +8557,15 @@ ser alguém
 é saber 
 mergulhar
 ---
+1783
+
 a poesia 
 não me paga
 mas também 
 não me apaga
 ---
+1782
+
 depressão e ansiedade 
 juntas 
 é esconder-se 
@@ -8398,30 +8575,53 @@ no mesmo lugar
 em que o ladrão 
 está se escondendo
 ---
-felicidade é o que a tristeza permitir 
+1781
+
+felicidade é 
+o que 
+a tristeza 
+permitir 
+
 no momento
 ---
+1780
+
 poesia tarja preta 
 com efeitos colaterais
 ---
+1779
+
 e quanto às suas dores 
 quem vai falar delas 
 senão você?
 ---
+1778
+
 dos piores inimigos 
 dificilmente 
 ficaremos sabendo
 ---
-comuniquem minha família 
+1777
+
+comuniquem 
+minha 
+família 
 meus amigos 
-e demais conhecidos 
-que ainda estou 
+e demais 
+conhecidos 
+que ainda 
+estou 
 para nascer
 ---
-papai por que às vezes os amigos somem?
+1776
+
+papai por que às vezes 
+os amigos somem?
 perguntei a mim mesmo 
 fingindo ter um filho
 ---
+1775
+
 DESCARTO O SEGUINTE POEMA
 
 penso 
@@ -8429,20 +8629,33 @@ que logo
 logo vou 
 existir
 ---
+1774
+
 penso logo desisto
 ---
+1773
+
+FILTRO
+
 ao vivo 
 é sempre 
 mais 
 colorido
 ---
+1772
+
 era poeta 
-e ninguém fazia muita questão
+e ninguém fazia 
+muita questão
 ---
+1771
+
 ele perdoa pessoas 
-sem que elas tenham pedido
-desculpa
+sem que elas tenham 
+pedido desculpa
 ---
+1770
+
 comecei a escrever 
 porque queria ajudar 
 a pessoa mais triste 
@@ -8451,43 +8664,68 @@ que eu conhecia
 na minha vida
 eu
 ---
+1769
+
 lembro bem do dia 
 em que a melancolia 
 criticou o amor
+
 “ele é tão melancólico”
 ---
+1768
+
 já imaginou morrer 
 no dia mais feliz 
 da sua vida 
 ---
+1767
+
 futuro 
-que eu quero 
+que eu 
+quero 
 esquecer
 ---
+1766
+
 estou no fundo 
 do posso
 ---
+1765
+
 ADULTOS
 
-tenta atropelar passarinhos 
-porque já tem a certeza 
+tenta atropelar 
+passarinhos 
+porque já tem 
+a certeza 
 de que nunca vai 
 alcança-los
 ---
+1764
+
 não adianta estar 
 preso 
 no paraíso
 ---
-olhei para o céu para sofrer 
-caiu a pena de um anjo 
-acho que a gente sofre parecido
+1763
+
+olhei para o céu 
+para sofrer 
+caiu a pena 
+de um anjo 
+acho que a gente sofre 
+parecido
 ---
+1762
+
 sempre preparado 
 para o pior 
 chega o pior 
 e sempre 
 me surpreende
 ---
+1761
+
 CRIANÇAS
 
 infância 
@@ -8496,6 +8734,8 @@ feliz
 quando era 
 muinto
 ---
+1760
+
 sentimos mais 
 que os outros 
 ou os outros 
@@ -8503,49 +8743,76 @@ não querem
 falar 
 sobre isso?
 ---
+1759
+
 os homens 
 também 
 sentem 
 que não 
 sentem
 ---
+1758
+
 as piores despedidas 
 são sempre aquelas 
 que acontecem
 ---
+1757
+
 escrever para cicatrizar
 ---
+1756
+
 não deixe que o seu dia 
 estrague a sua vida 
 não deixe que a sua vida 
 estrague o seu dia
 ---
-eu me entrego 
-mas sempre me pego 
+1755
+
+eu me 
+entrego 
+mas sempre 
+me pego 
 de volta
 ---
-parecia que ele estava 
-sempre se despedindo 
+1754
+
+parecia que 
+ele estava 
+sempre se 
+despedindo 
 do mundo 
 e isso 
 o encantava
 ---
+1753
+
 Vinícius esgotado 
-em menos de trinta e três anos 
+em menos de trinta 
+e três anos 
 considera-se sucesso 
 de bilheteria
 ---
+1752
+
 machuca-se fácil 
 aquele que veste 
 muitas armaduras
 ---
+1751
+
 escrevo por aparelhos
 ---
+1750
+
 dor perde 
 a criativ
 idade 
 com a arte
 ---
+1749
+
 SAUDADE
 
 quando 
@@ -8554,6 +8821,8 @@ final
 mente
 em caixa
 ---
+1748
+
 AUTOAJUDA
 
 o mais importante 
@@ -8562,24 +8831,40 @@ a depressão
 o mais importante 
 é competir
 ---
-lembrança de quando fui 
+1747
+
+lembrança 
+de quando fui 
 num zoológico 
-pela primeira vez 
+pela primeira 
+vez 
 eu parecia 
 o animal 
 mais triste
 ---
+1746
+
 RD – Recursos Desumanos
 ---
+1745
+
 tu tropeças teatrais
 ---
+1744
+
 DSM-5 edição de bolso
 ---
-fantasmas que vão te assustar 
-apenas quando você 
+1743
+
+fantasmas que 
+vão te assustar 
+apenas quando 
+você 
 também for 
 um fantasma
 ---
+1742
+
 DEPRESSÃO
 
 mais goteiras 
@@ -8587,13 +8872,18 @@ dentro
 do que chuva 
 fora
 ---
+1741
+
 Deus 
 sabe 
 o que 
 Diabos 
-tinha na 
+tinha 
+na 
 cabeça
 ---
+1740
+
 CORTA PARA:
 INTERIOR. APARTAMENTO DE LINDA – NOITE
 
@@ -8603,33 +8893,43 @@ LINDA.	Acabou, Vini... eu quero terminar.
 VINÍCIUS.	Mas aconteceu alguma coisa? Sério. Não precisava disso.
 LINDA.	É só uma lembrancinha...
 ---
+1739
+
 acadêmico 
 estudioso 
 dedicado 
 visitou dezenas 
-de clínicas psiquiátricas 
+de clínicas 
+psiquiátricas 
 todas elas 
 paciente
 ---
+1738
+
 minha poesia foi uma febre
 ---
-morrendo fazendo 
-o que mais gosto 
-viver
----
+1737
+
 cada um 
-com a sua utopia 
+com a sua 
+utopia 
 a minha é 
 sobreviver
 ---
+1736
+
 como a natureza ousa
 invadir os humanos
 ---
+1735
+
 ALHO E ÓLEO SOBRE TELA
 
 Nome: Pedra
 Data: No meu caminho
 ---
+1734
+
 A PEDRA
 
 sempre me lembro 
@@ -8649,39 +8949,41 @@ uns para os outros”
 acho que o caminho 
 é por aí
 ---
+1733
+
 oportunidade de ouro 
 para você ficar 
 mais pobre
 ---
-ego sujo e mundo 
----
-você tem dom 
-vocação 
+1732
+
+você tem dom vocação 
 muito talento
 
 você está sendo injusta 
 com o meu sofrimento
 ---
+1731
+
 sem se despedir 
 de ninguém 
-porque há mais de vinte anos 
+porque há mais 
+de vinte anos 
 que vive ali 
 sente-se 
 sozinho
 ---
-às vezes 
-a arte tem o dever 
-de errar 
-a natureza 
-nem sabe 
-o que é isso
----
-espécie de poesia nativa 
+1730
+
+espécie 
+de poesia nativa 
 que reconstitua 
 o sentimento 
 que foi 
 destruído
 ---
+1729
+
 DEPRESSÃO
 
 por Ana Claudia Quintana Arantes 
@@ -8729,6 +9031,8 @@ direto para as suas pernas...
 veria então…
 o que eu vejo agora?
 ---
+1728
+
 eu preciso construir 
 um cemitério 
 para passarinhos 
@@ -8748,6 +9052,8 @@ que eu encontrei a
 
 POESIA
 ---
+1727
+
 as janelas cumprirão 
 apenas um papel 
 decorativo 
@@ -8755,22 +9061,24 @@ na casa
 
 (para Van Gogh)
 ---
+1726
+
 a medida de um QI 
 raramente
 se assemelha 
 ao diâmetro da alma
 ---
-deixando a Terra 
-pintada de sangue 
+1725
+
+deixando 
+a Terra 
+pintada 
+de sangue 
 derramou 
 o azul
 ---
-verso mais que penso
-poesia muito mais que raciocínio
----
-abandonou a página
-abandonou todo o passado
----
+1724
+
 sentava na frente 
 para me sentir 
 o piloto 
@@ -8778,24 +9086,30 @@ hoje sento na frente
 para sero primeiro 
 a ir embora
 ---
-nos chamam de loucos 
-mas o que esses normais 
+1723
+
+nos chamam de 
+loucos 
+mas o que esses 
+normais 
 estão fazendo 
 que preste
 ---
+1722
+
 PAIS E FILHOS
 
-você não pensou em nós antes 
+você não pensou 
+em nós antes 
 de ter depressão?
 ---
-minha mãe 
-me penteou
-minha poesia 
-me enterrou
----
+1721
+
 azar na vida
 sorte na arte
 ---
+1720
+
 tenho que anunciar 
 a gravidez da velha poesia 
 tenho que anunciar 
@@ -8808,6 +9122,8 @@ e todas as solidões sem sentido
 minha infância teve a voz 
 dos meus olhos
 ---
+1719
+
 sua vida 
 é uma 
 mentira 
@@ -8817,32 +9133,26 @@ que você
 acreditou 
 nela
 ---
+1718
+
 só, 
 mais um 
 poeta
 ---
-a morte acordou comigo 
+1717
+
+a morte acordou 
+comigo 
 e fomos passear 
 no último passeio 
 eu já desconfiava 
-e isso ninguém ficou sabendo
+e isso ninguém ficou 
+sabendo
 ---
-sinto muito mas já escreveram isso
+1716
 
-do mesmo jeito que eu senti?
----
-por que você ainda escreve poesia?
-
-acredito que é minha maneira diária 
-de me despedir
----
-natureza humana se trata na Terra
-natureza humana se trata da terra 
----
-os pobres morrem de fome 
-em massas
----
-será que vou assistir 
+será que vou 
+assistir 
 o seu show 
 ou será que 
 finalmente 
@@ -8850,6 +9160,8 @@ eu vou aprender
 a não dançar 
 no final
 ---
+1715
+
 SEIS
 
 decidi que 
@@ -8869,33 +9181,46 @@ então lamente
 apenas duas vezes 
 no mesmo dia
 ---
-seria clichê demais
+1714
+
+seria clichê 
+demais
 terminar mal 
 no final
 ---
+1713
+
 morte
 es
 cura
 ---
-a dor está no ar
----
+1712
+
 minha sorte 
 que não alcanço 
 o teto 
 e não dou corda 
 para as cadeiras
 ---
-a atenção só quer chamar você
----
+1711
+
 o fim de um novo começo 
 o começo de um novo fim
 ---
-se eu escrever não chores não 
+1710
+
+se eu escrever 
+não chores não
+
 é só poesia
 ---
+1709
+
 tenho cicatrizes imaginárias
 imaginárias para vocês
 ---
+1708
+
 O QUADRO
 
 como você 
@@ -8903,16 +9228,24 @@ decora
 tudo que 
 você sente
 ---
-mamãe um dia entenderá
+1707
+
+mamãe um dia 
+entenderá
 que eu 
 poderia 
 ter partido 
 muito 
 antes
 ---
-estou guardado nas nuvens 
+1706
+
+estou guardado 
+nas nuvens 
 do seu drive
 ---
+1705
+
 de vez em quando 
 sinto a sua falta 
 por ex 
@@ -8924,10 +9257,15 @@ humilhações
 
 você costumava estar lá
 ---
+1704
+
 confesse 
-você chorou com outro 
+você chorou 
+com outro 
 ontem 
 ---
+1703
+
 você 
 me preparou 
 um belo 
@@ -8937,6 +9275,8 @@ me preparou
 para 
 terminar
 ---
+1702
+
 é hora de 
 bater o ponto
 .
@@ -8948,16 +9288,24 @@ bater as asas
 
 o céu espera a coragem.. .
 ---
+1701
+
 este poeta não me passa uma energia muito boa
 
 é muita gente deve ter morrido ali dentro
 ---
+1700
+
 no meu aniversário 
 ela deu um passado 
 de presente
 ---
+1699
+
 um ridículo com repertório
 ---
+1698
+
 fizemos tantos
 planos 
 e agora penso 
@@ -8967,6 +9315,8 @@ para estar
 em outro 
 plano
 ---
+1697
+
 saiu da sala do psicólogo 
 a mãe que conseguiu ouvir tudo 
 lá do lado de fora 
@@ -8975,12 +9325,16 @@ de como era lá dentro
 disse 
 você não deveria ter dito aquilo
 ---
+1696
+
 o que vocês ainda esperam de mim
 ainda esperam algo de mim
 já não escrevi o insuficiente
 
 o que vocês ainda esperam de mim
 ---
+1695
+
 INTERIOR. CASA DE VITÓRIA – DIA
 
 A televisão está desligada. 
@@ -9015,55 +9369,75 @@ Em vida.
 O roteiro parece tão criativo. 
 Isabela atravessa a rua.
 ---
-3.
----
-pobre Gatsby
----
+1694
+
 e foi então 
 que Deus inventou 
 que Deus existe
 ---
+1693
+
 hoje em dia 
 pessoas já discordam 
 das perguntas
 ---
+1692
+
 gostaria 
 humildemente 
 me retratar aqui 
 mas não sou 
 nenhum pintor
 ---
+1691
+
 você é o meu chuchu 
 
 você é o meu pepino
 ---
+1690
+
 Menos informações em breve.
 ---
+1689
+
 SOBRE O ATUAL ESTADO DA POÉTICA 
 
 você gosta de uma prosa?
 
 Prozac?
 ---
+1688
+
 ouço os vizinhos 
 cochicharem tanto 
 porque na verdade 
 eles estão gritando
 ---
+1687
+
 a cada dez minutos 
 uma mulher é entediada
 ---
-os únicos artistas locais 
+1686
+
+os únicos artistas 
+locais 
 reconhecidos 
-nas pequenas cidades do interior 
+nas pequenas cidades 
+do interior 
 são os turistas
 ---
+1685
+
 começou a 
 circular 
 nas redes 
 mentes 
 quadradas
 ---
+1684
+
 a única 
 inteligência 
 que um 
@@ -9071,8 +9445,11 @@ escritor
 pode 
 subestimar 
 é a 
+
 sua
 ---
+1683
+
 comida ou sexo? 
 
 sexo
@@ -9081,34 +9458,30 @@ sexo ou poesia?
 
 bah
 ---
+1682
+
 você ainda acredita em Deus? 
 
 o padre responde que sim
 
 vai passar
 ---
-ENTREVISTA DE EMPREGO
+1681
 
-mas verdadeira até uma cobra-coral é
----
-um poeta pode ser 
-extremamente perigoso 
-nas 
-suas 
-últimas semanas
----
-quando estou escrevendo 
-demoro mais 
-para gozar
----
-o superpoder já tenho
+o superpoder 
+já tenho
 invisibilidade 
-só não sou nenhum super-herói
+só não sou nenhum 
+super-herói
 ---
+1680
+
 pretensioso seria 
 seguir carreira solo 
 com a mesma banda
 ---
+1679
+
 BRAZIL
 
 criança pedindo dinheiro em semáforo no Acre 
@@ -9116,30 +9489,31 @@ gera revolta nas redes sociais
 
 “este vagabundo deveria estar trabalhando”
 ---
+1678
+
 o que choca 
 menos 
 a sociedade 
 que um 
 galinha?
 ---
+1677
+
 dando 
 o redondo 
 contra 
 o quadradismo 
 do mundo
 ---
+1676
+
 você ainda fuma?
 
 não 
 só quando eu tento parar
 ---
-risível 
-se opor 
-ao humor 
-chorável 
-se rir 
-da delinquência
----
+1675
+
 eu sou escritor
 
 hum e você ganha dinheiro com isso?
@@ -9147,11 +9521,15 @@ hum e você ganha dinheiro com isso?
 sim inclusive alcancei o meu primeiro
 milhão com a poesia
 ---
+1674
+
 com estes 
 passinhos
 o tempo 
 não praça 
 ---
+1673
+
 CAPITALISMO
 
 até o meu 
@@ -9162,6 +9540,8 @@ o shampoo
 mais caro
 da farmácia
 ---
+1672
+
 CAPITALISMO
 
 pode ir passando tudo 
@@ -9171,6 +9551,8 @@ pode me matar mas por favor
 eu imploro 
 não leve o meu iPhone
 ---
+1671
+
 A REVOLUÇÃO DOS
 
 me dou melhor 
@@ -9178,16 +9560,15 @@ com os bichos
 do que 
 com os animais
 ---
-Mario pelo menos assinava 
-as provas de matemática 
-eu errava 
-ou esquecia
----
+1670
+
 SMARTPHONES
 
 amei a companhia de vocês 
 a meia companhia de vocês
 ---
+1669
+
 ah vai ler um Mário 
 
 destratou
@@ -9196,6 +9577,8 @@ Mario não tem acento
 
 corrigiu
 ---
+1668
+
 EUA
 
 suspeito por andar embriagado 
@@ -9203,9 +9586,12 @@ em sua bicicleta
 é preso nos EUA 
 nesta quarta-feira 
 polícia alega que o sujeito 
-pego em flagrante 
+pego em flagrante
+
 era preto
 ---
+1667
+
 JIM & PAM 
 
 entre 
@@ -9213,64 +9599,91 @@ quatro paredes
 quebrando a 
 quarta parede
 ---
+1666
+
 ainda não sei 
 o estado 
 que vou estar 
 depois de morto
 ---
+1665
+
 estou no controle 
 mas ele está desconectado 
 do videogame 
 sem eu saber
+
 é assim que eu vejo a vida
 ---
+1664
+
 desistiu dos seus sonhos?
 
 acho que eu só parei de ser 
-tão ambiciosa 
-sabe
+tão ambiciosa sabe
 ---
+1663
+
 artistas locais 
 levam os 
 outros 
 artistas locais 
 para o pessoal
 ---
+1662
+
 escreveria esta poesia
 Rimbaud escreveu antes
 ---
+1661
+
 amiga você terminou com o Vinícius? 
 você não o amava?
 
 eu deixei para a próxima
 ---
+1660
+
 um dia uma nave pousou 
 na minha frente 
 e de lá saiu um ser 
 de outro mundo 
 era uma criatura verde 
 e de cara perguntei
+
 quem eu sou e de onde eu vim
 ---
+1659
+
 REDES SOCIALES 
 
 o verdadeiro fast-
 feed
 ---
+1658
+
 filmaços de cigarros
 ---
-inimigo não declarado 
+1657
+
+inimigo 
+não declarado 
 ainda pode ser 
 seu amigo 
 declare-se
 ---
+1656
+
 AGORA QUE EU PASSARINHO…
 
-acho que agora que ele morreu 
+acho que agora 
+que ele morreu 
 já podemos ler 
 o que ele escreveu
 vocês não acham 
 ---
+1655
+
 eles querem democracia 
 igualdade social 
 direitos e inclusão para minorias 
@@ -9294,18 +9707,20 @@ ou pior do que isso
 
 ELES SÃO COMUNISTAS 
 ---
+1654
+
 rir para não RIP
 ---
+1653
+
 leitor 
 na obrigação 
 de despertar 
 insiste ler 
 dormindo
 ---
-então qual o tamanho 
-do seu documento 
-no World
----
+1652
+
 olhando 
 minhas fot. 
 de quando 
@@ -9315,60 +9730,67 @@ parece que
 eu era mais 
 velho
 ---
+1651
+
 Mario disse que um cachorro 
 serve para a gente falar sozinho 
 não seria mais fácil ser louco 
 sem precisar de um cachorro
 ---
+1650
+
 dá para 
 sentir daqui 
 seu bafo 
 de ligação 
 para ex
 ---
-o humor paciente 
-não funciona muito bem 
-na terapia
----
+1649
+
 você não tem medo que a vida acabe 
 do nada?
 
 eu tenho medo que me avisem
 ---
+1648
+
 da academia 
 saí de fininho
 ---
-vou contar os meus sonhos 
-em forma de piada 
-para que você não ache 
-tão engraçado
----
-noticiário esportivo
-in 
-forma 
-de 
-circo
----
+1647
+
 ódiododiadia
 ---
+1646
+
 privilégio cósmico 
 de não existir 
 neste meio artístico
 ---
+1645
+
 músico escrevendo 
 para si maior
 ---
+1644
+
 pão e wi-fi
 ---
+1643
+
 bebê não consegue dormir 
 porque mãe grita 
 carneirinhos
 ---
+1642
+
 gente antiga 
 olhando apenas 
 para o seu próprio 
 bingo
 ---
+1641
+
 DEU A LOUCA NOS FILÓSOFOS (2025)
 Comédia/Romance/Fantasia/Drama/Mistério
 
@@ -9385,12 +9807,18 @@ A única coisa que sei é que nadar de costas sei.
 O que não me mata, me torna mais rio.
 O homem é condenado a ser live.
 ---
+1640
+
 politicamente correto 
 não leva humor 
 a sério
 ---
+1639
+
 mais receio que humor
 ---
+1638
+
 na aula de hoje 
 trataremos 
 do discernimento necessário
@@ -9400,20 +9828,15 @@ do humor apropriado
 por movimentos 
 de extrema-direita
 ---
+1637
+
 cheguei em um velório 
-me perguntaram se eu estava na 
+me perguntaram 
+se eu estava na 
 lista de convidados
 ---
-não é desemprego 
-é só um 
-isolamentinho domiciliar
----
-filme aborda história de artista gaúcho 
-poeta que era admirado na rua onde morava 
-pelo fato de 
-não trabalhar e fazer muito 
-barulho
----
+1636
+
 TUDO GOSTOSO – RECEITA BELO SIMPLES E FOFO
 
 Ingredientes (1 poção)
@@ -9435,21 +9858,16 @@ ressignificá-lo autocuidado não é egoísmo
 Modo de despreparo
 33 anos
 ---
-Vinícius 
-você já declarou que busca o reconhecimento 
-e que sempre se sentiu invisível no meio artístico 
-mas o que você faz para mudar isso?
+1635
 
-bem recentemente eu 
-aumentei o tamanho 
-da minha letra
----
 todas as vozes 
 que eu ouço 
 na minha cabeça 
 me garantem 
 que não sou louco
 ---
+1634
+
 já tenho 
 vergonha 
 de ler 
@@ -9459,42 +9877,58 @@ neste
 exato 
 poema
 ---
+1633
+
 parece estar 
 tudo bem 
 até eu desconfiar 
 que está apenas 
 parecendo
 ---
+1632
+
 artistas têm 
 mais x por cento 
 de insalubridade 
 e x por cento 
 de periculosidade
 ---
+1631
+
 viria ao meu funeral 
 se eu a convidasse 
 pessoalmente?
 ---
+1630
+
 ele não é bom ator 
 ele só é desinibido
 ---
+1629
+
 se Deus existisse 
 hoje 
 sem terapia 
 Ele seria ateu
 ---
+1628
+
 paga mais caro 
 pela pirataria 
 do que pagaria 
 ao próprio 
 artista
 ---
+1627
+
 a alma saiu para comprar cigarro
 ---
-o ursinho Tédio
----
+1626
+
 as noites na abalada
 ---
+1625
+
 eu não sou 
 a pessoa 
 mais solitária do mundo 
@@ -9502,26 +9936,31 @@ graças aos ácaros
 que vivem dentro 
 do meu travesseiro
 ---
-80% dos desastres poéticos 
+1624
+
+80% dos 
+desastres poéticos 
 ocorrem por 
 falas humanas
 ---
+1623
+
 fazem 
 de tudo
 para não 
 fazer nada
 ---
+1622
+
 psicanalista cobra por explicações
 ---
+1621
+
 pinturas nunca serão 
 ex tintas
 ---
-conheci o amor da minha vida 
-no iPhone 12
----
-eu sou o Banksy 
-e já matei Laura Palmer
----
+1620
+
 o psicanalista vai lhe ajudar 
 a contar 
 todos os motivos 
@@ -9529,6 +9968,8 @@ que te fazem sofrer
 sem motivos 
 por 200 contos
 ---
+1619
+
 criatividade não é prática
 criatividade não é prática
 criatividade não é prática
@@ -9539,56 +9980,75 @@ aperfeiçoando minha escrita
 
 repetindo a mesma frase?
 ---
-estou em todas as 
-bancas da cidade 
-bancando 
+1618
 
-O IDIOTA
----
 você acredita em Zeus?
 ---
+1617
+
 se você cruzasse hoje 
 com a sua esposa 
 na rua 
 você a cumprimentaria?
 ---
+1616
+
 a vaca estava 
 o tempo todo 
 re
 moendo o 
 past
 ---
+1615
+
 andei pensando melhor 
 em tudo o que você me disse 
 e eu acho que 
 realmente 
 eu tenho toda a razão
 ---
+1614
+
 calado você é um poeta
 
 sim 
 ---
+1613
+
 preferi outro caminho 
 peguei um 
 desvio de conduta
 ---
+1612
+
 bebendo uma Guinness 
 consigo escrever 
 dez poemas 
 em trinta segundos
 ---
+1611
+
 conservadorismos 
 modernos 
 con 
 tradições
 ---
-ao persistirem alguns médicos 
-as consultas poderão ser sintomáticas
+1610
+
+ao persistirem 
+alguns médicos 
+as consultas 
+poderão ser 
+sintomáticas
 ---
+1609
+
 está na Caras 
 que o hype 
 não vale a pena
 ---
+1608
+
 saiba como enlouquecer 
 um homem 
 entre quatro paredes 
@@ -9596,31 +10056,40 @@ exiba Interestelar
 do Christopher Nolan 
 para ele
 ---
+1607
+
 procriação água benta & gospel
 ---
+1606
+
 ele poeta tanto 
 que acaba acreditando 
 na própria poesia
 ---
+1605
+
 o sucesso estava tão bom 
 que não vi o tenho passar
 ---
+1604
+
 como não deixar para depois 
 se o capitalismo não deixa 
 fazer agora
 ---
-problemas com as drogas?
+1603
 
-não se preocupe 
-nós podemos lhe ajudar 
-com um preço muito mais em conta
----
 o pó criticando a fumaça
 ---
+1602
+
 por que pisar 
-em uma peça de ego 
+em uma peça 
+de ego 
 dói tanto
 ---
+1601
+
 a natureza humana 
 promove 
 condições de trabalho
@@ -9628,6 +10097,8 @@ visando sempre
  
 O VERDE
 ---
+1600
+
 este poeminho se chama
 LEONARDO DICAPRIO
 
@@ -9635,27 +10106,44 @@ o sim
 você 
 já tem
 ---
+1599
+
 Desistir De Tudo Em Todo O
 Lugar Ao Mesmo Tempo
 
 fantasia/ficção científica
 ---
+1598
+
 Charles Bukowski 
 elitismo literário 
-com alto teor alcoólico
+com alto teor 
+alcoólico
 ---
-você consegue deixar o sexo 
+1597
+
+você consegue 
+deixar o sexo 
 mais cristão?
 ---
+1596
+
 dei chá comigo
 ---
+1595
+
 meu cachorro pensa que é cachorro
 ---
-no futebol a regra é clara 
+1594
+
+no futebol 
+a regra é clara 
 a régua não é clara 
 até porque 
 a régua é bem cara
 ---
+1593
+
 VOCÊ SABIA?
 
 poeta nunca erra 
@@ -9663,9 +10151,14 @@ poeta nunca erra
 ou é licença poética 
 ou é neologismo
 ---
+1592
+
 papai é domingo calvo
 ---
-prova de vida é uma prova 
+1591
+
+prova de vida 
+é uma prova 
 com consulta
 ---
 1590
