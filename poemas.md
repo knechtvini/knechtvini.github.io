@@ -4916,107 +4916,192 @@ agora
 foi perfeito mas
 eu esperava mais
 ---
-- O que você está fazendo?
-- Ouvindo Beatles.
-- E está gostando?
+2400
+
+— O que você está fazendo?
+— Ouvindo Beatles.
+— E está gostando?
 ---
-alguém acendeu a lua 
-de forma tão exagerada
-eu poderia reclamar 
+2399
+
+alguém acendeu 
+a lua 
+de forma 
+tão exagerada
+eu poderia 
+reclamar 
 de qualquer coisa
-agora que estou sem você
+agora que estou 
+sem você
+
 como nunca estive antes
 ---
-viu só o que você me fez falar? pede desculpa
+2398
+
+viu só o que você me fez falar? 
+pede desculpa
 ---
-A PREOCUPAÇÃO
+2397
+
+PREOCUPAÇÃO
 
 fiquei sabendo que 
-estou com câncer 
+estou com câncer
+
 você está bem?
 ---
-é assustador e já não surpreende
-que alguém só exista de fato
-se está numa rede social
+2396
+
+é assustador 
+e já não surpreende
+que alguém 
+só exista 
+de fato
+se está 
+numa rede social
 ---
+2395
+
 por que morrer 
 se vamos viver
 do mesmo?
 ---
+2394
+
 poesia mais econômica
 ---
+2393
+
 de onde você tira tudo isso?
 
 e é só aí que eu mostro 
-meu único melhor sorriso
+meu único e melhor 
+sorriso
 ---
-“Nada neste mundo pode substituir a persistência. 
-O talento não pode. Nada é mais comum do que 
+2392
+
+“Nada neste mundo pode substituir 
+a persistência. 
+O talento não pode. 
+Nada é mais comum do que 
 homens talentosos fracassados.” 
+
 (Calvin Coolidge, 1925)
 
-“Na minha vida, escrever será sempre prioridade. 
+“Na minha vida, 
+escrever será sempre prioridade. 
 E todo o resto será escrito.” 
+
 (Vinícius Knecht, 2025)
 ---
-Por que só reconhecem o artista depois que ele nasce?
+2391
+
+Por que só reconhecem 
+o artista depois que 
+ele nasce?
 ---
-amigos de verdade a gente conta 
+2390
+
+amigos de verdade 
+a gente conta 
 nas asas
 ---
-eu poderia aparar a sua franja 
+2389
+
+eu poderia aparar 
+a sua franja 
 até não poder mais
 ---
-eu poderia muito bem 
-ser ruim com poder
+2388
+
+eu poderia 
+muito bem 
+ser ruim 
+com poder
 ---
+2387
+
 eu queria muito cursar
+
 eu queria saber tocar
+
 eu queria falar
+
 eu queria tanto conhecer
 ---
+2386
+
 você já parou para escrever que
 ---
-por que você não está fotografando 
-e/ou fazendo uma selfie? 
+2385
+
+por que você 
+não está 
+fotografando 
+e/ou fazendo 
+uma selfie? 
+
 eu não sou bom o bastante?
 ---
+2384
+
 você acha mesmo que existe 
-essa coisa de “amor”?
+essa coisa de “amor”
 ---
+2383
+
 SEM ANOS DE SOLIDÃO
 
 você achou mesmo que
 não existiria um art
 insta na sua vida
 ---
+2382
+
 SOBRE VIVÊ
 
-um artista não deveria 
-estar perdendo tanto 
-tempo em outras 
+um artista 
+não deveria 
+estar perdendo 
+tanto 
+tempo em 
+outras 
 realidades
 ---
+2381
+
 já imaginou um mundo onde 
 tudo fosse real?
 ---
+2380
+
 eu quero que você saiba 
 que eu nunca te escrevi 
 antes
 ---
-quem foi que te fotografou Mariana?
+2379
+
+quem foi que te fotografou Marianna?
 ---
+2378
+
 poetas na prateleira dos filósofos
 ---
+2377
+
 nenhum 
 crítico 
 tatuaria 
 “crítico”
 ---
+2376
+
 não tem um Adidas 
 que preste nesta loja 
 capitalismo de merda
 ---
+2375
+
 hoje em dia 
 encontrar 
 uma mulher 
@@ -5024,21 +5109,31 @@ que queira
 ter filho 
 é um parto
 ---
-Acho que eu preciso sentar e rever a minha vida.
+2374
+
+Acho que eu preciso sentar 
+e rever a minha vida.
 Estou sentado. 
 Que merda de cadeira que não gira.
 ---
+2373
+
 o som foi idêntico a um peido
 então apertei a almofada outra 
 vez para deixar claro que não 
 foi peido todos pensaram que
 eu peidei duas vezes
+
 é assim que eu vejo a vida
 ---
+2372
+
 CONTEÚDO
 
 inté li gente viu
 ---
+2371
+
 KNECHT VERSÃO BUKOWSKI
 
 poha você passou 
@@ -5062,12 +5157,16 @@ mentiu pela primeira vez
 condenado a escrever mal
 até a última poha 
 ---
+2370
+
 queria andar na escuridão sem medo
 
 você nunca teve medo do escuro
 
 mas a escuridão teme a mim
 ---
+2369
+
 DOMINGO 17.08.2025
 LANÇAMENTO
 LIVRO AMARELANDO BLUE
@@ -5077,130 +5176,169 @@ SALÃO DA OASE
 R. PINHEIRO MACHADO, 179
 CENTRO, ESTRELA
 ---
-Oi, sumidos! 
-Só passando pra avisar 
-— com zero modéstia — 
-que a capa oficial de
-Vinícius Knecht, "Amarelando blue"
-(Editora Bestiário; 1ª edição, 2025)
-já está brilhando (ou desbotando com classe) 
-nas Fotografias do site 
-Bye.
-Ah, foi o ChatGPT que escreveu. 
+2368
+
+Homem perde 
+tragicamente 
+o amor 
+da sua vida 
+e no mesmo dia 
+recebe 
+inesperadamente 
+uma fortuna 
+de 1 bilhão 
+de dólares
 ---
-“Homem perde tragicamente o amor da sua vida e,
-no mesmo dia, recebe inesperadamente uma fortuna 
-de 1 bilhão de dólares”
----
+2367
+
 tá aí uma obsessão saudável
 ---
+2366
+
 estou no refrão de uma arma
 ---
-roteirista em empresa Programa Globo Rural
+2365
+
+roteirista em empresa 
+Programa Globo Rural
 ---
+2364
+
 por que tudo gira em torno 
 do meu fracasso que projeto 
 no prédio vizinho?
 ---
-por que tudo gira em torno de 23h?
+2363
+
+por que tudo gira 
+em torno de 23h?
 ---
-e eu que chutei um futuro diferente
+2362
+
+e eu que 
+chutei 
+um futuro 
+diferente
 ---
+2361
+
 acho que o que te faz única 
 é a única coisa que sei achar
 ---
+2360
+
 pelo menos vou voar 3,8 segundos
 ---
-levofloxacino alguém vai na sua festa? só o Paul McCartney eu nunca sei quando eu tô falando sério escrever poesia para ela comemorar nem parece que eu tô com uma pneumonia bacteriana passamos e o meu olhar entrou no seu Times New Roman parece diferente aqui I'm desperate for Kieran Culkin's hair com pneumonia comprando um Adidas eu sinto que estou flutuando você está bêbado então você não precisava ter respondido “eu sou todos os dias que você escolhe ignorar” passamos e o meu olhar entrou no seu eu nunca te tocaria tanto assim 500mg
+2359
+
+levofloxacino alguém vai na sua festa? 
+só o Paul McCartney eu nunca sei quando 
+eu tô falando sério escrever poesia para 
+ela comemorar nem parece que eu tô com 
+uma pneumonia bacteriana passamos e o meu 
+olhar entrou no seu Times New Roman parece 
+diferente aqui I'm desperate for 
+Kieran Culkin's hair com pneumonia comprando 
+um Adidas eu sinto que estou flutuando você 
+está bêbado então você não precisava ter 
+respondido “eu sou todos os dias que você 
+escolhe ignorar” passamos e o meu olhar 
+entrou no seu eu nunca te tocaria tanto 
+assim 500mg
 ---
+2358
+
 I'm desperate for Kieran Culkin's hair.
 ---
-um dia uma 
-nave 
-pousou 
-na minha frente 
-e de lá 
-saiu um ser 
-de outro mundo era uma 
-criatura verde 
-e de cara perguntei
-quem eu sou 
-e de onde eu vim
----
-procriação água benta & gospel
----
-VOCÊ SABIA?
+2357
 
-poeta nunca erra 
-ou é licença poética 
-ou é neologismo
----
-no restaurante ela pergunta 
+no restaurante 
+ela pergunta 
 o que vamos pedir
 e ele responde 
-o de sempre saúde 
-paz e amor
+o de sempre 
+saúde 
+paz 
+e amor
 ---
+2356
+
 burros são aqueles que 
 entendem uma poesia 
 de primeira
 ---
+2355
+
 você está me ofendendo 
 
 por que
 
 eu não sei
 ---
+2354
+
 perguntei para a vida 
 qual o próximo passo 
 o moonwalk 
 ela respondeu
 ---
+2353
+
 me separei da minha 
 namorada imaginária 
 eu não estava sendo 
 verdadeiro
 ---
+2352
+
 O Poema Continua...
 
-em cada acidente cotidiano
+em cada acidente 
+cotidiano
 um artista emerge
 ---
-ela me pediu notícias minhas
-pensava no fim respondi
-eu não quis ela quis conversar
-então perguntei em sussurro:
-— você não leu as notícias de hoje?
-numa manchete esquecida
-“morreu na madrugada passada
-invisível”
----
+2351
+
 morri invisível
 ---
+2350
+
 eu não sabia dizer euforia
 disse feliz demais
 — feliz demais? como assim 
 feliz demais?
 o médico ofendido
 ---
-A morte te convida para ficar. Você não sabe o que a resposta significa.
+2349
+
+A morte te convida para ficar. 
+Você não sabe o que a resposta 
+significa.
 ---
+2348
+
 STATIC BLOOM
 
-Todas as pessoas por quem você já sentiu atração amorosa na vida estão chegando.
+Todas as pessoas por quem você já sentiu 
+atração amorosa na vida estão chegando.
 Uma a uma.
 Em ordem de intensidade.
 Os seus maiores amores aparecem primeiro.
-Mas não é um funeral — é uma festa. A sua grande festa.
+Mas não é um funeral, é uma festa. 
+A sua grande festa.
 Teoricamente, você dançaria com a primeira.
 
 Mas, por algum motivo que ninguém sabe explicar,
 você dançou apenas com a última.
 ---
+2347
+
 os paranoicos 
 continuam 
 me perseguindo
 ---
+2346
+
 eu vou 
 escrever 
 a minha 
@@ -5211,6 +5349,8 @@ melhor
 do que 
 eu
 ---
+2345
+
 aproveite 
 o feriado
 aproveite 
@@ -5218,6 +5358,8 @@ o feriado
 para se 
 medicar
 ---
+2344
+
 ainda 
 acredito 
 no poder 
@@ -5228,6 +5370,8 @@ taça de
 vinho 
 duvidoso
 ---
+2343
+
 estamos 
 com um 
 pequeno 
@@ -5239,6 +5383,8 @@ você
 pois você 
 é dos grandes
 ---
+2342
+
 queria 
 escrever 
 em outro 
@@ -5254,6 +5400,8 @@ o que
 escrevo
 agora
 ---
+2341
+
 procure 
 por ela 
 vocês 
@@ -5264,6 +5412,8 @@ naquele
 mesmo 
 estilo 
 ---
+2340
+
 em breve 
 serei 
 anônimo 
@@ -5271,25 +5421,37 @@ só que
 dessa vez 
 de propósito 
 ---
+2339
+
 nunca 
 serei 
 uma 
 data
 ---
+2338
+
 os outros decidiram 
 que eu quero morrer
 ---
+2337
+
 ex poeta 
 em atividade
 ---
+2336
+
 internado 
 na minha 
 própria 
 arte
 ---
+2335
+
 revolucionando meu 
 estado de espírito
 ---
+2334
+
 TRIÂNGULO
 
 você não está 
@@ -5297,33 +5459,48 @@ sendo sincera
 com um de nós 
 três
 ---
+2333
+
 fio de 
-implante capilar 
+implante 
+capilar 
 de artista 
 é vendido 
 por 15 milhões 
 de reais
 ---
+2332
+
 rede social é o 
 diagnóstico
 ---
+2331
+
 escolhe uma música e vence
 ---
+2330
+
 saiba separar a arte do ar
 
 não
 ---
+2329
+
 livros 
 enforcados 
 na praça
 o suicídio 
 da literatura
 ---
+2328
+
 uma boca usando 
 uma franja fajuta
 lá na segunda 
 guerra mundial
 ---
+2327
+
 é engraçado 
 eu sei
 sentir que 
@@ -5335,12 +5512,16 @@ completa
 mente 
 louco
 ---
+2326
+
 pessoas interpretam 
 da pior forma
 e da melhor forma
 e ainda assim
 elas erram
 ---
+2325
+
 ser ridicularizado 
 feito artista 
 é fácil
@@ -5349,6 +5530,8 @@ quero ver
 de ser 
 o ridículo
 ---
+2324
+
 “Uma História Sobre Um Novo Super-Herói”
 
 o livro conta 
@@ -5360,6 +5543,8 @@ que descobre
 o superpoder
 de enxergar
 ---
+2323
+
 AQUI A GENTE FALA ASSIM
 
 uma goma de bergamota 
@@ -5370,78 +5555,115 @@ abandonada e esmagada
 parecia muito 
 mas muito 
 com um camarão
-e isso foi a coisa mais poética
+e isso foi a coisa 
+mais poética
 que eu poderia ver 
 no momento
-que eu poderia escrever 
+que eu poderia 
+escrever 
 no momento
-e eu não estou ficando louco
+e eu não estou 
+ficando louco
 imagina
 ---
-Senhor, o seu café esfriou. Gostaria de se retirar?
+2322
+
+Senhor, o seu café esfriou. 
+Gostaria de se retirar?
 ---
+2321
+
 não é indireta 
 se está 
 óbvio 
 que é para você
 ---
+2320
+
 Não estou tão envolvido
-Você sabe que não sou um grande tolo
+Você sabe que não sou 
+um grande tolo
 Não por você
-Você não me tem na sua mão
-Eu sei que isso não vai se prolongar
+Você não me tem 
+na sua mão
+Eu sei que isso não 
+vai se prolongar
 But I'm in so deep 
-You know I'm such a fool for you
-You got me wrapped around your finger
+You know I'm such 
+a fool for you
+You got me wrapped 
+around your finger
 Do you have to let it linger?
 Do you have to, 
 do you have to, 
 do you have to let it linger?
 ---
+2319
+
 ontem escrevi 
 um poema 
 para a garota 
 que mais 
 me magoou
 e foi incrível
-mais ou menos assim:
+mais ou menos 
+assim:
 
 a partir 
 de agora 
 seu nome 
 é Cebola
 ---
-mas afinal 
+2318
+
+mas 
+afinal 
 qual é 
 a sua 
 arte?
 ---
+2317
+
 preciso 
 de pessoas 
 obcecadas 
-pela poesia
+pela 
+poesia
 ---
+2316
+
 ele nada na folha
 ---
+2315
+
 você faz todo 
 o meu sentido
 ---
-as pessoas querem 
+2314
+
+as pessoas 
+querem 
 se meter 
 nos nossos 
 sentimentos 
 e isso é 
 incrível
 ---
+2313
+
 me entregar 
 de corpo 
 e alma 
 ao niilismo
 ---
+2312
+
 Impressão digital:
 
 “Não é confiável”
 ---
+2311
+
 escrever 
 sobre robôs 
 em robôs
@@ -5450,19 +5672,31 @@ contra robôs
 para robôs 
 melhorarem
 ---
+2310
+
 escrever aforismos 
 confusos
 ---
+2309
+
 seu caso é cínico
 ---
+2308
+
 1:00: você está proibida 
 de me magoar
 ---
+2307
+
 médico e poeta
 ópera
 ---
+2306
+
 obra-prima não escrita
 ---
+2305
+
 esperamos que 
 na segunda-feira
 você esteja 
@@ -5470,9 +5704,13 @@ recuperado
 de todo o 
 seu passado
 ---
+2304
+
 poeta tem o olhar 
 tatuagem
 ---
+2303
+
 cada 
 vez que 
 escrevo
@@ -5482,6 +5720,8 @@ piorar
 e sempre 
 voltar
 ---
+2302
+
 o que 
 faço 
 com sua 
@@ -5491,8 +5731,12 @@ sei mais
 sentir 
 saudade
 ---
+2301
+
 golaço perdido
 ---
+2300
+
 já faz 
 tanto tempo
 que não 
@@ -5503,11 +5747,15 @@ sobre
 a atual 
 poesia
 ---
+2299
+
 então assisto 
 um artista
 e ganho 
 mais tempo
 ---
+2298
+
 então assisto 
 um filme
 e não vejo 
@@ -5516,6 +5764,8 @@ na manhã
 do dia 
 seguinte
 ---
+2297
+
 ele fez mais 
 por mim 
 em dois dias 
@@ -5524,133 +5774,213 @@ meu marido
 em dois 
 ou doze anos
 ---
+2296
+
 a folha rasga ao meio 
 de produção
 ---
+2295
+
 o Batman é pobre 
 na minha cidade
 mas ele existe
 ---
+2294
+
 lembra quando 
 eu escrevia 
 bem?
 hoje salto alto
 ---
+2293
+
 acredito 
 em acertar 
 um verso 
 de primeira
 ---
+2292
+
 você precisa 
 de ajuda 
 da arte 
 com urgência
 ---
+2291
+
 triagem depois da consulta
 ---
+2290
+
 as cores da França no seu corpo
 ---
+2289
+
 o sentimento é cítrico
 ---
+2288
+
 eu senti falta do rascunho
 ---
+2287
+
 a tendência 
 é o anoni
 mato
 ---
+2286
+
 nem ao que me 
 assassinasse 
 eu saberia 
 odiar
 ---
+2285
+
 não guardaria 
 rancor
 sequer do 
 meu assassino
 ---
+2284
+
 eu quero a liberdade 
 da minha escrita
 ---
+2283
+
 nada jesustifica
 ---
+2282
+
 crise depressiva no meio 
 da relação sexual
 ---
+2281
+
 eu sou menor que um átomo seu
 ---
+2280
+
 você me deixaria mais corcunda
 ---
+2279
+
 você não deveria 
 ter saído 
 do meu roteiro
 ---
-um funeral de celebridade
-um trânsito de NY
+2278
+
+um funeral de 
+celebridade
+um trânsito 
+de NY
 ---
+2277
+
 vou sair só de costume
 para ver ela dançando
 no seu próprio 
 ritmo cardíaco
 ---
-tem que escrever berrando
+2276
+
+tem que escrever berrando silêncio
 ---
+2275
+
 o que eu não estou fazendo aqui?
 ---
+2274
+
 é tudo tão fútil 
 e tão especial
 ---
+2273
+
 às vezes escrevo em público 
 para ser nota
----
+
 para parecer mais niilista
 ---
+2272
+
 álcool pós medicação
 ---
+2271
+
 ela está na mesa do lado
 é muito solo 
 para quem deseja voar
 ---
-será que a minha alma vai ser publicada?
+2270
+
+será que a minha alma 
+vai ser publicada?
 ---
+2269
+
 saio daqui mais realista
 e pessimista
 ---
+2268
+
 queria que o Kieran Culkin 
-estivesse aqui falando português
+estivesse aqui falando 
+
+português
 ---
+2267
+
 batom ao leite
 ---
-o blues está em todo encanto
+2266
+
+o blues está em todo 
+encanto
 ---
-está faltando vermelho
+2265
+
+minha cidade não enche 
+o estádio do meu time
 ---
-minha cidade não enche o estádio do meu time
----
+2264
+
 DIAGNÓSTICO
 
 Funcional por obrigação
 ---
+2263
+
 está nascendo 
 uma nova poesia 
 devo abordar?
 ---
+2262
+
 Eu gostei do poema, Vinícius, mas...
-você está desejando a minha morte, é isso mesmo?
+você está desejando a minha morte, 
+é isso mesmo?
 ---
+2261
+
 Como tratar a depressão, poeta?
 Com ração humana.
 ---
-AMARELANDO blue (2025)
----
-Gravando 
----
+2260
+
 escrevo como parto
 ---
+2259
+
 agora eu vou escrever 
 para gente grande 
 
 os mortos e as crianças
 ---
+2258
+
 eu precisava de ajuda 
 então subi 
 na primeira árvore 
@@ -5660,6 +5990,8 @@ ao primeiro passarinho
 e ele 
 quebrou o meu galho
 ---
+2257
+
 O ÚLTIMO POEMA DE VINÍCIUS KNECHT
 
 e de vez em quando 
@@ -5672,10 +6004,8 @@ então eu vou perceber
 que em vida 
 também foi assim
 ---
-Um livro com três partes, prólogo e epílogo.
----
-PRÓLOGO
----
+2256
+
 River Phoenix 
 certo dia escreveu 
 corra para o resgate 
@@ -5687,24 +6017,36 @@ corra para o amor
 com ódio 
 e amor te perseguirá
 ---
+2255
+
 a arte nunca começou
 ---
+2254
+
 até um bicho lida com a arte
 ---
+2253
+
 hoje artistas 
 pioram 
 suas artes 
 para fazer 
 mais sucesso
 ---
+2252
+
 tempo em tempo 
 mim a mim 
 anos e anos 
 tantos e tantos 
 mins
 ---
+2251
+
 distraídos escreveremos
 ---
+2250
+
 se não existe 
 existo 
 sou autobiográfico 
@@ -5712,71 +6054,113 @@ na minha
  
 FICÇÃO CIENTÍFICA
 ---
-poesia é teste de defesa planetária
+2249
+
+poesia é teste de 
+defesa planetária
 ---
+2248
+
 O CLÁSSICO
  
 existe poeta 
-de uma poesia só?
+de uma poesia 
+
+só?
 ---
-poesia é a verdadeira natureza do tempo 
+2247
+
+poesia é a verdadeira 
+natureza do tempo 
+
 com legenda sincronizada
 ---
+2246
+
 mistério 
 mistério 
-esta falta de crédito
+esta falta 
+de crédito
 ---
+2245
+
 um poeta naturezado 
 lá de Mario Quintana
 ---
+2244
+
 ser criando 
 respostas menti 
 rosas 
-para perguntas in 
+para perguntas 
+in 
 ventadas
 ---
+2243
+
 vocês não fazem ideia 
-com que livros estão li
+com que livros estão 
+li
 dando
 ---
-no processo da sua invisibilidade 
+2242
+
+no processo da 
+sua invisibilidade 
 artista é luz 
 que vem trazendo 
 superpoderes
 ---
+2241
+
 por que você acha que virou poeta
 
 você está pronta?
-acho que virei poeta por esperar sempre 
-dez vezes ou mais que o esperado
+acho que virei poeta por esperar 
+sempre dez vezes ou mais que o 
+esperado
 ---
+2240
+
 nave da NASA 
 colide com futuro 
 de forma inesperada 
 na missão ART
 ---
+2239
+
 o que é a poesia
 
-poesia é autora da telescópia do universo
+poesia é autora da 
+telescópia do universo
 ---
+2238
+
 poeta é 
 a que le 
 que faz 
 copo d’água 
 em tempestade
 ---
+2237
+
 nalgum provérbio 
-olhos são janelas da alma 
+olhos são janelas 
+da alma 
 poetas pre
 ferem que sejam 
 portas
 ---
+2236
+
 fechava os olhos 
 numa busca 
 dinfinito 
 ou numa recusa 
 difinito
 ---
+2235
+
 a necessidade 
 da escrita 
 a necessidade 
@@ -5784,17 +6168,31 @@ de ser artista
 a necessidade 
 de dizer algo 
 como se fosse
-o primeiro e o último ser humano
+o primeiro 
+e o último 
+ser humano
 ---
+2234
+
 escrevo desde que não 
 me conheço por gente
 ---
-olhar para o mundo e pensar 
-eu sou a pessoa mais criativa 
-da minha história
+2233
+
+olhar para o mundo 
+e pensar 
+eu sou a pessoa mais 
+criativa 
+da 
+minha 
+história
 ---
+2232
+
 todos os caminhos me levam a mim
 ---
+2231
+
 ROTINA
 
 é muito importante 
@@ -5802,30 +6200,49 @@ que você acorde
 para a vida 
 no horário certo
 ---
-Eles nunca tiveram tanto medo 
+2230
+
+Eles nunca tiveram 
+tanto medo 
 da arte
 ---
+2229
+
 poeta tem 
 a mesmíssima 
 respons
 habilidade 
 dos passarinhos
 ---
+2228
+
 no mínimo rir 
 no máximo chorar
 ---
-arte é forma ilimitada de sermos outros
+2227
+
+arte é forma ilimitada 
+de sermos outros
 ---
-confie apenas em três tipos de poetas 
+2226
+
+confie apenas em 
+três tipos de poetas 
 os que estão sofrendo 
 os que estão amando 
-ou os que estão os dois
+ou os que estão 
+os dois
 ---
+2225
+
 nada se cria 
-sem estar em contato 
+sem estar em 
+contato 
 com tudo aquilo 
 que não existe
 ---
+2224
+
 TEMPOS SOMBRIOS DE 
 
 não ouvi 
@@ -5833,14 +6250,22 @@ mas ouvi falar
 não li 
 mas li sobre
 ---
+2223
+
 papai como faz pra ser poeta
 
 fingindo ser poeta filho
 ---
+2222
+
 folhear árvores e árvores e árvores
 ---
+2221
+
 e os animais estão comentando
 ---
+2220
+
 FOBIA
 
 numa História não se 
@@ -5850,41 +6275,68 @@ se
 arranha 
 passagem
 ---
+2219
+
 foi tão bom que eu nem escrevi
 ---
+2218
+
 uma tatuadora autoral 
 assina suas tatuagens
 ---
+2217
+
 uma lápide é marcada 
 com logotipo
 ---
+2216
+
 estar só 
 sendo 
 cinema to
 graficamente 
 amado
 ---
+2215
+
 um pai morre no parto
 ---
+2214
+
 poesia de cada dia 
 que nos dai o tempo
 ---
-a tarde talvez fosse mais amarela
-se não fosse o 
+2213
+
+a tarde talvez fosse 
+mais amarela
+se não fosse 
+o 
 
 BLUE
 ---
-papai conta uma história para que eu 
+2212
+
+papai conta uma história 
+para que eu 
 acorde
 ---
-prefiro quando você escreve 
+2211
+
+prefiro quando 
+você escreve 
 sobre amor 
-porque assim eu rio 
+porque assim 
+eu rio 
 do seu jeito 
 de sentir dor
 ---
+2210
+
 poesia é o denominador comum
 ---
+2209
+
 TALENTO GRAVE
 
 disputa de amores 
@@ -5892,108 +6344,84 @@ termina em arte e
 talento grave 
 em Estrela
 ---
-escrever sem qualquer forma de anestesia
+2208
+
+escrever sem qualquer 
+forma de anestesia
 ---
+2207
+
 QUINTANA
 
 pássaro
 presente
 e futuro
 ---
-Se não fosse o Van Gogh, o que seria do amarelo?
+2206
 
-Mario Quintana
----
-Certa vez, uma pessoa me contou uma história de que a melhor parte do dia dela eram os dois ou três segundos depois que ela acordava. Porque seu cérebro deprimido havia esquecido que estava deprimido.
-
-Tim Egan
----
-Se a história nos ensinou alguma coisa: o mundo é um crítico pouco confiável. Não depende de nós se o que fazemos é bom.
-
-Ethan Hawke
----
-Bem, estou me aposentando. Depende. Se os anjos trouxerem algum roteiro que está escrito com tinta dourada que me diz que é importante que as pessoas me vejam, eu posso continuar futuramente, mas eu vou fazer uma pausa. Eu gosto muito da minha vida quieta e gosto de pintar. Eu amo a minha vida espiritual e eu sinto que – e isso é algo que você pode nunca mais ouvir de uma celebridade – Eu tenho o suficiente. Eu fiz o suficiente. Eu sou suficiente.
-
-Jim Carrey
----
-A música Nude é sobre você querer acreditar que você é realmente maravilhoso, quando sabe que isso não é verdade.
-
-Thom Yorke
----
-Tentaram me enterrar vivo, mas eu estou aqui.
-
-Brendan Fraser
----
-Acho que a arte oferece remédio para as nossas realidades sufocantes e salva vidas. Estarei sempre presente para incentivar artistas e cineastas. Só não quero voltar a fazer filmes, pois eles não me fazem mais feliz. Mas eles fizeram. E você também. O mundo não é um bom lugar... E eu quero ajudar o máximo que puder. Eu tenho, silenciosamente, feito isso. Mas quero ser mais vocal sobre isso. Meus projetos, agora, estão em outro lugar, acredito.
-
-Xavier Dolan
----
-Éramos rejeitados por opção. Não queríamos ser populares.
-
-Kurt Cobain
----
-Como eu estava seguindo em frente, ocasionalmente, eu via breves vislumbres de beleza.
-
-Jonas Mekas
----
-Eu acredito que a cadência e a harmonia certas no momento certo podem despertar qualquer sentimento, inclusive o de felicidade nos momentos mais sombrios.
-
-Yoñlu
----
-😊
-
-Franklin Loufrani
----
-O oposto da depressão não é a felicidade, e sim a vitalidade. E ela parecia fugir de mim naquele momento.
-
-Andrew Solomon
----
-Eu acho que quando não escrevo, estou morta.
-
-Clarice Lispector
----
-AMARELANDO BLUE
----
-ISTO NÃO É
-UM LIVRO
----
-1.
----
 pobre Gatsby
 ---
+2205
+
 amor não é disciplina
 amor é costume 
 ---
-escreveu porque ao menos 
+2204
+
+escreveu 
+porque 
+ao menos 
 cogitou 
 sentir
 ---
-era real-mente atraente 
-porque estava na cara 
+2203
+
+era real-mente 
+atraente 
+porque estava 
+na cara 
 que não falava 
-tudo o que sabia 
+tudo o que 
+sabia 
 sabe
 ---
-parecia que viria um poema 
+2202
+
+parecia que viria 
+um poema 
 era só a vizinha 
 
 IRACEMA
 ---
+2201
+
 quebrei silêncio 
 montei vários 
 silenciozinhos
 ---
+2200
+
 MÃOS CRUZADAS
 
 o chão encanta tanto 
 amada
 ---
+2199
+
 Atraversando as tuas…
 ---
-beber café para dormir 
-escrever poesia para não amar 
+2198
+
+beber café 
+para dormir 
+escrever 
+poesia 
+para 
+não amar 
 tão cedo
 ---
+2197
+
 JULGAMENTO CANCELADO
 
 com seus olhos 
@@ -6001,22 +6429,36 @@ com suas mãos
 cometeu a arte 
 de um escrivão
 ---
+2196
+
 você 
-com alguma sombra de dúvidas 
-é uma das melhores pessoas 
-que eu nunca conheci 
-em toda a minha vida
+com alguma 
+sombra de 
+dúvidas 
+é uma das 
+melhores 
+pessoas 
+que eu nunca 
+conheci 
+em toda 
+a minha vida
 ---
+2195
+
 esta música me lembra você
 
 sério? agora ela me lembra você
 ---
+2194
+
 uma 
 brecha 
 para um 
 amor de 
 brechó
 ---
+2193
+
 P.S EU TE ODEIO
 
 você fede a perfume Chanel nº 5 
@@ -6024,11 +6466,14 @@ você é tão ridícula quanto Marilyn Monroe
 você soa tão sem graça quanto Jim Carrey 
 você dirige tão mal quanto Tarantino 
 você escreve tão mal quanto Kafka 
-você toca e canta insuportavelmente quanto os Beatles 
+você toca e canta insuportavelmente 
+quanto os Beatles 
 você pinta tão cafona quanto Van Gogh
  
 EU ME ODEIO 
 ---
+2192
+
 dei cem por cento 
 de mim 
 ela deu noventa e nove
@@ -6036,8 +6481,12 @@ decidi
 
 PÔR UM FIM
 ---
+2191
+
 de date p/ hate
 ---
+2190
+
 O ROMÂNTICO E O ROMANCISTA 
 
 você escreve 
@@ -6045,48 +6494,75 @@ para criar um amor
 ou você escreve 
 para corrigir um amor? 
 ---
+2189
+
 no Majestic 
-não saí do meu quarto 
-já sabia que o dia estava lindo 
+não saí do meu 
+quarto 
+já sabia que 
+o dia estava 
+lindo 
 lá fora
 ---
+2188
+
 em Saint Remy de Provence 
-quando olhava para fora da janela 
-o mais importante era o que estava 
+quando olhava para fora 
+da janela 
+o mais importante era 
+o que estava 
 dentro de mim
 ---
-a poesia fez a gente suar 
+2187
+
+a poesia fez 
+a gente suar 
 a noite inteira 
 o que isso soa 
 para você
 ---
+2186
+
 ela é bonita demais para ele 
 você não acha
 
 você tem noção do talento 
 que ele tem?
 ---
+2185
+
 dos olhos que quero 
 nunca sou vista para amar 
 dos olhos que me querem 
 já nem estou mais aqui
 ---
+2184
+
 &U E &U
 ---
+2183
+
 por que todo o amor que me 
 aparece parece com o
 
 CAVALO DE TROIA
 ---
+2182
+
 vamos começar do zero?
 
-não nós vamos começar do dez
+não nós vamos começar 
+do dez
 ---
+2181
+
 CORPO VIOLÃO
 
 você é mais difícil que 
 pestana para iniciantes
 ---
+2180
+
 hoje o que temos de mais íntimo 
 não é o beijo 
 o sexo 
@@ -6096,39 +6572,64 @@ a troca de vulnerabilidade
 
 SENHA
 ---
+2179
+
 ouça bem 
-você é melhor que o solo de 
+você é melhor 
+que o solo de 
 
 COMFORTABLY NUMB
 ---
+2178
+
 por fim 
 sempre 
 pôr um fim 
 ---
+2177
+
 alguém please 
 – me – explica
-todo este negócio que é 
+todo este negócio 
+que é 
 
 O AMOR NOS TEMPOS DE CAPITALISMO
 ---
-então choque a sociedade 
-com amor beleza arte 
-cultura romance acolhimento social 
+2176
+
+então choque 
+a sociedade 
+com amor beleza 
+arte 
+cultura romance 
+acolhimento 
+social 
 resistência 
-porque um mundo que se choca 
+porque um mundo 
+que se choca 
 com isso 
 está doente 
 e precisa de um
 
 TRATAMENTO DE CHOQUE
 ---
+2175
+
 eu me Ode e eu quero mor.
 ---
+2174
+
 a campainha lhe tocava 
 mais que a companhia
 ---
-para ser sincero é preciso ser vidente
+2173
+
+para ser sincero 
+é preciso ser 
+vidente
 ---
+2172
+
 sei bem 
 a vozinha que 
 meu vôzinho 
@@ -6138,21 +6639,10 @@ o seu cachorro
 sua 
 existência
 ---
-por que você fala comigo desse jeito
+2171
 
-que jeito
-
-como se estivesse 
-
-ESCREVENDO 
----
-a voada amou
----
-você é tão feita
----
-eu sinto muito a sua fala
----
-então quantas vezes você já namorou
+então quantas vezes 
+você já namorou
 
 quatorze e você 
 
@@ -6160,26 +6650,40 @@ vinte e nove
 
 hum…
 ---
+2170
+
 o que é bom para poder 
 fungar o seu pescoço
 ---
+2169
+
 QUADRO
 
-café preto sem açúcar 
-que mantém a poesia 
-eufórica e
+café preto 
+sem açúcar 
+que mantém 
+a poesia 
+eufórica 
+e
 a cor dada
 ---
-insuportável tal facilidade 
+2168
+
+insuportável 
+tal facilidade 
 com que você 
 não me ama
 ---
+2167
+
 Santos Dumont deveria ser 
 feriado nacional 
 então pergunte aos franceses 
 na frente da Torre Eiffel 
 eu olharia só para você
 ---
+2166
+
 então quer dizer que daqui há 
 cento e cinquenta anos 
 todo mundo que hoje está vivo 
@@ -6188,62 +6692,99 @@ e eu só vou te encontrar
 – uma – vez 
 numa – saída – de um bar
 ---
-estou completamente lúcido por você
+2165
+
+estou completamente 
+lúcido 
+por você
 ---
+2164
+
 comparassem nossas artes 
 você teria ampla paisagem
 ---
+2163
+
 dama após a outra 
 se entregando 
 de corpo em corpo 
 sem nenhum drama
 ---
-a dança passou a ser 
+2162
+
+a dança passou 
+a ser 
 o único prazer 
 das con
+
 versos 
 ---
+2161
+
 Thom Yorke, have you ever heard of Yoñlu?
 ---
+2160
+
 claro que por ti 
-não tenho mais aqueles amores 
+não tenho mais aqueles 
+amores 
 mas algumas noites 
 confesso 
 vou até a janela 
-checar a altura da lua
+checar a altura da 
+lua
 ---
+2159
+
 cheguei a medir portas 
 por onde passaria 
 aquele amor 
 que vindo pela janela 
 pare-céu-engano
 ---
+2158
+
 Hans Zimmer tic-toc-ando 
 no nosso mundinho
 ---
+2157
+
 você é a base da minha NASA 
-é algo que o Alex Turner escreveria?
+é algo que o Alex Turner 
+escreveria?
 ---
+2156
+
 todos os meus eus 
-na morando todo o seu eu
+na morando todo 
+o seu eu
 ---
+2155
+
 se o seu amor caísse 
 no vaso sanitário 
 o que você faria
 ---
-não tinha medo de nomear o que sentia 
+2154
+
+não tinha medo de nomear 
+o que sentia 
 o medo era sobrenomear
 ---
+2153
+
 então me conta sobre você 
 o que você faz
 
-características que me colocam 
-no espaço-tempo 
-ou quem eu sou 
-e sobre o autoconhecimento 
+características que me 
+colocam no espaço-tempo 
+ou quem eu sou e sobre 
+o autoconhecimento 
 que eu adquiri 
 em mais de trinta anos?
 ---
+2152
+
 em sorrisos de adeuses 
 não aparecem 
 dentes podres 
@@ -6254,50 +6795,82 @@ e tratamentos
 
 é possível salvá-los?
 ---
-sinto muita pena em mim
+2151
+
+seja apenas mais 
+dois neste mundo 
+apenas mais uma 
+vez
 ---
-seja apenas mais dois neste mundo 
-apenas mais uma vez
----
+2150
+
 vamos lá 
 escreva tudo para fora
 ---
+2149
+
 outro dia li a pergunta 
 quando a pessoa cai muito 
 o que pode ser 
 sorri 
-até que eu consegui levantar 
+até que eu consegui 
+levantar 
+
 nova
+
 mente
 ---
+2148
+
 metafísica conta que 
 serei seu anjo 
 arte conta que 
 serei seu fantasma 
 ciência afirma que 
-serei uma espécie de seu satélite
+serei uma espécie 
+de seu satélite
 ---
+2147
+
 não é justo comigo 
 ser justo com você 
 neste momento
 ---
+2146
+
 amores Made in China
 ---
+2145
+
 só um feto provocava afeto?
 ---
+2144
+
 você é tudo que eu quero
 
 você é tudo que eu tenho
 ---
-antigamente no polo sul da lua 
-hoje mais pelo polo dance
+2143
+
+antigamente 
+no polo sul 
+da lua 
+hoje mais 
+pelo polo 
+dance
 ---
+2142
+
 você fala comigo
 com mais pontos 
 do que vírgulas.
 ---
+2141
+
 brota mais pra dentro?
 ---
+2140
+
 você me ama? 
 onde? 
 eu eu não consigo 
@@ -6310,10 +6883,15 @@ amo
 amo na Fossa das 
 Marianas
 
-não posso fazer nada com as suas palavras 
+não posso fazer nada 
+com as suas palavras 
 vazias
 ---
-se não escrevemos as nossas próprias histórias 
+2139
+
+se não escrevemos 
+as nossas próprias 
+histórias 
 ao menos uma vez 
 alemos
 
@@ -6332,21 +6910,31 @@ SIGNIFICADO DE ALAR
 dar asas 
 elevar 
 erguer 
-alar o espírito às regiões do belo
+alar o espírito 
+às regiões do belo
 ---
-porque agora acabou 
-para você e eu 
+2138
+
+porque agora 
+acabou 
+para você 
+e eu 
 para
 o adeus final 
 para
 
 O ADEUS INICIAL
 ---
-as pessoas não são infinitas 
+2137
+
+as pessoas não 
+são infinitas 
 mas suas almas 
 se expandem 
 o tempo todo
 ---
+2136
+
 80s 
 
 enfrentar a pista 
@@ -6358,142 +6946,215 @@ vendo-se só para
 
 DANÇAR QUEEN FEITO UMA RAINHA
 ---
-tendo alcançado um brilho 
+2135
+
+tendo alcançado 
+um brilho 
 muito intenso 
-objeto que mais brilha 
+objeto que mais 
+brilha 
 no céu noturno
 depois da lua 
 o nosso amor 
 visível 
 a versos nus
 ---
-algo catastrófico aconteceu no sistema solar 
+2134
+
+algo catastrófico 
+aconteceu no sistema 
+solar 
 me apaixonei por ela 
 correr não adianta
 ria 
 neste caso
 ---
+2133
+
 nem tudo é o que aparece
 ---
+2132
+
 Toby era o meu maior hobby
 ---
-atualmente se interessa mais por ufologia 
+2131
+
+atualmente se interessa 
+mais por ufologia 
 do que por romance
 ---
+2130
+
 ler um bom livro é como você 
 vestir a melhor capa 
 para ficar em vida
 ---
+2129
+
 bilhões e bilhões de poesias 
 atraversando o seu corpo 
 enquanto você lê essa poesia
 ---
+2128
+
 conhecemos mais 
 o espaço 
 e o oceano 
 do que 
 a poesia
 ---
+2127
+
 deixe o meu dia 
 mais leve 
-para onde você estiver
+para onde você 
+estiver
 ---
+2126
+
 canto ela 
 arranjo namorada 
 gosto da melodia 
 me instrumenta
 ---
+2125
+
 plantas com anos neste ramo
 ---
+2124
+
 ERA UMA VEZ…
 
 o dia em que o ser humano 
 percebeu que abre mão 
 de abrir asas
 ---
+2123
+
 paixão tirou os sapatos 
 para não fazer barulho 
 não teve jeito 
 amor acordou
 ---
+2122
+
 há coisas 
 tão poéticas 
 que não cabem 
 na poesia
 ---
+2121
+
 nunca teve primeiras intenções
 ---
+2120
+
 JUSTIÇA COM AS PRÓPRIAS MÃES 
 
 ah se o mar fosse no feminino...
 ---
+2119
+
 eu te amo
 
 eu não seria tão idiota de acreditar nisso
 
 não te dei amor mas te dei sabedoria
 ---
+2118
+
 um ingresso num amor ou 
-um ingresso para assistir a estreia de Titanic 
+um ingresso para assistir 
+a estreia de Titanic 
 no cinema 
+
 em 1998
 ---
+2117
+
 seus olhos são tão lindos
 quanto o seu olhar
 ---
+2116
+
 AMOUR
 
 clamor orgíaco da solidão
 ---
+2115
+
 AMOUR
 
 do gozo ao catarro
 ---
+2114
+
 desligava todas as luzes 
 no entanto 
 no momento em que penetrava 
 fechava os olhos
 ---
+2113
+
 “verdade que consegui fazê-lo chorar?” 
 repetia dezenas e dezenas de vezes 
 como quem ganhara 
 o Prêmio Nobel 
 ---
+2112
+
 seu gemido ecoava 
 poesia orquestrada
 ---
+2111
+
 pulando acerca de 
 ---
+2110
+
 a paleta de cores de uma mulher
 ---
-você é uma página do World
----
+2109
+
 ter o poder 
 de prever você
 ---
+2108
+
 ele estava apenas correndo 
 na sua frente 
 ou ele estava fugindo 
 de você?
 ---
+2107
+
 lamento 
 você fala comigo 
 com sintomas 
 não com 
 sentimentos
 ---
-suas infidelidades não eram tão 
+2106
+
+suas infidelidades 
+não eram tão 
 dramáticas 
 mais do gênero 
 fantasia
 ---
+2105
+
 sempre te amei Pierrot
 
 meu nome é Ferdinand
 ---
+2104
+
 tripulação da alma 
 amor comandante
 ---
+2103
+
 vertigem 
 ou desejo imenso 
 de cair 
@@ -6503,11 +7164,17 @@ a salvasse
 ou pelo menos 
 a levantasse
 ---
+2102
+
 amores CTRL+C 
 CTRL+V amores
 ---
+2101
+
 Vinícius ameaçou se amar
 ---
+2100
+
 depois de Paulo Leminski 
 ficou claro para mim 
 que eu não tinha 
@@ -6517,73 +7184,113 @@ Toda Poesia
 minha propria 
 Bíblia
 ---
+2099
+
 celebrar-me-ei-a-mando-você
 ---
+2098
+
 falando tanto sobre amor 
 faltando tanto amor
 ---
+2097
+
 amar por precaução
 ---
+2096
+
 quando encontrares um amor 
 continue a procur
 ares amor 
 neste amor
 ---
+2095
+
 o talento é a melhor maquiagem 
 do mundo
 ---
+2094
+
 o talento é a melhor maquiagem 
 do mundo 
 e não precisa ser artista 
 para ter talento 
 ---
+2093
+
 INTIMIDADE
 
 é querer saber
-o que não gostaria 
+o que não 
+gostaria 
 de saber
 ---
+2092
+
 quero ser orgulho do meu estado
 de espírito
 ---
+2091
+
 primeiros encontros 
 as maiores despedidas
 ---
+2090
+
 eu escreveria aquilo 
 que você 
 gostaria de ler 
 mas daí talvez você 
 não goste
 ---
+2089
+
 você está proibido 
 de escrever 
 qualquer coisa 
 a meu respeito
 ---
+2088
+
 não seria assim 
 do mesmo jeito 
 se o cinema 
 não existisse
 ---
+2087
+
 vamos colocar um ponto inicial 
 na nossa história
 
 .
 ---
+2086
+
 a solidão deve partir de você
 ---
-saudade exige que amor se retrate
+2085
+
+saudade exige 
+que amor se retrate
 ---
+2084
+
 no escuro 
 ficou bem claro 
 que ficar duro 
 era moleza
 ---
+2083
+
 acordei ao som de passarinhos 
 cantando Wonderwall
 ---
+2082
+
 F5 no amor
 ---
+2081
+
 se bem me lembro 
 no final 
 ela disse 
@@ -6594,6 +7301,8 @@ para vocês entenderem
 
 NO FINAL.
 ---
+2080
+
 quando estou 
 não consigo acreditar 
 que estou 
@@ -6602,156 +7311,239 @@ não consigo acreditar
 que um dia 
 já estive
 ---
+2079
+
 melhores amigos 
 participação especial
 
 AMOR
 ---
+2078
+
 Vinícius Knecht 
 poeta naturezado 
 lá de Manoel de Barros
 ---
+2077
+
 POESIA 
 
 vestir as palavras
 para logo depois 
 despi-las
 ---
-você é a primeira vez qu
-eu escrevo isso 
-e não vou repet
+2076
+
+você 
+é a primeira 
+vez qu
+eu escrevo 
+isso 
+e não 
+vou repet
 ir
 ---
+2075
+
 antigamente 
 amor podia cair 
 de penhasco 
+
 era socorrido com vida
 ---
+2074
+
 musa inspiração 
 prec
 Isa dizer não
 ---
+2073
+
 ela pensa em mim 
 e não se toca
 ---
+2072
+
 amava ela 
 nunca me senti 
 tão nervoso 
 na vida 
+
 porque o meu papel estava acabando
 ---
+2071
+
 HISTÓRIA DE UM ROMANCE MODERNO 
 
 Erra uma vez…
 Fim. 
 ---
+2070
+
 MARIETA
 
 para poeta que se presta 
 amor vira título
 ---
+2069
+
 nostalgia põe saudade para dormir
 ---
+2068
+
 nunca alimente um amor 
 sem apetite
 ---
+2067
+
 tropeçamos na vida 
 deitamos no chão 
 e fizemos amor 
 para disfarçar 
 ---
+2066
+
 você me lembra alguém
 lembrei 
 você me lembra você 
 do passado
 ---
+2065
+
 minha sensibilidade 
 olha minha intensidade 
 que toca minha depressão 
 que beija minha ansiedade 
 que penetra minha arte
 ---
+2064
+
 como acordar para a vida 
 sem regular o sonho
 ---
+2063
+
 no final das contas 
 você acaba ficando 
 com aquele que estiver 
 mais perto
 ---
+2062
+
 seu corpo 
 um mirante
 ---
+2061
+
 seu sussurro no meu ouvido 
 um refrão
 ---
+2060
+
 o truque da vovó 
 é costurar o tricô 
 com a linha do tempo
 ---
+2059
+
 visitei o seu coração 
 para a minha surpresa 
 não havia ninguém em casa
 ---
+2058
+
 não confie tanto nos seus olhos
 ---
+2057
+
 especialistas analisam 
 em que circunstância 
 ainda é recomendado amar
 ---
+2056
+
 MADRUGADAS
 
 amor que horas parece agora?
 ---
+2055
+
 explique para mim 
 se há alguma intensidade 
 considerada “normal”
 e como medi-la
 ---
+2054
+
 não lembrava mais 
 o seu rosto 
 mas ainda lembrava 
 o quanto a amava
 ---
+2053
+
 A NOSSA LIGAÇÃO 
 
 coração chama chama 
 e ninguém atende
 ---
+2052
+
 entre 
-fique na vontade 
+fique 
+na vontade 
 não repara 
-que estou te amando 
-está uma bagunça
+que estou 
+te amando 
+está uma 
+bagunça
 ---
+2051
+
 descobri 
-não me apaixonava 
+não me 
+apaixonava 
 por mim 
-porque eu não queria 
-nada sério
+porque 
+eu não 
+queria 
+nada 
+sério
 ---
+2050
+
 tomara que o amor
 nunca mais encoste 
 um dedo 
 em você
 ---
-não sei se fui 
+2049
+
+não sei 
+se fui 
 o melhor 
 ou apenas 
 o preferido
 ---
+2048
+
 você não quer 
 me conhecer melhor 
 você só quer 
 pistas
-para solucionar poesias
+para solucionar 
+poesias
 ---
+2047
+
 JULIA DREAM
 
 trocamos olhares 
 e agora tenho 
 olhos azuis
 ---
+2046
+
 ANTES DO AMANHECER
 
 num encontro romântico 
@@ -6760,65 +7552,101 @@ são mais importantes
 que respostas vestidas 
 p/ impressionar
 ---
+2045
+
 muito amor 
 pouca mídia
 ---
+2044
+
 talvez você se encontre
 Vivian
 ---
+2043
+
 AMOR 
 
 aquilo que supera amizade 
 ---
+2042
+
 AMIZADE 
 
 aquilo que supera amor
 ---
+2041
+
 espere mais um pouco 
 a noite não está 
 escura o bastante 
 para nós dois 
 ---
+2040
+
 você não sabe com quem está amando
 ---
+2039
+
 foi amor à última vista
 ---
-quinze goles de café 
+2038
+
+quinze goles 
+de café 
 para saber 
 que te quero
 ---
+2037
+
 você é exatamente 
 como alguém que desejo 
 mas talvez eu não queira 
 alguém que seja exatamente 
 como alguém que desejo
 ---
+2036
+
 vocês se entenderam? 
 
 não mas nós rimos muito
 ---
+2035
+
 do teu lado 
-não tenho tamanho 
-tamanho é o amor 
+não tenho 
+tamanho 
+tamanho 
+é o amor 
 que tenho 
 ---
+2034
+
 só temos 
-real conexão 
+real 
+conexão 
 des
 conectados
 ---
-fazer um 
-filme 
-sobre nossa história 
+2033
+
+fazer um filme 
+sobre nossa 
+história 
 antes que vire 
 novela
 ---
+2032
+
 escrever um livro 
 é contar ao mundo 
-quem é você 
+quem é você
+
 e se perder na conta
 ---
-sempre li o meu nome 
+2031
+
+sempre li 
+o meu nome 
 em azul 
 e o seu 
 em vermelho
