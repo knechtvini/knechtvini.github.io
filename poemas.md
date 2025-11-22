@@ -10,11 +10,10 @@ Aquele que jamais viverei, muito menos conhecerei.
 E ao Quentin Tarantino.
 ---
 2649
+bolsonaro’s poeminho
+(com histórico de atleta)
 
-BOLSONARO POEMINHO
-
-Vo mitá
-
+vo mitá
 
 22 de novembro de 2025
 ---
