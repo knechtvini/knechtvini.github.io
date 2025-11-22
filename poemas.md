@@ -9,6 +9,19 @@ Aquele que jamais viverei, muito menos conhecerei.
 
 E ao Quentin Tarantino.
 ---
+2671
+
+vejo suas asas
+nos seus olhos
+---
+2670
+
+além de 
+amor 
+não sinto 
+mais nada 
+por você
+---
 2669
 
 capitalista o que você costuma
