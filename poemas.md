@@ -9,6 +9,21 @@ Aquele que jamais viverei, muito menos conhecerei.
 
 E ao Quentin Tarantino.
 ---
+2651
+
+então ponha a 
+mão no meu 
+lugar
+
+qual é o 
+seu papel
+na minha 
+vida
+
+além de
+frequentar as 
+mesmas poesias
+---
 2650
 
 — Empresta a chave do carro.
