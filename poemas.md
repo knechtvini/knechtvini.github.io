@@ -9,6 +9,25 @@ Aquele que jamais viverei, muito menos conhecerei.
 
 E ao Quentin Tarantino.
 ---
+2669
+
+capitalista o que você costuma
+fazer no seu templo livre?
+---
+2668
+
+eu te amo mas
+não leve para 
+o lado pessoal
+---
+2667
+
+com relação 
+às relações
+me corrija 
+se estiver 
+correto
+---
 2666
 
 rsrsrs
