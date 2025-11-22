@@ -9,6 +9,44 @@ Aquele que jamais viverei, muito menos conhecerei.
 
 E ao Quentin Tarantino.
 ---
+2677
+
+me candidatei 
+a ver a dor
+---
+2676
+
+a natureza é bonita por natureza
+---
+2675
+
+lembranças na infância
+lambanças na velhice
+
+escrevo apenas
+o que nunca di rei
+---
+2674
+
+pobre e honesto 
+e vendo a vaga 
+na fila
+---
+2673
+
+penso que alguma 
+ocupação eu tenho
+que ter 
+já estou no 
+terceiro sono 
+sem
+nenhum 
+sonho
+---
+2672
+
+uma andorinha andarilha
+---
 2671
 
 vejo suas asas
