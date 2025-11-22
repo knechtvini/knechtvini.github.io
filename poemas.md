@@ -9,6 +9,57 @@ Aquele que jamais viverei, muito menos conhecerei.
 
 E ao Quentin Tarantino.
 ---
+2660
+
+o poder da ambiguidade
+
+o psicólogo não me
+
+trata
+
+bem
+---
+2659
+
+referências & rascunho & repertório
+---
+2658
+
+"ESTAMOS CONSTATANDO!"
+
+Poetas.
+---
+2657
+
+vendo minha alma
+
+reparei 
+
+como é bela
+---
+2656
+
+a serenidade e a paz 
+de um olhar
+livre de maldade 
+e a consciência
+de que poderia 
+ser melhor
+---
+2655
+
+fazendo uma ponte 
+entre o rio e o choro
+---
+2654
+
+imagine ela apontando 
+para você
+e dizendo que 
+está recebendo 
+uma boa vibração 
+de você
+---
 2653
 
 tem pessoas que 
