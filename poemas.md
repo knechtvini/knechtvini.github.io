@@ -9,6 +9,11 @@ Aquele que jamais viverei, muito menos conhecerei.
 
 E ao Quentin Tarantino.
 ---
+2650
+
+— Empresta a chave do carro.
+— Filho, o fim não é a solução.
+---
 2649
 bolsonaro’s poeminho
 (com histórico de atleta)
