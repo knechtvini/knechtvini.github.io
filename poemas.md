@@ -9,6 +9,62 @@ Aquele que jamais viverei, muito menos conhecerei.
 
 E ao Quentin Tarantino.
 ---
+2666
+
+rsrsrs
+
+o conselho nacional da saúde 
+lhe dará uma medalha 
+por você ter sobrevivido 
+todos esses anos
+
+neste estado
+---
+2665
+
+meu perfume no céu
+---
+2664
+
+amigo só uma informação
+
+claro
+
+sabe ali onde você pega 
+a primeira curva para 
+a região glútea?
+---
+2663
+
+estou cansado 
+de ser ignorado
+só hoje 
+o Leonardo DiCaprio
+é a terceira pessoa 
+que me ignora
+---
+2662
+
+amaré
+
+em um
+bar
+co
+em 
+algum
+verso 
+nos
+em
+contra
+remos
+---
+2661
+
+madrugada o tempo de
+escrever mentiras que 
+ao amanhecer
+leremos de verdade
+---
 2660
 
 o poder da ambiguidade
