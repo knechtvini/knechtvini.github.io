@@ -9,6 +9,17 @@ Aquele que jamais viverei, muito menos conhecerei.
 
 E ao Quentin Tarantino.
 ---
+2652
+
+dependente
+
+escrevo 
+para 
+piorar
+e assim 
+sempre 
+voltar
+---
 2651
 
 então ponha a 
