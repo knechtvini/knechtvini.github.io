@@ -9,6 +9,15 @@ Aquele que jamais viverei, muito menos conhecerei.
 
 E ao Quentin Tarantino.
 ---
+2653
+
+tem pessoas que 
+têm essa mania
+de querer se meter 
+nos nossos
+sentimentos
+e isso é incrível
+---
 2652
 
 dependente
