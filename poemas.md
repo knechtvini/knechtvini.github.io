@@ -9,6 +9,15 @@ Aquele que jamais viverei, muito menos conhecerei.
 
 E ao Quentin Tarantino.
 ---
+2649
+
+BOLSONARO POEMINHO
+
+Vo mitá
+
+
+22 de novembro de 2025
+---
 2648
 
 — Eu não sei, porque eu nunca tive. Mas eu imagino. 
