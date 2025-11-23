@@ -9,6 +9,25 @@ Aquele que jamais viverei, muito menos conhecerei.
 
 E ao Quentin Tarantino.
 ---
+2689
+
+se bobear 
+eu sou 
+criança
+---
+2688
+
+Ilário 
+insuficiente 
+meu vocabulário
+---
+2687
+
+ô seu paulo 
+não pisa 
+no freire 
+não senhô
+---
 2686
 
 do alto de 
