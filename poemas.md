@@ -9,6 +9,200 @@ Aquele que jamais viverei, muito menos conhecerei.
 
 E ao Quentin Tarantino.
 ---
+2712
+
+quando o 
+próximo passo
+é o tropeço
+e o próximo 
+tropeço
+é a queda
+e a próxima 
+queda
+é o próximo 
+passo
+---
+2711
+
+sempre perdi ajuda 
+nos momentos de crise
+---
+2710
+
+continho
+
+junto ao corpo 
+suicida
+no bolso da sua 
+calça rasgada
+depararam-se com 
+um bilhete
+premiado da loteria 
+do dia
+que já havia 
+corrido
+
+ele estava bem-decidido
+---
+2709
+
+qual foi a última mente 
+que você leu?
+---
+2708
+
+se você não 
+criar logo
+logo logo 
+alguém 
+vai copiar
+---
+2706
+
+rock ‘n’ roll é salvo por populares
+---
+2705
+
+amor modo avião
+pousando
+---
+2704
+
+barriga para fora: 
+liberdade ou solidão?
+---
+2703
+
+você pode ser 
+uma boa pessoa
+e só você 
+achar isso
+você pode ser 
+a melhor pessoa
+do mundo
+e só você 
+achar isso
+---
+2702
+
+quero 
+me livrar 
+dessa vida
+mas não 
+quero 
+me livrar
+dessa história
+---
+2701
+
+o fundo do 
+meu poço 
+já está 
+mobiliado
+---
+2700
+
+artes da 
+mesma espécie
+se farejam mas 
+não se 
+reconhecem
+---
+2699
+
+não há 
+nada mais 
+solitário 
+na história da história
+que um 
+dente de ouro
+---
+2698
+
+saudades 
+só matam
+quando 
+elas as
+assinam
+---
+2697
+
+todo esgotamento 
+de um artista
+está no sintoma
+de que 
+uma espécie
+de entidade 
+precisa dizer
+você é artista
+para que 
+então
+artista ele 
+possa 
+se sentir
+ou ser
+---
+2696
+
+ahhh poesia digital
+até abrir 
+novo documento
+já se foi 
+o pensamento
+---
+2695
+
+não 
+necessariamente
+um ser 
+inteligente
+mas um ser 
+profundo
+sem ser 
+entediante
+---
+2694
+
+um vini com a 
+folha afundada
+---
+2693
+
+amores modernos
+
+casou-se 
+na igreja
+ao som da 
+vinheta
+do plantão da globo
+---
+2692
+
+ele recebia 
+não de cara
+mas sempre 
+sim de alma
+---
+2691
+
+também
+não faço 
+a menor 
+falta
+na minha 
+poesia
+outro 
+e qualquer
+poeta
+a escreveria
+---
+2690
+
+e mal tenho 
+corpo
+para vender
+minha poesia
+---
 2689
 
 se bobear 
