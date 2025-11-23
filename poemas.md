@@ -9,6 +9,19 @@ Aquele que jamais viverei, muito menos conhecerei.
 
 E ao Quentin Tarantino.
 ---
+2678
+
+a narração de um beijo
+
+ela me pegou 
+de surpresa
+a gente se pega 
+tão bem
+
+ela fez tudo 
+para se tornar 
+eterno futuro
+---
 2677
 
 me candidatei 
