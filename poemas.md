@@ -9,6 +9,80 @@ Aquele que jamais viverei, muito menos conhecerei.
 
 E ao Quentin Tarantino.
 ---
+2686
+
+do alto de 
+uma bela
+
+sacada
+
+avistou que 
+não temos mais 
+clima para isso
+---
+2685
+
+senhora 
+no 
+banco
+tirando 
+extrato
+de tomate
+---
+2684
+
+corrigi tanto 
+meu romance 
+que
+ele virou 
+autobiografia
+---
+2683
+
+desejo ser atropelado
+apenas para descobrir
+que sou um super-herói
+
+e mostrar aos outros, 
+é claro
+---
+2682
+
+— Qual é a diferença de uma arma 
+para um papel e uma caneta?
+— Depende. Eles juntos ou separados?
+---
+2681
+
+diz ti nada
+
+escrevi por 
+tantos anos
+que só eu 
+ouço que só
+para mim rara
+mente na
+dança das 
+palavras me
+encontrei em 
+meus próprios 
+versos e
+espero que 
+você dance
+---
+2680
+
+escrevo para mim
+nunca me respondo
+---
+2679
+
+não se preocupe 
+ninguém vai ler
+não digo por segurança 
+mas
+por falta de interesse
+---
 2678
 
 a narração de um beijo
