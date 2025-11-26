@@ -9,7 +9,7 @@ Aquele que jamais viverei, muito menos conhecerei.
 
 E ao Quentin Tarantino.
 ---
-2712
+2704
 
 quando o 
 próximo passo
@@ -22,34 +22,12 @@ queda
 é o próximo 
 passo
 ---
-2711
-
-sempre perdi ajuda 
-nos momentos de crise
----
-2710
-
-continho
-
-junto ao corpo 
-suicida
-no bolso da sua 
-calça rasgada
-depararam-se com 
-um bilhete
-premiado da loteria 
-do dia
-que já havia 
-corrido
-
-ele estava bem-decidido
----
-2709
+2703
 
 qual foi a última mente 
 que você leu?
 ---
-2708
+2702
 
 se você não 
 criar logo
@@ -57,21 +35,22 @@ logo logo
 alguém 
 vai copiar
 ---
-2706
+2701
 
 rock ‘n’ roll é salvo por populares
 ---
-2705
+2700
 
 amor modo avião
 pousando
 ---
-2704
+2699
 
-barriga para fora: 
+barriga para fora:
+
 liberdade ou solidão?
 ---
-2703
+2698
 
 você pode ser 
 uma boa pessoa
@@ -83,7 +62,7 @@ do mundo
 e só você 
 achar isso
 ---
-2702
+2697
 
 quero 
 me livrar 
@@ -93,22 +72,14 @@ quero
 me livrar
 dessa história
 ---
-2701
+2692
 
 o fundo do 
 meu poço 
 já está 
 mobiliado
 ---
-2700
-
-artes da 
-mesma espécie
-se farejam mas 
-não se 
-reconhecem
----
-2699
+2691
 
 não há 
 nada mais 
@@ -117,7 +88,7 @@ na história da história
 que um 
 dente de ouro
 ---
-2698
+2690
 
 saudades 
 só matam
@@ -125,24 +96,7 @@ quando
 elas as
 assinam
 ---
-2697
-
-todo esgotamento 
-de um artista
-está no sintoma
-de que 
-uma espécie
-de entidade 
-precisa dizer
-você é artista
-para que 
-então
-artista ele 
-possa 
-se sentir
-ou ser
----
-2696
+2689
 
 ahhh poesia digital
 até abrir 
@@ -150,7 +104,7 @@ novo documento
 já se foi 
 o pensamento
 ---
-2695
+2688
 
 não 
 necessariamente
@@ -161,12 +115,12 @@ profundo
 sem ser 
 entediante
 ---
-2694
+2687
 
 um vini com a 
 folha afundada
 ---
-2693
+2686
 
 amores modernos
 
@@ -174,16 +128,17 @@ casou-se
 na igreja
 ao som da 
 vinheta
+
 do plantão da globo
 ---
-2692
+2685
 
 ele recebia 
 não de cara
 mas sempre 
 sim de alma
 ---
-2691
+2684
 
 também
 não faço 
@@ -196,33 +151,13 @@ e qualquer
 poeta
 a escreveria
 ---
-2690
-
-e mal tenho 
-corpo
-para vender
-minha poesia
----
-2689
+2683
 
 se bobear 
 eu sou 
 criança
 ---
-2688
-
-Ilário 
-insuficiente 
-meu vocabulário
----
-2687
-
-ô seu paulo 
-não pisa 
-no freire 
-não senhô
----
-2686
+2682
 
 do alto de 
 uma bela
@@ -233,7 +168,7 @@ avistou que
 não temos mais 
 clima para isso
 ---
-2685
+2681
 
 senhora 
 no 
@@ -242,7 +177,7 @@ tirando
 extrato
 de tomate
 ---
-2684
+2680
 
 corrigi tanto 
 meu romance 
@@ -250,45 +185,27 @@ que
 ele virou 
 autobiografia
 ---
-2683
+2679
 
 desejo ser atropelado
 apenas para descobrir
 que sou um super-herói
 
-e mostrar aos outros, 
+e mostrar aos outros
 é claro
 ---
-2682
+2678
 
 — Qual é a diferença de uma arma 
 para um papel e uma caneta?
 — Depende. Eles juntos ou separados?
 ---
-2681
-
-diz ti nada
-
-escrevi por 
-tantos anos
-que só eu 
-ouço que só
-para mim rara
-mente na
-dança das 
-palavras me
-encontrei em 
-meus próprios 
-versos e
-espero que 
-você dance
----
-2680
+2677
 
 escrevo para mim
 nunca me respondo
 ---
-2679
+2676
 
 não se preocupe 
 ninguém vai ler
@@ -296,43 +213,29 @@ não digo por segurança
 mas
 por falta de interesse
 ---
-2678
-
-a narração de um beijo
-
-ela me pegou 
-de surpresa
-a gente se pega 
-tão bem
-
-ela fez tudo 
-para se tornar 
-eterno futuro
----
-2677
+2675
 
 me candidatei 
 a ver a dor
 ---
-2676
+2674
 
 a natureza é bonita por natureza
 ---
-2675
+2673
 
 lembranças na infância
 lambanças na velhice
-
 escrevo apenas
 o que nunca di rei
 ---
-2674
+2672
 
 pobre e honesto 
 e vendo a vaga 
 na fila
 ---
-2673
+2672
 
 penso que alguma 
 ocupação eu tenho
@@ -343,16 +246,16 @@ sem
 nenhum 
 sonho
 ---
-2672
+2671
 
 uma andorinha andarilha
 ---
-2671
+2670
 
 vejo suas asas
 nos seus olhos
 ---
-2670
+2669
 
 além de 
 amor 
@@ -360,24 +263,16 @@ não sinto
 mais nada 
 por você
 ---
-2669
+2668
 
 capitalista o que você costuma
 fazer no seu templo livre?
 ---
-2668
+2667
 
 eu te amo mas
 não leve para 
 o lado pessoal
----
-2667
-
-com relação 
-às relações
-me corrija 
-se estiver 
-correto
 ---
 2666
 
@@ -387,7 +282,6 @@ o conselho nacional da saúde
 lhe dará uma medalha 
 por você ter sobrevivido 
 todos esses anos
-
 neste estado
 ---
 2665
