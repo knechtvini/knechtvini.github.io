@@ -9,6 +9,11 @@ Aquele que jamais viverei, muito menos conhecerei.
 
 E ao Quentin Tarantino.
 ---
+2705
+
+O QUE VOCÊ CONSEGUE FAZER HOJE
+ainda que seja minúsculo?
+---
 2704
 
 quando o 
