@@ -9,6 +9,8 @@ Aquele que jamais viverei, muito menos conhecerei.
 
 E ao Quentin Tarantino.
 ---
+"VINÍCIUS KNECHT NÃO É LITERATURA."
+---
 2705
 
 O QUE VOCÊ CONSEGUE FAZER HOJE
