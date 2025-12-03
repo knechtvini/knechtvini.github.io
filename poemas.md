@@ -11,6 +11,98 @@ E ao Quentin Tarantino.
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2741
+
+SEPARAÇÃO
+
+tem arte que não merece seu artista
+tem artista que não merece sua arte
+---
+2740
+
+— o que você faz da vida
+— sou jogador profissional de futebol
+atacante 
+mas não atuo na área
+---
+2739
+
+atingir 
+um nível 
+de escritor
+onde 
+eu seja 
+minha 
+maior 
+referência
+---
+2738
+
+estou 
+em processo de
+de composição
+---
+2737
+
+PÓSTUMO
+
+meu castelo 
+foi meu túmulo
+---
+2736
+
+poesia é um pedido 
+de desculpa
+da arte 
+para o universo
+---
+2735
+
+tenho 
+tantas 
+respostas 
+pra 
+te 
+dar
+você 
+não 
+fez 
+nenhuma 
+pergunta
+---
+2734
+
+— vamos assistir um filme com o Louis Garrel?
+— acho que agora ele está ocupado amor
+---
+2733
+
+SÓ, GAROTOS
+
+— do que a tua namorada gosta?
+— de outras garotas
+---
+2732
+
+— gostou dela?
+— belo par de versos
+---
+2731
+
+PINK FLOYD
+
+pensei que fosse um anjo
+eram hélices brancas
+do ventilador de teto
+---
+2730
+
+se eu fosse 
+super-herói
+não voaria
+
+medo de altura
+---
 2729
 
 “A FILA ANDA”
