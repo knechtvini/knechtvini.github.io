@@ -11,6 +11,103 @@ E ao Quentin Tarantino.
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2754
+
+no fundo sou
+apenas meu
+primeiro leitor
+---
+2753
+
+conchinha
+coxões
+coxas
+colchões
+---
+2752
+
+eu era 
+o dublê
+da minha 
+namorada
+---
+2751
+
+ele tem 
+uma cara 
+de quem 
+transa
+transa 
+tanto 
+que me 
+assusta
+eu sou 
+apenas 
+um desses
+que gosta 
+de poesia
+---
+2750
+
+A ÁRVORE DA VIDA
+
+do parto 
+parti
+para 
+a parte
+que parte
+---
+2749
+
+amor pra mim
+é um desses
+jogos de azar
+---
+2748
+
+Eu te amo
+ver tradução
+---
+2747
+
+POESIA NÃO-CORRESPONDIDA
+(VIVIAN)
+
+— aceita uma carona?
+— não
+---
+2746
+
+BLZ
+
+hoje me sinto 
+tão feio
+será que são 
+os outros
+---
+2745
+
+qual ilha você levaria 
+para uma música?
+---
+2744
+
+trair 
+é soltar um pum 
+na cozinha
+---
+2743
+
+meu coração partido deu pt
+---
+2742
+
+eu 
+sou melhor 
+que todos 
+eus 
+juntos
+---
 2741
 
 SEPARAÇÃO
