@@ -11,6 +11,124 @@ E ao Quentin Tarantino.
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2718
+
+KURT COBAIN
+
+depressão:
+evitar gatilhos
+---
+2717
+
+quando ouvimos 
+hey you pink floyd
+e nos chapamos 
+você disse 
+desce daí
+mas o céu estava 
+tão confortável 
+e eu acreditava 
+no amor
+só não o via
+---
+2716
+
+INTERNET
+
+quando estava 
+conversando 
+com ela
+a internet caiu 
+
+“— isso é um sinal”
+---
+2715
+
+EFEITO MANADA
+
+se eu começo 
+a criticar 
+uma pessoa
+eu não durmo à noite
+porque continuo 
+acordado
+
+e criticando
+---
+2714
+
+TRAIÇÃO
+
+— não sei do que você está falando
+— eu já sei de tudo, Vinícius
+— eu não admito que você descubra isso
+eu não esperava isso de você
+---
+2713
+
+não me acorde 
+do pior pesadelo
+
+a realidade é bem pior
+---
+2712
+
+o paciente 
+com tendências suicidas
+e o psicólogo 
+encerra a sessão
+com a frase
+“o seu tempo acabou”
+---
+2711
+
+todas as vezes 
+que você esquecer 
+das obviedades 
+do amor 
+me chame 
+ao anoitecer
+---
+2710
+
+LÍQUIDO
+
+você está vivendo 
+a porra de um sonho
+a porra de um amor 
+e vai perder tudo isso 
+por causa
+da porra de uma porra?
+---
+2709
+
+uma garota veio até mim
+e disse 
+“eu não entendo o seu cabelo”
+e foi embora
+---
+2708
+
+antigamente 
+as pessoas 
+criticavam 
+uma obra de arte
+interpretavam 
+avaliavam 
+no máximo 
+julgavam
+hoje elas 
+corrigem 
+e cancelam
+---
+2706
+
+nos meus primeiros 
+anos de vida
+meus ídolos 
+já se suicidavam
+escrevo para trazê-los de volta
+---
 2705
 
 O QUE VOCÊ CONSEGUE FAZER HOJE
