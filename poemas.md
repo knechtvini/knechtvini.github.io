@@ -11,6 +11,124 @@ E ao Quentin Tarantino.
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2768
+
+acho que você
+merece ficar 
+sozinha
+esse é o maior 
+elogio
+que posso te dar
+---
+2767
+
+HOJE
+
+sabe 
+o que 
+te faz 
+ser mais 
+homem?
+ser menos homem
+---
+2766
+
+extrema-esquerda 
+empata 
+em zero a zero
+com extrema-direita 
+e constituintes 
+se pronunciam
+sugerindo 
+que o placar 
+foi de dez a dez
+---
+2765
+
+tá ficando 
+velho
+teu livro 
+tá no sebo
+---
+2764
+
+— como seria seu fim de mundo perfeito
+---
+2763
+
+coloca na câmera 
+córtex pré-frontal
+---
+2762
+
+CLUBISTA
+
+quando você fala
+dos seus recordes
+você fala
+dos seus limites
+---
+2761
+
+o poema está perfeito
+e no mais
+
+INSIGNIFICANTE
+---
+2760
+
+estimular a fama 
+para excitar a arte
+---
+2759
+
+E VIVERAM
+TRISTES 
+PARA SEMPRE
+
+“o voo está cancelado
+nós nunca vamos nos ver
+espero que você fique bem
+farei o mesmo 
+beijos”
+
+e por fim 
+estiveram 
+mais perto do que nunca
+---
+2758
+
+escritos 
+em excesso
+sinto-me 
+lutando
+pela inexistência
+---
+2757
+
+estou chorando 
+tanto
+por sua causa
+gostaria tanto 
+que você 
+visse
+estou tão lindo
+---
+2756
+
+VEJA
+
+homem finge 
+própria morte
+e parentes fingem 
+que não souberam
+---
+2755
+
+paixão cobra caro 
+por amostra grátis 
+de amor
+---
 2754
 
 no fundo sou
