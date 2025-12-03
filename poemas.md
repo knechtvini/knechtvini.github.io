@@ -11,6 +11,133 @@ E ao Quentin Tarantino.
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2787
+
+sofrendo para fins poéticos
+---
+2786
+
+KIT SOBREVIVÊNCIA PARA UM AMOR:
+
+Amor.
+---
+2785
+
+a vida é uma lágrima
+escorrendo
+até as partes íntimas
+---
+2784
+
+a.B d.B
+
+antes de Beatles 
+depois de Beatles
+---
+2783
+
+rótulo é o primo pobre do diagnóstico
+---
+2782
+
+velho entra na barriga por herança
+---
+2781
+
+o mundo tá esgotado
+tô só começando
+---
+2780
+
+outro dia 
+fui diagnosticado
+com amor
+---
+2779
+
+leve o poeta 
+para passear
+leve o poeta 
+para falar
+eu quero ver 
+o poeta 
+falhando
+---
+2778
+
+querida algum dia 
+pagarei as contas
+com estes poemas
+eu sou um homem 
+de palavra e
+a minha palavra 
+é de confiança
+---
+2777
+
+THE ISABELA END
+
+você foi a minha maior queda
+---
+2776
+
+ARTISTAS LOCAIS
+
+— por que você não nota 
+a minha arte
+eu estou do seu lado
+---
+2775
+
+— e o que você está sentindo
+(pergunta o psicólogo)
+— vontade de trocar de psicólogo
+---
+2774
+
+— você acredita em Deus?
+— eu sou diagnóstico
+---
+2773
+
+— eu te amo
+— talvez você não tenha lido 
+os livros certos
+---
+2772
+
+esperando 
+o ônibus mágico
+nas paradas
+de sucesso
+há sempre 
+um passarinho
+gritando
+“quem sabe a letra canta junto”
+---
+2771
+
+você tá preocupada 
+comigo
+pelo meu bem
+ou pelo seu bem?
+---
+2770
+
+alguns atores
+recusaram o Oscar
+por que não posso 
+superar você?
+---
+2769
+
+BAND-AID
+
+bandos noturnos
+atrás de bares
+bandas
+e bundas
+---
 2768
 
 acho que você
