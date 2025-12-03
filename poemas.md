@@ -11,6 +11,88 @@ E ao Quentin Tarantino.
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2729
+
+“A FILA ANDA”
+
+na fila do amor
+você fala 
+mais do amor
+ou você fala 
+mais da fila do amor?
+---
+2728
+
+BEIJO DE AMOR
+
+anti-cético bucal
+---
+2727
+
+MÃE!
+
+no meu tempo
+esse mato 
+era tudo cidade
+---
+2726
+
+AMOR
+
+quando te conheci
+peguei costume
+de respirar 
+todos 
+os 
+dias
+---
+2725
+
+PRAIA
+
+amor es
+domar
+areia
+---
+2724
+
+poesia nada mais é
+do que menos não ser
+---
+2723
+
+ele só amava 
+garotas
+que podiam 
+mata-lo
+a qualquer momento
+---
+2722
+
+— você tá vivo?
+— sim. tô. mas...
+
+poesia é sobre sintomas
+---
+2721
+
+todos os caminhos me levam a mim
+---
+2720
+
+— posso entrar em você?
+— só se você sair e entrar de novo 
+e de novo e de novo
+---
+2719
+
+AMORES MODERNOS
+
+— você me achou mais bonita 
+pessoalmente?
+— não. e você?
+— também não
+---
 2718
 
 KURT COBAIN
