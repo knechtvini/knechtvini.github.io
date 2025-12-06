@@ -9,6 +9,12 @@ Aquele que jamais viverei, muito menos conhecerei.
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2788
+
+ouça sua música preferida
+e diga o primeiro sexo
+que vier à sua cabeça
+---
 2787
 
 sofrendo para fins poéticos
