@@ -6,8 +6,6 @@ DE CONSUMO DE CIGARROS E CAFEÍNA.
 ---
 Quero dedicar este site ao amor da minha vida. 
 Aquele que jamais viverei, muito menos conhecerei.
-
-E ao Quentin Tarantino.
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
