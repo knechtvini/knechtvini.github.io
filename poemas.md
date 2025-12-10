@@ -9,6 +9,17 @@ Aquele que jamais viverei, muito menos conhecerei.
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2791
+
+Um terno conversa com uma gravata
+
+— E agora, 
+o que 
+faremos?
+— Governos. Esses 
+artistas não 
+suportam governos
+---
 2790
 
 ouça sua música preferida
