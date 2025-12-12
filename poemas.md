@@ -9,6 +9,62 @@ Aquele que jamais viverei, muito menos conhecerei.
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2799
+
+criatividade termina em tragédia
+---
+2798
+
+você sabe dançar
+só não está imaginando a música certa
+---
+2797
+
+não almoça. toma café dia inteiro.
+toma remédio dia inteiro.
+não sai de casa.
+fica em casa o prédio inteiro.
+remédio não faz efeito.
+cabelo piorando. barriga piorando.
+pele piorando. tatuagem piorando.
+pênis piorando. poesia piorando.
+voz piorando. beijo piorando.
+coluna piorando. História piorando.
+mundo piorando. Deus piorando.
+Diabo piorando. remédio não faz efeito.
+---
+2796
+
+eu aceitei o destino que nunca me aceitou
+---
+2795
+
+alma atrofiada
+
+escrevo mais do que sinto
+
+não é mais poesia
+---
+2794
+
+Pesadelos com falta de roupa.
+Pesadelos com falta de caminhos.
+Pesadelos com falta de vivos.
+Pesadelos perseguidos.
+Pesadelos caídos.
+Pesadelos mortos.
+Pesadelos com .com.
+---
+2793
+
+Você não é artista? 
+Tá fazendo o que aqui, vitória?
+---
+2792
+
+se despeça como você quiser
+o show é todo céu
+---
 2791
 
 Um terno conversa com uma gravata
