@@ -9,6 +9,11 @@ Aquele que jamais viverei, muito menos conhecerei.
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2800
+
+eu acredito nos fantasmas
+para que não se sintam sozinhos
+---
 2799
 
 criatividade termina em tragédia
