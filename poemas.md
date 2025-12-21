@@ -9,6 +9,60 @@ Aquele que jamais viverei, muito menos conhecerei.
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2807
+
+— por que eu sairia com você?
+— pra você me pôr no meu lugar
+---
+2806
+
+ele vê o pôr do sol e chora
+escuta Beatles e chora
+vê o mar e chora
+assiste Titanic e chora
+recebe amor e chora
+ele vê Van Gogh e chora
+chora porque escreve este poema
+e chora porque este poema
+poderia ser infinito
+ele nunca
+nunca
+
+nunca
+
+(...)
+---
+2805
+
+olha só
+estou morrendo 
+dentro de uma arte
+olha só
+o último lugar 
+em que imaginei
+que morreria
+---
+2804
+
+não acredito em sucessos
+mas que eles existem, existem
+---
+2803
+
+estar morto de sono × estar podre de bêbado
+---
+2802
+
+você é feio e limitado
+e não tem vergonha
+de escrever desse jeito
+---
+2801
+
+escreva mais para 
+si menos para 
+os outros
+---
 2800
 
 eu acredito nos fantasmas
