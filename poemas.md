@@ -4,9 +4,6 @@ layout: default
 ESTE CONTEÚDO CONTÉM CENAS 
 DE CONSUMO DE CIGARROS E CAFEÍNA.
 ---
-Quero dedicar este site ao amor da minha vida. 
-Aquele que jamais viverei, muito menos conhecerei.
----
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
 2807
