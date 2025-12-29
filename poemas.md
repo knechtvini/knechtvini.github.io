@@ -6,6 +6,24 @@ DE CONSUMO DE CIGARROS E CAFEÍNA.
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2808
+
+dezembro e janeiro de 2025 e 2026
+
+uma poesia para começar
+um quadro amenos estável de vida
+um videogame para jogar futebol
+uma esteira elétrica para correr contra o tempo
+um filme para viver uns amores
+um livro para ser livre 
+e uma nova ficção
+uma música para não se matar
+e, casa comigo
+um beatle para ressuscitar
+um livro para autografar
+e chega de poesia
+chega mais
+---
 2807
 
 — por que eu sairia com você?
