@@ -6,6 +6,15 @@ DE CONSUMO DE CIGARROS E CAFEÍNA.
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2809
+
+casou com o amor da sua vida e se matou
+criou uma obra prima e se matou
+nasceu seu filho e se matou
+ganhou um bilhão e se matou
+ficou famoso e se matou
+escreveu um poema e nunca se matou
+---
 2808
 
 dezembro e janeiro de 2025 e 2026
