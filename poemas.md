@@ -15,7 +15,7 @@ da sua vida
 e se matou
 criou uma obra-prima 
 e se matou
-nasceu seu filho 
+seu filho nasceu
 e se matou
 ganhou um bilhão 
 e se matou
