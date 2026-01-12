@@ -9,8 +9,8 @@ permalink: /sobre/
 - [No mínimo rir, no máximo chorar (2019) pdf](https://drive.google.com/drive/folders/1tB9WdHHQNyIbdG1NnoaQFsR1JrfUos7c?usp=drive_link)
 - [Tristeza que dá inveja (2021) pdf](https://drive.google.com/drive/folders/183VCjb-lOEEY17wD0DdkQGFDAxQyyg0u?usp=drive_link)
 - [Amarelando blue (2025) pdf](https://drive.google.com/drive/folders/1OzQZEYopa7a5709ESYBO09_F_kUmTIh3?usp=drive_link)
-- [Comprar Amarelando blue (2025)](https://www.bestiario.com.br/livros/amarelando.html)
-- [Comprar Amarelando blue (2025 - Amazon] (https://www.amazon.com.br/Amarelando-blue-Vin%C3%ADcius-Knecht/dp/6560561828)
+- [Comprar Amarelando blue (2025) Editora Bestiário](https://www.bestiario.com.br/livros/amarelando.html)
+- [Comprar Amarelando blue (2025) - Amazon] (https://www.amazon.com.br/Amarelando-blue-Vin%C3%ADcius-Knecht/dp/6560561828)
 <br>
 <br>
 ### Contato  
