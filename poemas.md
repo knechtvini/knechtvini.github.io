@@ -1,12 +1,16 @@
 ---
 layout: default
 ---
+Oi
+---
 ESTE CONTEÚDO CONTÉM CENAS 
 DE CONSUMO DE CIGARROS E CAFEÍNA.
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
 2810
+
+AMARÉ
 
 um braço surge do 
 
@@ -19,15 +23,15 @@ nada
 
 casou com o amor 
 da sua vida 
-e se matou
-criou uma obra-prima 
-e se matou
+se matou
+criou sua obra-prima 
+se matou
 seu filho nasceu
-e se matou
+se matou
 ganhou um bilhão 
-e se matou
+se matou
 ficou famoso 
-e se matou
+se matou
 escreveu um poema 
 nunca se matou
 ---
@@ -46,7 +50,7 @@ uma música para não se matar
 e, casa comigo
 um beatle para ressuscitar
 um livro para autografar
-e chega de poesia
+e chega de poesia chega
 chega mais
 ---
 2807
@@ -68,7 +72,7 @@ poderia ser infinito
 ele nunca
 nunca
 
-nunca
+nunca...
 
 (...)
 ---
@@ -76,7 +80,7 @@ nunca
 
 olha só
 estou morrendo 
-dentro de uma arte
+dentro duma arte
 olha só
 o último lugar 
 em que imaginei
@@ -94,14 +98,14 @@ estar morto de sono × estar podre de bêbado
 2802
 
 você é feio e limitado
-e não tem vergonha
+e além disso
+não tem nem vergonha
 de escrever desse jeito
 ---
 2801
 
-escreva mais para 
-si menos para 
-os outros
+escreva mais para si menos 
+para os outros
 ---
 2800
 
@@ -115,7 +119,8 @@ criatividade termina em tragédia
 2798
 
 você sabe dançar
-só não está imaginando a música certa
+só não está imaginando 
+a música certa
 ---
 2797
 
@@ -130,18 +135,18 @@ pênis piorando. poesia piorando.
 voz piorando. beijo piorando.
 coluna piorando. História piorando.
 mundo piorando. Deus piorando.
-Diabo piorando. remédio não faz efeito.
+Diabo piorando. 
+remédio não faz efeito.
 ---
 2796
 
-eu aceitei o destino que nunca me aceitou
+eu aceitei o destino 
+que nunca me aceitou
 ---
 2795
 
 alma atrofiada
-
 escrevo mais do que sinto
-
 não é mais poesia
 ---
 2794
