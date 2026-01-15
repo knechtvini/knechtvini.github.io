@@ -8,6 +8,43 @@ DE CONSUMO DE CIGARROS E CAFEÍNA.
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2815
+
+a coisa saiu 
+um pouquinho 
+do controle
+eu sonhei com você
+---
+2814
+
+quando a morte
+me encontrar ela
+vai levar um
+sustinho
+---
+2813
+
+nada mais triste do que
+uma poesia toda reunida
+---
+2812
+
+eles não 
+querem que 
+a gente 
+seja inteligente
+porque eles 
+são os 
+maiores burros
+---
+2811
+
+Sinopse do livro:
+
+“Se este livro se tornar 
+um best-seller, 
+eu tiro a própria vida.”
+---
 2810
 
 AMARÉ
