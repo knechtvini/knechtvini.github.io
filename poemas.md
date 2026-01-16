@@ -8,6 +8,13 @@ DE CONSUMO DE CIGARROS E CAFEÍNA.
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2834
+
+eu ia dedicar este poema 
+ao Olavo
+mas como ele morreu
+dediquei ao Freire
+---
 2833
 
 quanto mais procuro um emprego
