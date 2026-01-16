@@ -8,6 +8,163 @@ DE CONSUMO DE CIGARROS E CAFEÍNA.
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2832
+
+um dos grandes segredos
+que grandes escritores
+nunca contam
+são aqueles
+que eles nunca escrevem
+mas um dos grandes segredos
+que grandes escritores
+nunca escrevem
+são aqueles
+que eles nunca contam
+---
+2831
+
+por hoje é só
+amanhã é sozinho
+---
+2830
+
+PEIXE VENDENDO O MEU POEMA
+
+Por que tantos grandes poetas foram médicos?
+Ou então publicitários?
+
+Como eu era apenas um poeta
+e jamais conseguiria me formar em medicina
+continuei apenas um poeta
+
+Pois também jamais conseguiria
+me formar em publicidade e propaganda
+---
+2829
+
+tenho quase certeza 
+de que estou louco 
+quando não estou 
+questionando isso
+---
+2828
+
+perco o contato 
+com a realidade 
+de forma persistente
+quando estou consciente
+---
+2827
+
+ninguém precisa 
+aguentar tudo sozinho
+tem muita gente 
+pra prejudicar
+---
+2826
+
+ninguém avisou 
+que a esperança 
+casa com outro
+bem mais bonito
+e rico
+---
+2825
+
+FRESH
+
+eu descobri que
+tenho um superpoder
+escrever poemas
+infinitamente
+sobre tudo
+e qualquer coisa
+
+talvez até o superpoder
+da supervelocidade
+esteja incluído aí
+
+o problema é que existem
+grandes vilãs do outro lado
+que sempre me dão uma surra
+
+as Editoras
+---
+2824
+
+A FESTA
+
+— oi, você viu o Vini?
+não estou achando ele
+você sabe se ele já foi?
+— sim
+tão cedo
+tinha apenas vinte e sete
+---
+2823
+
+AMBIGUIDADE
+
+escritores assim só surgem
+em uma geração
+temos muita sorte…
+---
+2822
+
+CRISE EXISTENCIAL
+
+ninguém explicou direito 
+o preço de continuar
+dá um desconto
+---
+2821
+
+como eles conseguem morar na viagem?
+é uma afirmação.
+---
+2820
+
+nos beijamos na chuva 
+e ele me deixou toda molhada
+eu sinceramente não entendo
+como alguém nunca escreveu
+isso antes
+---
+2819
+
+É ASSIM QUE TUDO NEM COMEÇA
+
+você me deixa louco
+estou louco por você
+e essa clínica 
+e a medida protetiva
+não muda nada
+---
+2818
+
+ninguém ensinou 
+como terminar 
+sem parecer começo
+então posso começar
+ensinando
+---
+2817
+
+ninguém avisou
+que o silêncio
+também responde
+aquilo
+que nunca se imaginou perguntar
+---
+2816
+
+CHOCOLATE MEIO RESSENTIDO
+
+ninguém disse 
+que entender também dói
+mas eu não entendo 
+porque você namora ele
+---
 2815
 
 a coisa saiu 
