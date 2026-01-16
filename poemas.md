@@ -8,6 +8,29 @@ DE CONSUMO DE CIGARROS E CAFEÍNA.
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2833
+
+quanto mais procuro um emprego
+mais artista eu sou
+quanto mais envio currículos
+para essas grandes empresas
+mais artista eu sou
+quanto menos tento ser vagabundo
+mais artista eu sou
+espere
+posso escrever isso melhor
+ou pior
+eu posso explicar isso
+mas acho que você já entendeu
+aquilo que dizem
+que artista é tudo vagabundo
+eu trabalhei a tarde inteira neste poema
+mentira
+eu rabisquei isso em três minutos
+e dormi praticamente a tarde toda
+
+para Franz Kafka
+---
 2832
 
 um dos grandes segredos
