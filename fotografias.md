@@ -5,7 +5,7 @@ permalink: /fotografias/
 photos: 
   - url: https://lh3.googleusercontent.com/pw/AP1GczMohv6Y3zdxcCreDjBODwuPlNpb5dnz0XTsfFkPiWBN_QjEa0hEWFJqJA4J7hTIHtPvdkgEVUfEuy2W4BmD1iaib4pKqFJnWG2QRXZNg9Ipo2640gJz=w2400
   - url: https://lh3.googleusercontent.com/pw/AP1GczNaVnxNgoFaASVQ0rLbvw1oryWW4Z4aZapfx-uFEOLMx2f1N4E8CBEgha9hwtKvrhjFr5TJ090KgxF_Ar0TXEJ3CRkuZKIclBb_wGF-_L3b16PE_sDt=w2400
-  - url: https://lh3.googleusercontent.com/pwAP1GczP5_lgRVZolm7HpffTboyFbqNgCDuNvMSwt4FyAhxJpR3aiLXrwZBtjXjDteQWdYfeUwvurzXcIKTnCQ8LuzmhJQ3ZYf01Y8CwULJizXpLEH2iiXcr6=w2400
+  - url: https://lh3.googleusercontent.com/pw/AP1GczP5_lgRVZolm7HpffTboyFbqNgCDuNvMSwt4FyAhxJpR3aiLXrwZBtjXjDteQWdYfeUwvurzXcIKTnCQ8LuzmhJQ3ZYf01Y8CwULJizXpLEH2iiXcr6=w2400
   - url: https://lh3.googleusercontent.com/pw/AP1GczPS8NstJzEB34s4QuD6Xf2NyP7L1O4fK1j3rUQeINvVC5_2zAz7o6nNNc9UidFxVMBe8PjAmFa0FTmuOWNhIW_kPcSdqfgWZSECqvVuJap1nmw1dQcq=w2400
   - url: https://lh3.googleusercontent.com/pw/AP1GczOsm8NliW3qAANdhkxJ1QbX9LPpYQtepPH8r8mKZD8hFTYZH9MftalBBxMOFixyijlvqsq9jfTqoxWKCcUM9DmSw_dxC0sxiJPiCaRKPownxZt1RR50=w2400
   - url: https://lh3.googleusercontent.com/pw/AP1GczOb8Rt1JmpEFaQ32o1HJ0ItIH0N7_o023oO1x0WLUkx1iuGziLIuYveZo3wbv-NIyCHyZL24D9Qs6Xn5BLJO_C8A-4QK2DaxL9_h5is7FjwMEB8ptDv=w2400
