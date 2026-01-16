@@ -1,7 +1,7 @@
 ---
 layout: default
 ---
-Oi
+Hi, it’s me! Me! Vini.
 ---
 ESTE CONTEÚDO CONTÉM CENAS 
 DE CONSUMO DE CIGARROS E CAFEÍNA.
