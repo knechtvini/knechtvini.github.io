@@ -8,6 +8,36 @@ DE CONSUMO DE CIGARROS E CAFEÍNA.
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2854
+
+eu escolheria você 
+a dedo
+para atuar 
+na minha poesia
+---
+2853
+
+talvez o problema 
+não seja o fim
+mas tudo o que 
+a gente insiste dizer antes
+---
+2852
+
+o mundo não para 
+mesmo quando 
+a gente quer 
+que ele termine
+---
+2851
+
+há coisas que a gente guarda
+porque esqueceu
+---
+2850
+
+algumas verdades só aparecem nos EUA
+---
 2849
 
 THE BITCH
