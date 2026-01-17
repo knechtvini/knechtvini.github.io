@@ -8,6 +8,46 @@ DE CONSUMO DE CIGARROS E CAFEÍNA.
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2841
+
+o polvo não aguenta mais tanta erupção
+---
+2840
+
+a poesia contemporânea é ignorada
+mas tente colocar um poeta
+atravessando uma rua de patins...
+---
+2839
+
+parede cala direitista 
+em debate político
+após conseguir provar 
+que não pode emitir qualquer som
+---
+2838
+
+meu espelho veio tirar satisfações
+---
+2837
+
+o que é mais difícil para leigos
+aprender a cantar ópera
+ou operar o cantor Zezé Di Camargo?
+---
+2836
+
+se Picasso resolvesse pintar 
+suas próprias unhas
+ele perderia o seu instrumento
+---
+2835
+
+eu não sei 
+o que eu quero
+pelo menos 
+eu não sei alguma coisa
+---
 2834
 
 eu ia dedicar este poema 
