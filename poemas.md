@@ -8,6 +8,72 @@ DE CONSUMO DE CIGARROS E CAFEÍNA.
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2849
+
+THE BITCH
+
+existem momentos
+que passam despercebidos
+como a naturalidade
+de um homem
+apenas de sunga
+dentro de um mercado
+---
+2848
+
+às vezes a gente se esquece
+mas todos os outros 
+a gente se lembra
+---
+2847
+
+JURÍDICO
+
+o problema não é a dor
+o problema é todo o processo
+---
+2846
+
+dançamos salsa 
+nas flores das idades
+---
+2845
+
+a geladeira sussurrou 
+segredos 
+ao vaso sanitário
+---
+2844
+
+numa conferência 
+sobre gravidade
+organizada pelos direitistas
+os direitistas discursavam
+algumas capivaras
+que sequer 
+foram convidadas
+acabaram aplaudidas
+mesmo não concordando
+---
+2843
+
+qual o limite do poema?
+---
+2842
+
+hoje a gente tem que
+ficar de olho na previsão 
+do tempo
+coisa chata
+antigamente ninguém 
+se preocupava com isso
+hoje a gente tem que
+ficar de olho até na previsão 
+do fim do mundo
+coisa chata
+antigamente ninguém 
+se preocupava com isso
+---
 2841
 
 o polvo não aguenta mais tanta erupção
