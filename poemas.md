@@ -8,6 +8,61 @@ DE CONSUMO DE CIGARROS E CAFEÍNA.
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2861
+
+FÃ "FIEL"
+
+— por que você não mostra o rosto
+da sua personagem
+e deixa de ser covarde?
+— não entendi. é uma personagem.
+uma figura humana criada por mim,
+o autor. ela não existe. é ficção.
+— existe, sim. eu já vi você com ela
+várias vezes. já vi fotos de vocês juntos.
+ela existe, sim.
+— entendi. então me apresente.
+eu adoraria conhecer
+uma personagem minha.
+---
+2860
+
+o café sentou
+ao meu lado
+e acordamos
+o silêncio
+mais cedo
+---
+2859
+
+fiquei parado na porta
+bloqueando a passagem
+das outras pessoas
+nunca me senti tão importante
+---
+2858
+
+sentei no escuro
+para não assustar 
+a noite
+---
+2857
+
+medo de sonhar
+e no sonho
+sentir cheiro de naftalina
+---
+2856
+
+afinal, chega o dia 
+em que os pais saem do ninho
+e voam para o mundo...
+---
+2855
+
+a vida será dura
+isso enquato durá
+---
 2854
 
 eu escolheria você 
