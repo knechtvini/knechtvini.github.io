@@ -8,6 +8,68 @@ DE CONSUMO DE CIGARROS E CAFEÍNA.
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2868
+
+REALISTA
+
+Olha… sendo bem otimista…
+vou ser, no máximo, trilionário.
+---
+2867
+
+eu não lembro tanto
+que parece não ter sido eu
+eu não lembro tanto
+que parece nem ter acontecido
+---
+2866
+
+AMORES LÍQUIDOS
+
+sê men te
+---
+2865
+
+ARTE CONTEMPORÂNEA
+
+há tanta gente doida
+pra se expressar
+---
+2864
+
+A REDE SOCIAL
+
+— como é ter uma vida perfeita 
+nesta rede social?
+— ah, são muitos seguidores… 
+e seguidor ama essa vida, né?
+---
+2863
+
+08:00 música clássica 
+09:30 blues elétrico
+11:30 música clássica
+13:30 punk rock
+15:00 rock clássico britânico
+16:30 rock new wave dos anos 80
+18:30 punk rock
+19:45 blues acústico
+21:00 jazz
+22:00 indie rock alternativo
+23:30 blues lento
+00:00 rock clássico
+---
+2862
+
+MÉDIA
+
+pois eu não compreendo
+não basta ter que ser inteligente
+para entrar nesta faculdade…
+eles ainda querem que
+a gente se mantenha inteligente
+dentro da faculdade???
+---
 2861
 
 FÃ "FIEL"
