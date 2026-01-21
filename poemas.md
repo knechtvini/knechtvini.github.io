@@ -8,6 +8,118 @@ DE CONSUMO DE CIGARROS E CAFEÍNA.
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2879
+
+O beatle George merecia uma banda maior
+---
+2878
+
+ATO FALHO
+
+“Procuro parceiras para jobs”
+---
+2877
+
+INÍCIO DE UMA LISTA
+SOBRE O QUE ESTÁ
+ACABANDO COM A POESIA
+
+1.	Eu começo
+2.	A interpretação literal
+3.	O capitalismo
+4.	O mau humor do Cláudio
+5.	As redes sociais
+6.	As faculdades
+7.	Cães da raça chihuahua
+8.	Não necessariamente nessa ordem
+9.	Dentistas
+10.	Eu sendo um desses poetas
+---
+2876
+
+Aproveite que 
+você não está 
+trabalhando 
+para enriquecer
+---
+2875
+
+estava vendo uma lista de famosos 
+que não estão nas redes sociais
+engraçado o primeiro nome 
+é o de Jesus Cristo
+mais conhecido como Deus
+ainda assim é o mais seguido
+a maior prova de ser
+onipotente onisciente e...
+
+onipresente?
+---
+2874
+
+no dia 06 de março de 2026
+o primeiro disco voador 
+pousará na Terra
+ao som de Heroes 
+Space Oddity e Let’s Dance
+---
+2873
+
+Participei de um desses 
+cursos de escrita criativa
+E, realmente,
+---
+2872
+
+pare um pouco o que está fazendo
+respire… respire fundo…
+sinta o ar entrando
+sinta o ar saindo
+esvazie a mente
+confie no processo
+olhe para o relógio...
+já passou um tempinho, né, Mari...
+agora você é dona
+da sua demissão
+e da sua internação compulsória
+---
+2871
+
+vou me ausentar um pouquinho 
+das redes sociais
+para cuidar da minha saúde mental
+enquanto isso 
+minha namorada Francine
+irá administrar o perfil
+ela disse que confia muito 
+na minha recuperação
+e que poderemos nos ver novamente
+---
+2870
+
+PROVOCAÇÕES GRATUITAS
+
+é uma enorme covardia
+detonar outro artista
+através da arte
+o Tim Bernardes, por exemplo
+detona os ouvidos
+de todos os seus colegas
+de música
+através de suas músicas
+---
+2869
+
+PEQUENOS ENGANOS
+GRANDES NEGÓCIOS
+
+a mensagem que 
+eu enviaria
+para minha esposa
+acabei enviando
+para o meu chefe
+fui promovido.
+---
 2868
 
 REALISTA
