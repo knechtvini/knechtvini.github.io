@@ -8,6 +8,50 @@ DE CONSUMO DE CIGARROS E CAFEÍNA.
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2885
+
+1992s
+
+Eu assisti ao filme da minha vida 
+em tempo recorde
+---
+2884
+
+ERRA UMA VEZ... FIM.
+
+Escreve que ama ela e termina assim
+---
+2883
+
+CONFRONTO FÍSICO
+
+E então Stephen Hawking disse:
+“Quer resolver lá dentro?”
+---
+2882
+
+RIO DE JANEIRO
+
+“Aos 96 anos de idade,
+Fernanda aproveita a praia para sempre.”
+---
+2881
+
+depois que 
+descobriram 
+a palavra 
+elitismo
+não escrevem mais outras coisas
+---
+2880
+
+INCLUSÃO
+
+você é tão adorável 
+e tão talentoso
+deixe que digam o contrário
+e escreva sobre eles
+---
 2879
 
 O beatle George merecia uma banda maior
