@@ -8,6 +8,31 @@ DE CONSUMO DE CIGARROS E CAFEÍNA.
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2887
+
+— Qual é o seu CPF?
+— 021.068.*-**
+— Você já tem cadastro aqui com a gente?
+— Não. Meu pai deve ter.
+— Sabe o CPF dele?
+— Não.
+— Qual é o seu nome?
+— Vinícius… Knecht. K, n, e, c, h, t.
+— Como?
+— K, N, E, C, H, T.
+— C, h, t?
+— Isso.
+— Prontinho.
+
+E esse foi o cadastro mais rápido 
+que eu já fiz na vida.
+---
+2886
+
+nós só vamos namorar
+depois do primeiro peido
+que escapar
+---
 2885
 
 1992s
