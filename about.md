@@ -11,7 +11,7 @@ permalink: /sobre/
 - [Amarelando blue (2025) pdf](https://drive.google.com/drive/folders/1OzQZEYopa7a5709ESYBO09_F_kUmTIh3?usp=drive_link)
 - [Comprar Amarelando blue (2025) Editora Bestiário](https://www.bestiario.com.br/livros/amarelando.html)
 - [Comprar Amarelando blue (2025) - Amazon](https://www.amazon.com.br/Amarelando-blue-Vin%C3%ADcius-Knecht/dp/6560561828)
-- [Conto Marianna (2026) pdf)](https://drive.google.com/drive/folders/1hfYrUaFlGnDxpJgvxvvx1ckTYKDhN_ns?usp=drive_link)
+- [Conto Marianna (2026) pdf](https://drive.google.com/drive/folders/1hfYrUaFlGnDxpJgvxvvx1ckTYKDhN_ns?usp=drive_link)
 - [Conto Eu nunca li Machado de Assis (2026) pdf](https://drive.google.com/drive/folders/172fVH73Xx12_SUsrvHYikkzi6Z82BOrq?usp=drive_link)
 <br>
 <br>
