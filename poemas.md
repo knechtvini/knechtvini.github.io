@@ -8,6 +8,10 @@ DE CONSUMO DE CIGARROS E CAFEÍNA.
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2889
+
+Fantasma tem que ser realista
+---
 2888
 
 — Tem café?
