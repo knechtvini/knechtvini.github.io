@@ -8,6 +8,18 @@ DE CONSUMO DE CIGARROS E CAFEÍNA.
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2888
+
+— Tem café?
+— Infelizmente não servimos café, 
+senhor.
+— Então você vai fazer o seguinte: 
+ferva uma água, ponha numa caneca 
+de porcelana, de no mínimo 260ml.
+E traga pra mim, por gentileza. 
+Eu sempre carrego um sachê Nescafé 
+comigo.
+---
 2887
 
 — Qual é o seu CPF?
