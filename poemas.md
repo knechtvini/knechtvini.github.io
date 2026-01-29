@@ -12,31 +12,31 @@ POEMA ZERO
 
 meu deus existia ?aquele? armário
 propriedade dos meus pais
-e eu costumava estar lá dentro
-nunca tive a intenção de morar
-não imaginava essas coisas
-eu ia mesmo era me esconder 
-lá dentro eu cabia
-e isso me parecia o máximo
+eu costumava estar lá dentro
+nunca tive intenção de morar
+como não imaginei isso
+ia mesmo era-me esconder 
+lá dentro eu cabia e :isso: 
+isso me parecia o máximo
 talvez fosse mesmo
 o máximo que dava para fazer
-entrar fechar a porta me esconder
+entrar fechar a porta meu auge
 meu auge foi ter tamanho suficiente
 para estar dentro daquele armário
-e acredito que ninguém me procurava
-será que eu achava que alguém 
+acredito que ninguém me procurava
+será que eu achava que ?alguém? 
 notaria minha ausência
-que sentiria falta e viria me buscar
-ou será que eu me escondia
-de algo de alguém que nem eu sabia
-alguém me ajude nessa lembrança
+que sentiria falta viria me buscar
+ou será que me escondia
+de algo de alguém que nem sabia
+alguém #me ajude# nessa lembrança
 entrar naquele armário
-e ainda conseguir !fechar a porta!
+e ainda conseguir !fechar a sua porta!
 meu deus... ...a sensação...
 eu estava dentro da barriga da poesia
-talvez eu imaginava
+talvez imaginava isso
 tinha toda a criatividade do mundo
-em poucos segundos desafiava o tempo
+poucos segundos desafiava o tempo
 eu já me camuflava de fantasma
 não lembro de uma única vez
 ter sentido medo ou ter visto eles
