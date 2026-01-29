@@ -6,6 +6,20 @@ DE CONSUMO DE CIGARROS E CAFEÍNA.
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2897
+
+eu sou a penúltima peça
+do teu quebra-cabeça
+---
+2896
+
+faço aquilo que pude
+---
+2895
+
+já me preocupo mais com a verba
+do que com o verbo
+---
 2894
 
 eu não quero 
