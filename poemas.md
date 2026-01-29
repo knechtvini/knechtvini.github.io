@@ -6,6 +6,28 @@ DE CONSUMO DE CIGARROS E CAFEÍNA.
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2899
+
+— Então… Vinícius Knecht?
+— Isso.
+— Hum. Vinícius com u?
+— Sim.
+— Acento agudo?
+— Tem.
+— Certo. Então, aqui é o céu. Entendeu?
+— E você é Deus?
+— Sou. Alguma dúvida?
+— Estou um pouco assustado. 
+Mas aliviado por estar no céu. E não no…
+— Não se apresse. Ainda temos pendências.
+— Como assim?
+— Preciso que você me explique alguns 
+dos seus poemas.
+---
+2898
+
+não estou seguro com esta carta
+---
 2897
 
 eu sou a penúltima peça
