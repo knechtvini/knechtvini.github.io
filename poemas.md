@@ -6,6 +6,10 @@ DE CONSUMO DE CIGARROS E CAFEÍNA.
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2900
+
+Por que Diabos Deus leria meus poemas?
+---
 2899
 
 — Então… Vinícius Knecht?
