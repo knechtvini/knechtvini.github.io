@@ -6,6 +6,46 @@ DE CONSUMO DE CIGARROS E CAFEÍNA.
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2901
+
+POEMA ZERO
+
+meu deus existia ?aquele? armário
+propriedade dos meus pais
+e eu costumava estar lá dentro
+nunca tive a intenção de morar
+não imaginava essas coisas
+eu ia mesmo era me esconder 
+lá dentro eu cabia
+e isso me parecia o máximo
+talvez fosse mesmo
+o máximo que dava para fazer
+entrar fechar a porta me esconder
+meu auge foi ter tamanho suficiente
+para estar dentro daquele armário
+e acredito que ninguém me procurava
+será que eu achava que alguém 
+notaria minha ausência
+que sentiria falta e viria me buscar
+ou será que eu me escondia
+de algo de alguém que nem eu sabia
+alguém me ajude nessa lembrança
+entrar naquele armário
+e ainda conseguir !fechar a porta!
+meu deus... ...a sensação...
+eu estava dentro da barriga da poesia
+talvez eu imaginava
+tinha toda a criatividade do mundo
+em poucos segundos desafiava o tempo
+eu já me camuflava de fantasma
+não lembro de uma única vez
+ter sentido medo ou ter visto eles
+não lembro de uma única vez
+ter sido flagrado ali dentro
+mas lembro de todas as vezes
+em que ninguém me procurava
+.eu imagino.
+---
 2900
 
 Por que Diabos Deus leria meus poemas?
