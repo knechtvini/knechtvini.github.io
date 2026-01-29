@@ -1,12 +1,41 @@
 ---
 layout: default
 ---
-Hi, it’s me! Me! Vini.
----
 ESTE CONTEÚDO CONTÉM CENAS 
 DE CONSUMO DE CIGARROS E CAFEÍNA.
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
+---
+2894
+
+eu não quero 
+dormir melhor, 
+Drauzio
+eu quero 
+estar acordado melhor
+---
+2893
+
+novembro foi um grande ano
+---
+2892
+
+você daria a minha morte por mim
+---
+2891
+
+BRASIL
+
+“Venha prestar sua homenagem.
+Hoje vamos demolir
+o que foi um patrimônio histórico
+e seguirá existindo na memória.”
+---
+2890
+
+AME/AÇA
+
+seja feliz ou eu te mato
 ---
 2889
 
