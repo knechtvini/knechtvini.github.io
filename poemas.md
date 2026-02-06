@@ -6,6 +6,34 @@ DE CONSUMO DE CIGARROS E CAFEÍNA.
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2905
+
+“O CAOS DA AJUDA”
+---
+2904
+
+vai completar mais de 
+três semanas que ninguém 
+nenhuma pessoa da família
+ninguém nenhum amigo 
+ninguém nenhum conhecido
+ninguém me manda 
+qualquer mensagem
+estou começando 
+a ficar preocupado
+será que todos eles estão bem?
+---
+2903
+
+“A PRIMEIRA COISA QUE 
+VOCÊ NUNCA VAI FAZER”
+---
+2902
+
+— Tu viste o tweet 
+que o Machado de Assis 
+postou ontem?
+---
 2901
 
 POEMA ZERO
