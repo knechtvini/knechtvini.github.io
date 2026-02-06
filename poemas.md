@@ -32,7 +32,7 @@ VOCÊ NUNCA VAI FAZER”
 
 — Tu viste o tweet 
 que o Machado de Assis 
-postou ontem?
+postou ontem? Viste?
 ---
 2901
 
