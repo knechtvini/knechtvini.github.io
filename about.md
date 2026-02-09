@@ -18,4 +18,4 @@ permalink: /sobre/
 <br>
 ### Contato  
 📧 Email: vknecht@gmail.com  
-📸 Instagram: @knechtvinicius
+📸 Instagram: @knechtvini
