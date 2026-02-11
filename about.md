@@ -14,7 +14,7 @@ Vinícius Knecht é autor dos livros No mínimo rir, no máximo chorar (2019) e 
 - [Coluna de Martha Medeiros (O Globo) sobre Amarelando blue](https://oglobo.globo.com/ela/martha-medeiros/coluna/2025/11/conheca-amarelando-blue-livro-de-vinicius-knecht-que-e-um-frescor-diante-de-conteudos-copiados-da-internet.ghtml)
 - [Conto Marianna (2026) pdf](https://drive.google.com/drive/folders/1hfYrUaFlGnDxpJgvxvvx1ckTYKDhN_ns?usp=drive_link)
 - [Conto Eu nunca li Machado de Assis (2026) pdf](https://drive.google.com/drive/folders/172fVH73Xx12_SUsrvHYikkzi6Z82BOrq?usp=drive_link)
-- [Pousada da Criança](https://drive.google.com/drive/folders/1RboXv3EK3u5gn9HuiIPlS0bKuuCkvlZC?usp=sharing)
+- [Pousada da Criança pdf](https://drive.google.com/drive/folders/1RboXv3EK3u5gn9HuiIPlS0bKuuCkvlZC?usp=sharing)
 <br>
 <br>
 ### Contato  
