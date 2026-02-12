@@ -6,6 +6,47 @@ DE CONSUMO DE CIGARROS E CAFEÍNA.
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2906
+
+nunca fui muito fã de shoppings
+só quando tenho dinheiro
+por isso quase nunca fui muito
+fora o consumo é óbvio
+e o excesso de gente a praça
+de alimentação, o tipo de gente
+(as que têm dinheiro ou muito
+dinheiro) as sacoladas
+todas elas pedindo inveja
+mas há o cinema, a livraria
+o cafezinho…
+nunca fui muito fã de shoppings
+até o dia em que senti algo pior
+sobre os shoppings
+o dia em que eu realmente quis
+passear num shopping
+e até tinha algum dinheiro
+ao chegar lá quase todas as lojas
+já estavam fechadas
+e as outras fechando
+meia dúzia de pessoas
+a livraria ainda estava aberta
+mas antes de eu dizer boa noite
+para a moça do caixa
+ela avisou
+que já não estavam atendendo
+só queria um livro
+e tive que sair
+enquanto caminhávamos rumo
+ao supermercado para pelo menos
+tomar o cafezinho
+o supermercado já fechava as portas
+o cinema? se estivesse aberto,
+só filmes dublados
+comprei algo?
+paguei o estacionamento
+sem dúvidas um dos dias mais tristes
+de capitalismo da minha vida
+---
 2905
 
 “O CAOS DA AJUDA”
