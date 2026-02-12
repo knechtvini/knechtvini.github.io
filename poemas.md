@@ -6,6 +6,20 @@ DE CONSUMO DE CIGARROS E CAFEÍNA.
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2907
+
+acordei 
+convencido
+de que 
+tudo fazia 
+sentido
+senti que 
+nada 
+me convencia
+de que eu 
+não estava
+dormindo
+---
 2906
 
 nunca fui muito fã de shoppings
