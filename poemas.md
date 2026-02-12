@@ -6,6 +6,47 @@ DE CONSUMO DE CIGARROS E CAFEÍNA.
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2915
+
+eu tenho muita consciência 
+da minha insignificância
+às vezes eu penso
+eu não deveria ter 
+tanta consciência disso
+---
+2914
+
+a noite claramente 
+não quer 
+sua escuridão
+---
+2913
+
+me afastar 
+por precaução
+me afastar 
+com bola de cristal
+me afastar 
+por previsão
+---
+2912
+
+tenho mais escritos que conhecimento
+---
+2911
+
+já ter testado 
+caminhos demais
+para acreditar 
+fácil 
+em promessas 
+verdadeiras
+---
+2910
+
+depressão:
+ou você se entrega ou eu atiro
+---
 2909
 
 ÉSTÁ DESPEDIDA
