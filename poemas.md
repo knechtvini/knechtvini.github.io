@@ -6,6 +6,14 @@ DE CONSUMO DE CIGARROS E CAFEÍNA.
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2908
+
+me disseram 
+que era só 
+uma frase 
+e que isso 
+passarinha
+---
 2907
 
 acordei 
