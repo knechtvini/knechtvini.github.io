@@ -6,6 +6,11 @@ DE CONSUMO DE CIGARROS E CAFEÍNA.
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+| Clique em “Sobre”, ali no canto superior direito, e descubra quem é o autor, 
+veja os links das obras, compre ou simplesmente baixe os livros completos em PDF 
+(sim, de graça mesmo), além de espiar outros trabalhos autorais. 
+Aqui embaixo está toda a poesia de Vinícius Knecht, sempre atualizada por ele mesmo. |
+---
 2915
 
 eu tenho muita consciência 
