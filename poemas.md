@@ -6,6 +6,37 @@ DE CONSUMO DE CIGARROS E CAFEÍNA.
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2909
+
+ÉSTÁ DESPEDIDA
+
+a pessoa éstá tão doente que escrava-própria 
+carta de despedida sua num computador ou 
+num notebook nem imprime manda por e-mail
+já lutô demais com fantasmas com gente que 
+nunca nem vestiu armadura nunca entrou no 
+ringue nunca precisou de mais que uma mão 
+de dedos um dedo de palavras uma palavra
+para lhe derrrrrru...bares... não madrugam
+éstá tão deprimida que não aguenta mais 
+ouvir música nem ver filmes nem amor nem 
+gozar nem escrever 
+és crê ver escrever és crê ver escrever és crê ver
+aquilo que fazia de melhor aquilo que era melhor
+bem que agora poderia ser péssimo nem inventar
+éstá tão desesperançosa que se uma luz rasgasse o céu 
+e a iluminasse e uma voz firme e grave dissesse 
+“tenho planos para você” ela responderia sem hesitar
+“morte?” excitar ex citar excitar ex citar
+éstá tão sozinha que se isola ainda mais isa lá
+tão sozinha que fala consigo e não suporta
+éstá tão deprimida que dança Hallelujah
+pela pele pela pele pela última vez voz vez voz vez
+sua fé era fraca porque precisava de prova
+você não liga muito para poesia, liga?
+não importa o que você leu
+o que você tem a ver com isso?
+---
 2908
 
 me disseram 
