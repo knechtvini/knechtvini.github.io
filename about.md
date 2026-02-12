@@ -4,7 +4,7 @@ title: Sobre
 permalink: /sobre/
 ---
 
-Vinícius Knecht é autor dos livros No mínimo rir, no máximo chorar (2019) e Tristeza que dá inveja (2021), ambos publicados pela Editora Chiado Books, além de Amarelando blue (2025), pela Editora Bestiário. Sua estreia literária o levou a participar, como autor convidado, da Bienal Internacional do Livro do Rio de Janeiro, em 2019. Em 2025, esteve presente na 71ª Feira do Livro de Porto Alegre, ocasião em que recebeu reconhecimento da escritora e patrona do evento, Martha Medeiros, que dedicou uma coluna à sua obra. Também atua como roteirista, fotógrafo e músico.
+Vinícius Knecht é autor dos livros No mínimo rir, no máximo chorar (2019) e Tristeza que dá inveja (2021), ambos publicados pela Editora Chiado Books, e de Amarelando blue (2025), lançado pela Editora Bestiário. Sua estreia literária o levou a participar, como autor convidado, da Bienal Internacional do Livro do Rio de Janeiro, em 2019. Em 2025, participou da 71ª Feira do Livro de Porto Alegre, onde recebeu reconhecimento da escritora e patrona do evento, Martha Medeiros, que dedicou uma coluna à sua obra. Além da literatura, atua também como roteirista, fotógrafo e músico.
 
 Obras e trabalhos do autor:
 
