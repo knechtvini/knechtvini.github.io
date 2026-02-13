@@ -14,7 +14,6 @@ além de outros trabalhos autorais.
 Abaixo está (quase) toda a poesia 
 de Vinícius Knecht, 
 sempre atualizada.
-
 ---
 2915
 
