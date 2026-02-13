@@ -1,9 +1,6 @@
 ---
 layout: default
 ---
-ESTE CONTEÚDO CONTÉM CENAS 
-DE CONSUMO DE CIGARROS E CAFEÍNA.
----
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
 ||| Clique em “Sobre”, ali no canto superior direito, 
