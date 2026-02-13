@@ -8,7 +8,7 @@ no canto superior direito.
 Descubra quem é o autor. 
 Acesse os links das obras.
 (Compre ou baixe gratuitamente 
-os livros completos em PDF)
+os livros completos em PDF).
 Conheça também outros 
 trabalhos autorais.
 Abaixo, você encontra 
