@@ -4,16 +4,18 @@ layout: default
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
 ||| Clique em “Sobre”, 
-no canto superior direito, 
-e descubra quem é o autor, 
-acesse os links das obras, 
-compre ou simplesmente baixe 
-gratuitamente 
-os livros completos em PDF, 
-além de outros trabalhos autorais. 
-Abaixo está (quase) toda a poesia 
+no canto superior direito.
+Descubra quem é o autor. 
+Acesse os links das obras.
+(Compre ou baixe gratuitamente 
+os livros completos em PDF)
+Conheça também outros 
+trabalhos autorais.
+Abaixo, você encontra 
+(quase) toda a poesia 
 de Vinícius Knecht, 
-sempre atualizada.
+sempre atualizada. |||
+
 ---
 2915
 
