@@ -16,11 +16,11 @@ Abaixo, você encontra
 de Vinícius Knecht, 
 sempre atualizada. |||
 ---
-2916
+2917
 
 a Pâmela foi um grande passado
 ---
-2915
+2916
 
 POEMA POESIA
 
@@ -28,6 +28,12 @@ finalmente
 uma grande 
 decisão 
 em minhas mãos
+---
+2915
+
+tô respirando 
+por aparelhos 
+tô no Instagram
 ---
 2914
 
