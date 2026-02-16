@@ -16,11 +16,11 @@ Abaixo, você encontra
 de Vinícius Knecht, 
 sempre atualizada. |||
 ---
-2917
+2916
 
 a Pâmela foi um grande passado
 ---
-2916
+2915
 
 POEMA POESIA
 
@@ -29,7 +29,7 @@ uma grande
 decisão 
 em minhas mãos
 ---
-2915
+2914
 
 eu tenho muita consciência 
 da minha insignificância
@@ -37,20 +37,11 @@ da minha insignificância
 eu não deveria ter 
 tanta consciência disso
 ---
-2914
+2913
 
 a noite claramente 
 não quer 
 sua escuridão
----
-2913
-
-me afastar 
-por precaução
-me afastar 
-com bola de cristal
-me afastar 
-por previsão
 ---
 2912
 
