@@ -28,7 +28,6 @@ finalmente
 uma grande 
 decisão 
 em minhas mãos
-
 ---
 2915
 
