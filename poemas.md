@@ -18,7 +18,28 @@ sempre atualizada. |||
 ---
 2917
 
-a Pâmela foi um grande passado
+TOQUE
+
+já que fui acusado posso me entregar
+fui acusado de imaginar você dançando
+então me entrego
+e dedico estes toques a você
+disseram que inventei você dançando
+então entrego movimentos
+estes toques são seus
+fui acusado de te sonhar dançando
+invento o que você me toca
+invento o que toco
+e invento o que não toco
+invento que você me toca
+invento que te toco
+e invento o que não nos tocamos 
+invento que não nos tocamos nunca mais
+já que fui acusado posso me entregar
+e te entrego estes toques
+tudo que dedico, dedico com você
+
+p Jac
 ---
 2916
 
