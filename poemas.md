@@ -15,6 +15,19 @@ Abaixo, você encontra
 (quase) toda a poesia 
 de Vinícius Knecht, 
 sempre atualizada. |||
+---
+2917
+
+a Pâmela foi um grande passado
+---
+2916
+
+POEMA POESIA
+
+finalmente 
+uma grande 
+decisão 
+em minhas mãos
 
 ---
 2915
