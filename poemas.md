@@ -18,26 +18,29 @@ sempre atualizada. |||
 ---
 2917
 
-TOQUE
+TOC 
+(poema com versos implícitos)
 
 já que fui acusado posso me entregar
 fui acusado de imaginar você dançando
-então me entrego
+então me entrego não me deixa cair
 e dedico estes toques a você
 disseram que inventei você dançando
 então entrego movimentos
 estes toques são seus
-fui acusado de te sonhar dançando
+fui acusado de te sonhar dançando não me deixa
 invento o que você me toca
-invento o que toco
-e invento o que não toco
-invento que você me toca
-invento que te toco
-e invento o que não nos tocamos 
-invento que não nos tocamos nunca mais
+invento o que eu mesmo acho que toco
+e invento o que não toco ou que você não me toca
+invento que você me
+invento que eu te
+e invento que não nos
+invento que nunca nos tocamos nunca mais
 já que fui acusado posso me entregar
-e te entrego estes toques
+e dedico estes toques a você
 tudo que dedico, dedico com você
+me deixa cair outra vez
+porque tudo que dedico, dedico com você
 
 p Jac
 ---
