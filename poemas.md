@@ -42,7 +42,7 @@ já que fui acusado posso me entregar
 e dedico estes toques a você
 tudo que dedico, dedico com você
 me deixa cair outra vez porque
-por que tudo que dedico, dedico com você?
+por que tudo que dedico, dedico com você
 
 p Jac
 ---
