@@ -16,6 +16,27 @@ Abaixo, você encontra
 de Vinícius Knecht, 
 sempre atualizada. |||
 ---
+2922
+
+se me encontrar fracassado 
+ou perdido
+é porque trago 
+novidades
+---
+2921
+
+POEMA ELA É A POESIA
+
+vamos lotar estes palcos
+vamos lotar estas telas
+vamos lotar estas páginas
+vamos lotar Marianna
+porque eu amo ela
+---
+2920
+
+disse que me amava e esqueceu em tempo real
+---
 2919
 
 MORTE & VIDA
