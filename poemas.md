@@ -26,21 +26,23 @@ fui acusado de imaginar você dançando
 então me entrego não me deixa cair
 e dedico estes toques a você
 disseram que inventei você dançando
-então entrego movimentos
-estes toques são seus
+então movimentos estes toques são seus
 fui acusado de te sonhar dançando não me deixa
-invento o que você me toca
-invento o que eu mesmo acho que toco
-e invento o que não toco ou que você não me toca
+invento o que você me toca em
+por exemplo
+invento o que eu mesmo acho que toco em
+e invento o que não “toco” ou o que você não me toca
+agora eu, eu
 invento que você me
 invento que eu te
-e invento que não nos
-invento que nunca nos tocamos nunca mais
+e invento que nós não nos
+invento que nunca nos tocamos mais
+antes outra vez
 já que fui acusado posso me entregar
 e dedico estes toques a você
 tudo que dedico, dedico com você
-me deixa cair outra vez
-porque tudo que dedico, dedico com você
+me deixa cair outra vez porque
+por que tudo que dedico, dedico com você?
 
 p Jac
 ---
