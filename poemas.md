@@ -16,6 +16,24 @@ Abaixo, você encontra
 de Vinícius Knecht, 
 sempre atualizada. |||
 ---
+2919
+
+MORTE & VIDA
+
+— Você não está mais atrasado.
+— Ainda tenho tempo?
+— O evento foi cancelado.
+---
+2918
+
+meu pai foi mecânico 
+por toda a sua vida de trabalho
+e nunca foi mais do que isso
+eu digo em números
+disse o filho
+isso diz mais sobre o pai
+ou sobre o filho?
+---
 2917
 
 TOC 
