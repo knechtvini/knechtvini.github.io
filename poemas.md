@@ -677,7 +677,7 @@ e voam para o mundo...
 2855
 
 a vida será dura
-isso enquato durá
+isso enquanto durá
 ---
 2854
 
