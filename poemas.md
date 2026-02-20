@@ -16,6 +16,51 @@ Abaixo, você encontra
 de Vinícius Knecht, 
 sempre atualizada. |||
 ---
+2924
+
+A ausência
+de perguntas 
+pode ser pior 
+do que 
+a ausência 
+de respostas.
+---
+2923
+
+A arte compensa? 
+Digo, você cria porque é vital.
+Não pelos outros. 
+Você cria porque sente.
+Porque é ausente e convive com ausências.
+Dom, vocação, “talento”, técnica, 
+criatividade, etc?
+É na dor. 
+Mais do que no amor ou no humor. 
+É na dor.
+Então por que continuar?
+Escritor pequeno não consegue criar 
+com pseudônimo.
+Seria uma bela opção, essa do anonimato.
+De qualquer forma, 
+quem consome a sua arte?
+Quem realmente se importa com a existência 
+ou sobrevivência de um artista? 
+Mesmo aquele ali do seu bairro.
+O que é melhor: a sua arte ou a sua existência?
+Qualquer das respostas te f*de.
+Clarice escrevia porque senão 
+já estava morta.
+Mas ela já era Clarice. 
+Então por que continuar?
+Eu nunca me afirmo em lugar nenhum,
+em pessoa nenhuma.
+Qual seria a melhor resposta 
+para todos aqueles 
+que jamais te perguntaram 
+ou perguntariam 
+absolutamente nada? 
+Arte. Não compensa.
+---
 2922
 
 se me encontrar fracassado 
