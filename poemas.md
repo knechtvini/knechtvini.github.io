@@ -78,7 +78,7 @@ para todos aqueles
 que jamais te perguntaram 
 ou perguntariam 
 absolutamente nada? 
-Arte. Não compensa mais.
+Arte. Dor que não compensa mais.
 ---
 2922
 
