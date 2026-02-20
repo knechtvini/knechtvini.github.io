@@ -16,7 +16,7 @@ Abaixo, você encontra
 de Vinícius Knecht, 
 sempre atualizada. |||
 ---
-2924
+2925
 
 A ausência
 de perguntas 
@@ -24,6 +24,18 @@ pode ser pior
 do que 
 a ausência 
 de respostas.
+---
+2924
+
+STROGONOFF DE FRANGO
+
+Às vezes 
+a poesia 
+não tem 
+nada 
+a ver 
+com a 
+poesia
 ---
 2923
 
