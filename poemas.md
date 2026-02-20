@@ -16,7 +16,7 @@ Abaixo, você encontra
 de Vinícius Knecht, 
 sempre atualizada. |||
 ---
-2925
+2926
 
 A ausência
 de perguntas 
@@ -24,6 +24,13 @@ pode ser pior
 do que 
 a ausência 
 de respostas.
+---
+2925
+
+É bom
+tudo o que 
+escrevo 
+já é póstumo.
 ---
 2924
 
