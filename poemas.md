@@ -16,6 +16,34 @@ Abaixo, você encontra
 de Vinícius Knecht, 
 sempre atualizada. |||
 ---
+2943
+
+— Você pretende ter poemas?
+— Sim. Duas poesias!
+---
+2942
+
+agora vou escrever um poema
+apontado para a direita
+pegue a primeira esquerda
+---
+2941
+
+Chris Cornell sonhou comigo
+---
+2940
+
+Ninguém garante 
+que eu não sou 
+o maior poeta do mundo
+---
+2939
+
+poeta não pode se dar ao luxo 
+de escrever lixo
+é a última poesia 
+e daí eu vou dormir
+---
 2938
 
 poema dominical
