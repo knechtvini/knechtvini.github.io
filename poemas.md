@@ -16,6 +16,13 @@ Abaixo, você encontra
 de Vinícius Knecht, 
 sempre atualizada. |||
 ---
+2937
+
+MÚSICOS
+
+— Me dê um dó maior.
+— A Pâmela... em 2022.
+---
 2936
 
 CAROLINES
