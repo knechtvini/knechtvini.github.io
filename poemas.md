@@ -16,6 +16,10 @@ Abaixo, você encontra
 de Vinícius Knecht, 
 sempre atualizada. |||
 ---
+2934
+
+se tá criativo dorme só quando se acabar
+---
 2933
 
 um morto disse
