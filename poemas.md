@@ -16,6 +16,42 @@ Abaixo, você encontra
 de Vinícius Knecht, 
 sempre atualizada. |||
 ---
+2931
+
+pode gritar comigo
+só não responda poema depois
+---
+2930
+
+eu poderia adaptar você 
+para o teatro
+---
+2929
+
+toda a paixão está encamada
+---
+2928
+
+escreve assim
+tão melhor que eu
+continua por favor
+tá me fazendo 
+um grande favor
+---
+2927
+
+tu acha que tu
+desse jeito
+é real?
+tu acredita em tu
+desse jeito?
+---
+2927
+
+para de chorar
+você não tem 
+felicidade nessa cara?
+---
 2926
 
 A ausência
