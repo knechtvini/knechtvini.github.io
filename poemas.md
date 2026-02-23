@@ -16,6 +16,14 @@ Abaixo, você encontra
 de Vinícius Knecht, 
 sempre atualizada. |||
 ---
+2935
+
+ficou decepcionada porque escrevi
+um poema toquei e cantei uma canção
+fiz um desenho algumas fotografias
+e comprei chocolate
+para mim
+---
 2934
 
 se tá criativo dorme só quando se acabar
