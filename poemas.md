@@ -16,6 +16,14 @@ Abaixo, você encontra
 de Vinícius Knecht, 
 sempre atualizada. |||
 ---
+2933
+
+um morto disse
+que a arte existe 
+porque a vida
+não basta
+tem gente que vive disso até hoje
+---
 2932
 
 pode gritar comigo
