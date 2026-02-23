@@ -40,9 +40,14 @@ CAROLINES
 ---
 2935
 
-ficou decepcionada porque escrevi
-um poema toquei e cantei uma canção
-fiz um desenho algumas fotografias
+ficou decepcionada 
+só
+porque escrevi
+um poema 
+toquei e cantei 
+uma canção
+fiz um desenho 
+algumas fotografias
 e comprei chocolate
 para mim
 ---
