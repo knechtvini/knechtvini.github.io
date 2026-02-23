@@ -52,7 +52,7 @@ mas eu posso gravar a nossa conversa?
 ---
 2944
 
-weird fishes
+Weird Fishes
 
 peixes estranhos 
 tocando meus ou vidros 
@@ -70,7 +70,7 @@ despedraçada por vermes
 2942
 
 agora vou escrever um poema
-apontado para a direita
+direcionado para a direita
 pegue a primeira esquerda
 ---
 2941
