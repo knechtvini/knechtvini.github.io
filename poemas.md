@@ -16,6 +16,31 @@ Abaixo, você encontra
 de Vinícius Knecht, 
 sempre atualizada. |||
 ---
+2946
+
+você pode me sentir
+se eu enfiar essa palavra
+nas suas estranhas?
+
+não se entregue dessa vez
+deitada nua numa tela
+esperando algu’ele implorar
+
+você me ajudaria a subir essa pedra?
+no final deixo você usá-la 
+na minha cabeça
+
+agora então você pode me sentir?
+já quebrei uma garrafa de plástico
+era solidão
+
+não me diga
+que não há nenhum gosto
+que me salve outra vez
+
+
+Poema inspirado em “Hey You”, de Pink Floyd
+---
 2945
 
 DO PRIMÊRO ENCONTRO
