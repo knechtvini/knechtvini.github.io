@@ -16,6 +16,38 @@ Abaixo, você encontra
 de Vinícius Knecht, 
 sempre atualizada. |||
 ---
+2951
+
+quem sou eu perto de você?
+um apaixonado
+---
+2950
+
+numa disputa 
+entre Paul e John 
+George desempata
+---
+2949
+
+sinceramente não sei 
+por que há tanto artista 
+com medo 
+da inteligência artificial
+especialmente escritores
+ela jamais teria 
+a menor condição
+de pagar por uma Editora
+---
+2948
+
+sempre tive essa imagem
+morrer intoxicado
+com o meu próprio perfume
+---
+2947
+
+Amigalhas
+---
 2946
 
 você pode me sentir
