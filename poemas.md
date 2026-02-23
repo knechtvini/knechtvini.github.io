@@ -34,7 +34,7 @@ CAROLINES
 
 — Está ouvindo?
 — O quê?
-— A minha voz?
+— A minha voz.
 — Sim.
 — Eu não disse nada.
 ---
