@@ -16,6 +16,27 @@ Abaixo, você encontra
 de Vinícius Knecht, 
 sempre atualizada. |||
 ---
+2945
+
+DO PRIMÊRO ENCONTRO
+
+— Então… aqui estamos. 
+Me fala sobre você?
+— Desculpa, 
+mas eu posso gravar a nossa conversa?
+---
+2944
+
+weird fishes
+
+peixes estranhos 
+tocando meus ou vidros 
+quebrando minha te la gosta 
+de javuntude
+no fundo domar 
+na superfície a fuga
+despedraçada por vermes
+---
 2943
 
 — Você pretende ter poemas?
