@@ -16,6 +16,16 @@ Abaixo, você encontra
 de Vinícius Knecht, 
 sempre atualizada. |||
 ---
+2936
+
+CAROLINES
+
+— Está ouvindo?
+— O quê?
+— A minha voz?
+— Sim.
+— Eu não disse nada.
+---
 2935
 
 ficou decepcionada porque escrevi
