@@ -66,7 +66,7 @@ tem gente que vive disso até hoje
 2932
 
 pode gritar comigo
-só não responda poema depois
+só não vem responder poema depois
 ---
 2931
 
