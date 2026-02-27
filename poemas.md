@@ -75,7 +75,7 @@ Poema inspirado em “Hey You”, de Pink Floyd
 ---
 2945
 
-DO PRIMÊRO ENCONTRO
+DO PRIMÊRRO ENCONTRO
 
 — Então… aqui estamos. 
 Me fala sobre você?
