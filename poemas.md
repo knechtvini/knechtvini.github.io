@@ -16,6 +16,118 @@ Abaixo, você encontra
 de Vinícius Knecht, 
 sempre atualizada. |||
 ---
+2957
+
+PUNK ROCK
+
+estou de fones
+punk rock
+enquanto escrevo 
+um poema
+este aqui na verdade
+meu pai fala comigo
+percebo aparentemente
+fala comigo
+alguma coisa que 
+tenho certeza
+me irritaria
+achando que estou ouvindo
+
+PUNK ROCK!!!
+---
+2956
+
+quando a gente começa
+a questionar não 
+só
+a consciência a própria 
+existência
+mas também a tal 
+realidade alternativa
+---
+2955
+
+e eu já coçava os óculos
+como se fossem os olhos
+
+é assim que eu vejo a vida
+---
+2954
+
+bastaria uma borboleta
+de cor viva e rara
+surgir dentro
+do meu apartamento solitário
+para que eu
+entendesse o sinal
+---
+2953
+
+eu me sinto a pessoa mais
+solitária do mundo
+
+e não quero que você sinta
+obrigação de dizer 
+qualquer coisa
+
+muito menos 
+de ter penas
+
+não me sinto vítima de nada
+
+mas agora eu realmente 
+me sinto a pessoa mais 
+solitária do mundo
+
+oficial
+---
+2952
+
+certo dia
+minha velhinha vovó estava 
+em casa
+meus pais também
+
+eu tinha acabado de comprar 
+um violão
+e mostrei pra ela
+com cuidado que hoje reconheço
+como esperança
+decidi tocar e cantar
+uma música!
+
+era a primeira vez na vida
+que ela me veria fazendo 
+algo próximo de música
+
+comecei Beatles
+esperei qualquer coisa
+olhar um gesto um toque
+uma nota
+um mínimo rosto
+
+ela não teve reação nem interesse
+continuou conversando com meu pai
+o filho dela
+como se eu não...
+
+desculpa eu me emociono de lembrar
+como se eu não... estivesse ali...
+
+mas não termina aqui
+
+vamos completar:
+meu pai pediu que eu parasse
+por causa do barulho
+poderia “incomodar os vizinhos
+do prédio”
+
+eles jamais fariam ideia
+do quanto aquilo
+
+ficaria para o sempre
+na minha péssima memória
+---
 2951
 
 quem sou eu perto de você?
