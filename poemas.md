@@ -32,8 +32,6 @@ alguma coisa que
 tenho certeza
 me irritaria
 achando que estou ouvindo
-
-PUNK ROCK!!!
 ---
 2956
 
