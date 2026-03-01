@@ -76,8 +76,6 @@ não me sinto vítima de nada
 mas agora eu realmente 
 me sinto a pessoa mais 
 solitária do mundo
-
-oficial
 ---
 2952
 
