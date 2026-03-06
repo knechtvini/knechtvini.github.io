@@ -24,10 +24,9 @@ vai sonhando…
 ---
 2963
 
-Hitler
-mais uma vítima
-de Hitler
-bem feito
+Hitler foi mais 
+uma vítima de 
+Hitler bem feito
 ---
 2962
 
