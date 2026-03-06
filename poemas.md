@@ -3,22 +3,70 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
-||| Clique em “Sobre”, 
-no canto superior direito.
-Descubra quem é o autor. 
-Acesse os links das obras.
-(Compre ou baixe gratuitamente 
-os livros completos em PDF).
-Conheça também outros 
-trabalhos autorais.
-Abaixo, você encontra 
-(quase) toda a poesia 
-de Vinícius Knecht, 
-sempre atualizada. |||
+2966
+
+poeta não sabe o que é sofrer
+sem ser obrigado
+a escrever um verso
+por causa disso
+---
+2965
+
+eu vou precisar
+de mais de 24 horas
+para este dia
+---
+2964
+
+dormir para sempre?
+agora?
+vai sonhando…
+---
+2963
+
+Hitler
+mais uma vítima
+de Hitler
+bem feito
+---
+2962
+
+ele já foi muito famoso
+por alguns milésimos
+---
+2961
+
+estou pensando
+em escrever 
+um novo livro
+contra a sua história de vida
+---
+2960
+
+eu me recuso a encarar
+essa página em branco
+sozinho
+---
+2959
+
+uma grande amiga
+por quem 
+nunca fui apaixonado
+até hoje
+e que eu também
+não saio por aí procurando
+desesperadamente
+até hoje
+---
+2958
+
+grande escritor brasileiro
+é encontrado 
+por um fã
+numa pizzaria
+em pleno horário de trabalho
 ---
 2957
-
-PUNK ROCK
 
 estou de fones
 punk rock
