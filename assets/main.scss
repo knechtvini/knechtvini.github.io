@@ -12,13 +12,14 @@ body {
   max-width: calc(800px - (30px * 2));
 }
 
-.top-nav {
-  margin: 10px;
-  float: right;
-  text-align: right;
-  font-size: 20px;
+.home-nav {
+  display: flex;
+  flex-direction: column;
+  font-size: 26px;
   a {
     color: black;
+    text-align: center;
+    padding: 5px;
   }
 }
 
@@ -27,13 +28,13 @@ body {
 }
 
 .home-header {
-  margin-top: 180px;
+  margin-top: 8vh;
+  margin-bottom: 8vh;
   font-family: "Selawik";
   display: flex;
   flex-wrap: wrap;
   align-items: center;
   justify-content: center;
-  margin-bottom: 6rem;
   gap: 1rem;
 
   // remove link style
@@ -42,11 +43,11 @@ body {
 
   h1 {
     text-align: center;
-    width: 20rem;
-    font-size: 25px;
+    width: 18rem;
+    font-size: 22px;
     line-height: 30px;
     span {
-      font-size: 1.9rem;
+      font-size: 26px;
     }
   }
 
