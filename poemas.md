@@ -3,6 +3,34 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2971
+
+estamos te dando uma 
+bala de presente
+mas só se você 
+ajudar a trabalhar 
+na fábrica
+entendeu filho
+---
+2970
+
+com todo respeito eu sou 
+um fracassado
+com todo respeito eu já 
+tive um futuro
+---
+2969
+
+Só Destino sabe o que eu vou passar na vida...
+---
+2968
+
+Eu nunca enfrentei a realidade que sonho.
+---
+2967
+
+Nunca enfrentei o amor que amo.
+---
 2966
 
 poeta não sabe o que é sofrer
