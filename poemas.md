@@ -3,6 +3,38 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+primeiro
+
+a autoconfiança de um rockstar...
+eu nunca cantaria
+“and if a double-decker bus
+crashes into us
+to die by your side
+is such a heavenly way to die”
+a autoconfiança de um poeta...
+eu jamais te desejaria um
+jeito divino de sofrer
+eu nunca mais quero parar de escrever
+porque eu não tenho v...
+
+segundo
+
+a poesia é como
+explicar
+uma cor
+preferida
+a poesia é 
+explicar
+uma planta
+carnívora
+e como...
+
+e terceiro
+
+há uma luz
+que nunca
+se acende
+---
 2971
 
 estamos te dando uma 
