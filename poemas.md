@@ -3,6 +3,34 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2973
+
+sofia
+
+poesia de repente não é mais dança
+de repente é um pai agarrado à filha
+de repente é um pai de 31
+homem que sabe chorar
+e uma filha de 11
+que ainda só sabe ser filha
+
+filha não me deixe me entregar
+filha não deixe ela vencer
+filha não deixe esta música
+terminar filha não deixe
+
+pai se eu soubesse naquele momento
+eu jamais teria dito
+que não gostava de dançar pai
+
+poeta o que mais eu poderia fazer?
+
+eu assumo daqui
+esta é a nossa última dança
+ao menos na sua memória
+---
+2972
+
 primeiro
 
 a autoconfiança de um rockstar...
