@@ -5,9 +5,9 @@ layout: default
 ---
 2975
 
-marginal para ser romântico
+marginal pra ser romântico
 invadi jardim de rico
-para garfar algumas flores
+pra garfar algumas flores
 
 caí na Terra durante a ação
 uma calça jeans
