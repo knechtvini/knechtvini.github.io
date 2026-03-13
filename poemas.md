@@ -3,6 +3,30 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2975
+
+marginal para ser romântico
+invadi jardim de rico
+para garfar algumas flores
+
+caí na Terra durante a ação
+uma calça jeans
+é a prova morta disso
+
+dei então as flores para Ela
+Ela debochou de mim
+& me denunciou
+---
+2974
+
+o que esperar de um mundo
+em que nenhum casal 
+mais 
+para um elevador 
+pra se beijar?
+
+a claustrofobia.
+---
 2973
 
 sofia
