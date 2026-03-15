@@ -3,6 +3,39 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2978
+
+você respondeu
+meus maiores sonhos de infância
+você respondeu
+todas as minhas gotas
+você respondeu todas as orações 
+que eu nunca fiz
+você me colocou de volta
+na minha cápsula do tempo
+você criou infinitas intenções
+no nosso curto tempo
+completamente diferente
+de tudo que eu já havia 
+experimentado
+você tem um quê de Edward Hopper
+---
+2977
+
+eu demitiria
+todos 
+os críticos
+que escrevessem 
+sobre você
+---
+2976
+
+há algo muito assombroso
+no nosso futuro
+seremos um supercasal
+e todo supercasal
+acaba tendo seus vilões
+---
 2975
 
 marginal pra ser romântico
