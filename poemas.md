@@ -23,18 +23,22 @@ ROTEIRO:
 
 MILITANTE RAÍZ
 
-— quer uma ajudinha?
-— pode ser. hum…
-— hum… relaxa… ok? está tudo bem?
-— estou um pouco nervoso
-as eleições estão chegando
+— cê quer uma ajudinha?
+— hum... quero
+— só relaxa… ok? tá tudo bem?
+— hum… isso… assim… ok, para
+tô um pouco nervoso
 
-mas acho que a esquerda 
-e a democracia ainda podem 
+as eleições estão chegando
+mas acho que a esquerda
+e a democracia 
+ainda podem
+
 resistir 
+
 e
 
-ops 
+ops
 
 alguém acordou!
 ---
