@@ -3,6 +3,41 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2983
+
+IDEIA DE DATE:
+
+Nos encontrar dentro da 
+página 11
+de A Paixão Segundo G.H.
+de Clarice Lispector
+---
+2982
+
+ROTEIRO:
+
+— Vocês vão casar?
+— No cinema a gente resolve.
+---
+2981
+
+MILITANTE RAÍZ
+
+— quer uma ajudinha?
+— pode ser. hum…
+— hum… relaxa… ok? está tudo bem?
+— estou um pouco nervoso
+as eleições estão chegando
+
+mas acho que a esquerda 
+e a democracia ainda podem 
+resistir 
+e
+
+ops 
+
+alguém acordou!
+---
 2980
 
 a produção não a iluminou
