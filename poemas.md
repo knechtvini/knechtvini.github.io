@@ -3,6 +3,18 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2979
+
+um mundo onde 
+a tristeza
+não existe mais
+um feliz tenta 
+a todo custo
+sofrer
+e não consegue
+isso já seria
+uma tristeza?
+---
 2978
 
 você respondeu
