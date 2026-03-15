@@ -3,6 +3,18 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2980
+
+a produção não a iluminou
+você puxou as atenções para si
+toda a produção a deixou no escuro
+enquanto vocês dois cantavam
+e ainda assim
+ela brilhou mais que você
+e aquele apresentador
+que sequer disse o nome dela?
+vocês são homens de propósito!
+---
 2979
 
 um mundo onde 
