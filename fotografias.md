@@ -17,7 +17,6 @@ photos:
   - url: https://lh3.googleusercontent.com/pw/AP1GczNDIYLGn7DvzF9-LDvR5ZwE07qHZ-QY42h19PQ7UOeRcigw1slvE5kUtDadJtIMQpKa_FKogng0BG0Q5yH794vX7GDSgzJxkbcurQagmaAH7_oR--dN=w2400
   - url: https://lh3.googleusercontent.com/pw/AP1GczOc3xu64d_AbOU_IyFRGIw13TiYdg7XmPaThxgrQynKuoTK78P_PeFf6eXPnkKPv6iXMijgb-27myEGMYr5rA_rp_qLzBeJsTMpJ1RVky-oSiJSD--z=w2400
   - url: https://lh3.googleusercontent.com/pw/AP1GczNb0sFzj_zHSbc8Cke1RNssg0ZWOTorCu7Y4oM2Bwnf_f0Y7btyVMwLZ43ftvdhCyXoMgynzKzFX6LJAJJROMyrAMGcM5n7wDVedlAUqFefxnIzb8Y4=w2400
-  - url: https://lh3.googleusercontent.com/pw/AP1GczP-iYnzgE0mLn4KbEGDDDZmb5_WsyggPfC6H80V4EOsaOGMUsxcZ3tH2YIvcJo2_jSPajXHeSaGS5UE3aIGcfBBOvSmy1HJAoLut9GP8VjH09_YRO8w=w2400
   - url: https://lh3.googleusercontent.com/pw/AP1GczOFkvzkHSkl8Vi0YBYTa6vq2r3nGqCVTuMNHIJkPR7eDwSU6H1RF-5nebg2iQucbrU7aw_6PMXTwlmNIkQuLeO9EOBpVQEvz_jWtuzwVuA6ZMySWEfA=w2400
   - url: https://lh3.googleusercontent.com/pw/AP1GczNkuhQMSKtUfYgECFcGZnGWuXg-LvD80kdE0vUmoQgf6kRQZkp0ZbFvQbytsLp9-C6RC6tfVSMm0d0FETkgFzw_tjPV8_zSK3Xhe_zsmb2nIe1p3qrW=w2400
   - url: https://lh3.googleusercontent.com/pw/AP1GczOfP7nUq4lu21PBku8zrgjRPlxJmtNDO6nbg7oPWUA6kh4KQOryzV-5ggtukYrnLQ9JN2dChH348WNUOl4kTMmUuQUSoA1r1-DAT88XDWUrDyrPa-AW=w2400
