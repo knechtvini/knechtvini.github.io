@@ -3,6 +3,37 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2985
+
+CONTEMPORÂNEO
+
+Mas como não apareci
+no The New York Times
+por ter estampado a capa
+do El País?
+
+Eu nunca
+terei reconhecimento.
+---
+2984
+
+Entre Cecília e a Tunísia
+entre 23:59 e 00:01
+entre a cafeteria e a igreja
+o que aconteceu aqui
+antes desse término
+entre o que eu criei
+e o que você criou
+no fundo o que um escritor quer
+não é ser lido
+no fundo mesmo
+tudo o que um escritor quer
+é nova página em branco
+amor
+Entre Clarice e a Lispector
+entre 23:59 e 00:01
+primeiro o café depois a bênção
+---
 2983
 
 IDEIA DE DATE:
