@@ -3,6 +3,10 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2986
+
+e se eu pudesse ser mulher por um poema?
+---
 2985
 
 CONTEMPORÂNEO
