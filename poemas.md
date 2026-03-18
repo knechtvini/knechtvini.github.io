@@ -3,6 +3,14 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2998
+
+Goodbye, my friend
+I left a key with you
+(“Adeus, amigo
+Eu deixei uma chave 
+com você”)
+---
 2997
 
 — assume que tu deu pra ele.
