@@ -87,7 +87,7 @@ porque se eu vivesse no céu
 2989
 
 — casa comigo.
-— tô exausta e acabei de voltar do trabalho.
+— acabei de voltar do trabalho e tô exausta.
 — eu tô excitado.
 — eu só vou tomar um banho. cinco minutinhos.
 ---
