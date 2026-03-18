@@ -3,6 +3,17 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3000
+
+uma vez inventei 
+a história mais triste do mundo
+num poema
+e a menina por quem 
+eu era apaixonado
+leu
+e interpretou
+“é bom ter essas experiências”
+---
 2999
 
 o que céu ria de mim
