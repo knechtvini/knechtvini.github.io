@@ -3,6 +3,19 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2997
+
+— assume que tu deu pra ele.
+— assume a tua calvície.
+---
+2996
+
+— por que você ainda escreve?
+— oi… hum… porque eu gosto.
+— mas são horríveis.
+— tudo bem. eu gosto.
+— sério. por que você ainda escreve?
+---
 2995
 
 um dos momentos 
