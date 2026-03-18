@@ -3,6 +3,19 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2993
+
+Coração acelerado (taquicardia)
+Falta de ar ou respiração curta
+Tensão muscular
+Sudorese
+Tremores
+Pâmela Guedes, cidade de São Paulo
+Dor no peito
+Problemas gastrointestinais
+Tontura ou sensação de desmaio
+Fadiga constante
+---
 2992
 
 por que me encantam os amores 
