@@ -3,6 +3,15 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2994
+
+uma seringa que 
+transferisse 
+a depressão 
+do papai 
+para o meu sangue
+e poupá-lo
+---
 2993
 
 Coração acelerado (taquicardia)
