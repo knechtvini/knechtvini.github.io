@@ -3,6 +3,11 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3003
+
+— talvez você faça pessoas chorar
+— se for do jeito que elas merecem
+---
 3002
 
 — casa comigo.
