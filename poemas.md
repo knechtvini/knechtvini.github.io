@@ -3,6 +3,19 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2995
+
+um dos momentos 
+em que provei 
+ser super-herói
+foi aos sete anos
+quando ameacei 
+correr até a rua 
+e ser atropelado
+para salvar 
+a lataria do carro 
+do meu tio
+---
 2994
 
 uma seringa que 
