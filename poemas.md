@@ -3,6 +3,11 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2999
+
+o que céu ria de mim
+cem vou ser
+---
 2998
 
 Goodbye, my friend
