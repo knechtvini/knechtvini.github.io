@@ -3,6 +3,31 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2989
+
+— casa comigo.
+— tô exausta e acabei de voltar do trabalho.
+— eu tô excitado.
+— eu só vou tomar um banho. cinco minutinhos.
+---
+2988
+
+Eu vivo 
+numa lembrança
+e acredito 
+que vou existir
+até o último 
+acorde 
+de Hallelujah
+na voz 
+de Jeff Buckley
+---
+2987
+
+o sentido da vida é fazer amor
+todos vivem
+e é para fazer amor
+---
 2986
 
 e se eu pudesse ser mulher por um poema?
