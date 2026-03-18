@@ -3,6 +3,18 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3002
+
+— casa comigo.
+— por que tu mesmo não casa contigo 
+e para de me encher o saco?
+---
+3001
+
+— eu nem merecia todo aquele amor dele.
+— e agora?
+— merecia sim.
+---
 3000
 
 uma vez inventei 
