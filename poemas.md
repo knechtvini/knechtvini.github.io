@@ -5,8 +5,8 @@ layout: default
 ---
 3003
 
-— talvez você faça pessoas chorar
-— se for do jeito que elas merecem
+— talvez você faça pessoas chorar.
+— se for do jeito que elas merecem.
 ---
 3002
 
