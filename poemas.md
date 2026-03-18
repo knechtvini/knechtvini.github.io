@@ -3,6 +3,26 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+2992
+
+por que me encantam os amores 
+que não acontecem
+e eu quero tanto filmar isso
+---
+2991
+
+JUSTIFICATIVA
+
+— quando eu disse que tava bem... você acreditou?
+— não. porque eu também fingi estar bem.
+---
+2990
+
+RETICÊNCIAS
+
+eu vivo no meu mundo
+porque se eu vivesse no céu
+---
 2989
 
 — casa comigo.
