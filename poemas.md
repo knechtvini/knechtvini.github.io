@@ -3,6 +3,65 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3012
+
+solitário é confundido 
+com formiga
+em pleno formigueiro
+---
+3011
+
+querido assassino,
+já vi mortes como esta
+até maiores
+---
+3010
+
+NOSTALGIA
+
+mil vezes mil castelos de areia
+do que um castelo “de verdade”
+---
+3009
+
+se bobear é poesia de novo
+---
+3008
+
+a minha poesia 
+está lendo 
+a minha poesia
+---
+3007
+
+DE MÃOS MEIO QUE DADAS
+
+encontrei o amor 
+da minha vida 
+com o amor 
+da sua vida
+---
+3006
+
+sofro das maneiras mais previsíveis
+---
+3005
+
+CAPITALISMO
+
+cada vez mais me convenço
+de que utopia é conseguir
+comprar um Ray-Ban original
+na praia
+---
+3004
+
+pulei 
+setecentas ondas
+para ver 
+se aguento
+mais um ano
+---
 3003
 
 — talvez você faça pessoas chorar.
