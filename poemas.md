@@ -3,6 +3,21 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3014
+
+eu nunca vou conhecer 
+a Micaela de novo
+estou decidido 
+que o próximo livro será esse
+---
+3013
+
+bateu um desespero
+começou uma carta de despedida
+bateu o desespero de novo
+acabou escrevendo uma autobiografia
+publicou virou best-seller de autoajuda
+---
 3012
 
 solitário é confundido 
