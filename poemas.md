@@ -3,6 +3,12 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3015
+
+qual o problema dele?
+
+seu poema foi muito específico.
+---
 3014
 
 eu nunca vou conhecer 
