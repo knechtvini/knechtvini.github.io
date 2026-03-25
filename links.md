@@ -8,7 +8,7 @@ Você sabia?
 
 Em Amarelando Blue (2025), além das poesias, há também um romance construído no formato de roteiro de cinema. 
 
-A narrativa segue uma ordem cronológica específica, distribuída nas páginas 111, 190, 191, 287, 288, 289 e 290.
+A narrativa segue uma ordem cronológica, distribuída nas páginas 111, 190, 191, 287, 288, 289 e 290.
 
 Obras e trabalhos do autor:
 
