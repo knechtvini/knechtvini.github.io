@@ -3,6 +3,20 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3019
+
+— por que tua cabeça tá toda enfaixada?
+— tô com depressão. tá vendo agora?
+---
+3018
+
+Ela não respondeu a ele no Instagram
+Ele se perguntou “por que comigo?”
+“O que eu fiz para merecer isso?”
+“O que eu fiz para Deus me punir assim?”
+“Eu devo estar pagando por alguma coisa”
+“Eu vou desativar essa merda”
+---
 3017
 
 E NO FINAL...
