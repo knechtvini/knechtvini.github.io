@@ -3,6 +3,14 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3017
+
+E NO FINAL...
+
+Menos de 504 horas para dizer Eu te amo
+Cerca de 1 Eu te amo para 33 anos
+1 término para acabar os 33 anos
+---
 3016
 
 ESPELHO
