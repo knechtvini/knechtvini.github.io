@@ -3,6 +3,10 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+PRETENSÃO SALARIAL
+
+R$ 40.000 a R$ 900
+---
 3020
 
 Temos diversas vagas, analista financeiro,
@@ -24,15 +28,22 @@ Ele se perguntou “por que comigo?”
 “O que eu fiz para merecer isso?”
 “O que eu fiz para Deus me punir assim?”
 “Eu devo estar pagando por alguma coisa”
-“Eu vou desativar essa merda”
+“Eu vou desativar esta merda”
 ---
 3017
 
 E NO FINAL...
 
-Menos de 504 horas para dizer Eu te amo
-Cerca de 1 Eu te amo para 33 anos
-1 término para acabar os 33 anos
+Menos de 504 horas 
+pra dizer Eu te amo
+Você acha muito?
+Cerca de 1 Eu te amo 
+pra 35 anos
+1 Término 
+pra acabar 35 anos
+E você acha pouco?
+
+TUDO É SOBRE AMOR...
 ---
 3016
 
