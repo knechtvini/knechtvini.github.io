@@ -3,6 +3,13 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3022
+
+Está parecendo arte demais para ser realidade.
+Está parecendo realidade demais para ser arte.
+---
+3021
+
 PRETENSÃO SALARIAL
 
 R$ 40.000 a R$ 900
