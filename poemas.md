@@ -3,6 +3,18 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3016
+
+ESPELHO
+
+Eu sou a prova viva de que amor não mata.
+
+Eu sou a prova viva de que amor não morre.
+
+.atam oãn roma euq ed aviv avorp a uos uE
+
+.errom oãn roma euq ed aviv avorp a uos uE
+---
 3015
 
 qual o problema dele?
