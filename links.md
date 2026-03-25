@@ -10,6 +10,12 @@ Em Amarelando Blue (2025), além das poesias, há também um romance construído
 
 A narrativa segue uma ordem cronológica, distribuída nas páginas 111, 190, 191, 287, 288, 289 e 290.
 
+Quer ajudar um pobre artista? Mas, por favor, não caçoe dele. Talvez, para vocês, o trabalho dele pareça tolo, 
+inútil, comum, vulgar. Sim, concordo. Mas é que devem levar em conta que se trata de um indivíduo sem nenhum preparo. 
+De um pobre diabo que nem sequer concluiu o primário. De um pobre infeliz que mal aprendeu a ler e escrever. Enfim,
+
+PIX: 02106848013
+
 Obras e trabalhos do autor:
 
 - [Livro No mínimo rir, no máximo chorar (2019) PDF](https://drive.google.com/drive/folders/1tB9WdHHQNyIbdG1NnoaQFsR1JrfUos7c?usp=drive_link)
