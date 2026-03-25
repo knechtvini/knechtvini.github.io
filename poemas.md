@@ -8,7 +8,7 @@ layout: default
 Temos diversas vagas, analista financeiro,
 motorista de carreta, cozinheiro,
 atendente de farmácia, entre outras
-Salários de r$ 900 a r$ 15.000
+Salários de R$ 900 a R$ 15.000
 Deixa de ser escritor e trabalha
 Mas e daí quem escreveria isso?
 ---
