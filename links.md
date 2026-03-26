@@ -30,4 +30,5 @@ Obras e trabalhos do autor:
 - [Conto Marianna (2026) PDF](https://drive.google.com/drive/folders/1hfYrUaFlGnDxpJgvxvvx1ckTYKDhN_ns?usp=drive_link)
 - [Conto Eu nunca li Machado de Assis (2026) PDF](https://drive.google.com/drive/folders/172fVH73Xx12_SUsrvHYikkzi6Z82BOrq?usp=drive_link)
 - [Pousada da Criança (2026) PDF](https://drive.google.com/drive/folders/1RboXv3EK3u5gn9HuiIPlS0bKuuCkvlZC?usp=sharing)
+- [Conto Pseudologia Fantástica (2026) PDF](https://drive.google.com/file/d/1kIBAbFFRaxuXrin_TIhYCrZrPA5XcrCz/view?usp=drive_link)
 
