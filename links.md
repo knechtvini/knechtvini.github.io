@@ -12,10 +12,10 @@ A narrativa segue uma ordem cronológica, distribuída nas páginas 111, 190, 19
 
 Quer ajudar um artista independente? 
 
-Mas, por favor, não caçoe dele. Talvez, para vocês, o trabalho dele pareça tolo, inútil, comum, vulgar. 
-Sim, concordo. Mas é que devem levar em conta que se trata de um indivíduo sem nenhum preparo. 
-De um pobre diabo que nem sequer concluiu o primário. De um pobre infeliz que mal aprendeu a ler e escrever. 
-Enfim,
+Mas, claro, por favor, não caçoe dele. Talvez, para vocês, o trabalho dele pareça tolo, inútil, comum, 
+vulgar. Sim, concordo. Mas é que devem levar em conta que se trata de um indivíduo sem nenhum preparo. 
+De um pobre diabo que nem sequer concluiu o primário. De um pobre infeliz que mal aprendeu a ler 
+e escrever. Enfim,
 
 PIX: 02106848013
 
