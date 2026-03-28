@@ -10,7 +10,9 @@ Em Amarelando Blue (2025), além das poesias, há também um romance construído
 
 A narrativa segue uma ordem cronológica, distribuída nas páginas 111, 190, 191, 287, 288, 289 e 290.
 
-Quer apoiar um artista independente? PIX: 02106848013
+Quer apoiar um artista independente? 
+
+PIX: 02106848013
 
 Obras e trabalhos do autor:
 
