@@ -46,7 +46,7 @@ enquanto eles
 dançam sozinhos
 sem música 
 e feridos 
-uma mesa de mar
+numa mesa de mar
 ---
 3024
 
