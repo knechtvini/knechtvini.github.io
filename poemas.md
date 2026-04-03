@@ -3,6 +3,61 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3029
+
+já faz mais de 13 bilhões de anos 
+que eu não morro
+---
+3028
+
+eu me esforço 
+para estar 
+na sua história
+assim como
+tanto quanto
+me esforço 
+para estar 
+na minha
+---
+3027
+
+é difícil afundar ou nadar 
+quando se conhece você.
+
+para Marina
+---
+3026
+
+nunca entendi 
+uma palavra 
+do que invento
+mas lá está você 
+em algum lugar 
+deve estar
+você 
+com o sorriso mais original do planeta
+---
+3025
+
+estamos com 
+dificuldade 
+em sofrer
+enquanto eles 
+dançam sozinhos
+sem música 
+e feridos 
+uma mesa de mar
+---
+3024
+
+solidão era único amor que eu conhecia 
+---
+3023
+
+eu costurava passar 
+minhas noites 
+em um mar de bêbados
+---
 3022
 
 Está parecendo arte demais para ser realidade.
