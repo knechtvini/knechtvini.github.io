@@ -3,6 +3,66 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3033
+
+ESTE POEMA NEM EXISTE
+
+ano novo branco
+plantei trevo de quatro folhas
+achei dinheiro na mesma terra
+borboleta pousou em mim
+e sussurrou “é apenas sorte”
+escreve assim
+escrevi este poema 
+para o meu amor
+e no meu caminho acabei.
+
+Continua
+
+passando por debaixo da escadaria 
+do céu.
+---
+3032
+
+você não lê assim
+você está mentindo
+você é bem diferente
+do que está vendo
+tenta entender melhor
+o que não está
+interpretando aqui
+você já leu diferente
+você nunca esteve aqui
+dessa maneira e
+desentendendo-se tanto
+a história não é essa
+tente ler melhor é sério
+eu preciso de ajuda.
+---
+3031
+
+HUMORISTAS
+
+— Eu morri engasgado com o 
+meu antidepressivo.
+— Isso não tem graça, 
+Vinícius.
+---
+3030
+
+quando criança
+sempre apareciam 
+manchas brancas
+nas minhas unhas
+diziam que era 
+sinal de sorte
+agora
+uma dessas manchas voltou
+numa unha minha
+
+e a realidade é que sempre foi
+um pequeno trauma.
+---
 3029
 
 já faz mais de 13 bilhões de anos 
