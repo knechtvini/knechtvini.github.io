@@ -19,7 +19,7 @@ e no meu caminho acabei.
 
 Continua
 
-passando por debaixo da escadaria 
+passando por debaixo da escada
 do céu.
 ---
 3032
