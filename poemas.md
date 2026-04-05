@@ -3,6 +3,18 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3036
+
+Quero poder contar que não me vinguei em vida.
+---
+3035
+
+Simplifico demais para ser profundo
+---
+3034
+
+Você ao vivo ou apenas sobrevive?
+---
 3033
 
 ESTE POEMA NEM EXISTE
