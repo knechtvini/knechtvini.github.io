@@ -3,6 +3,17 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3043
+
+Eu nunca soube falar largarto.
+---
+3042
+
+Quero viver na grande capital 
+no caos
+longe da natureza selvagem
+perto de tudo
+---
 3041
 
 a solidão é a minha balada
