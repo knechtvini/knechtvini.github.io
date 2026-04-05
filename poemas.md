@@ -3,6 +3,16 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3039
+
+não quero que o café faça 
+efeito esta noite quero 
+provar que estou sozinho 
+nessa 
+
+quero o Gael García Bernal
+narrando a minha história
+---
 3038
 
 não quero estar 
