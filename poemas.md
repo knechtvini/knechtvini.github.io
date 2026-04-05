@@ -3,6 +3,10 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3041
+
+a solidão é a minha balada
+---
 3040
 
 digitando...
