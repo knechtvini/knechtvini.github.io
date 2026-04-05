@@ -3,6 +3,15 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3038
+
+não quero estar 
+dentro do meu 
+texto porque os 
+outros apontam 
+erros
+no meu caminho
+---
 3037
 
 eu não sei se sou eu
