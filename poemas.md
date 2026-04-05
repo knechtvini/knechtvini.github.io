@@ -3,6 +3,16 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3044
+
+não me dê a mão 
+por amor
+por segurança 
+ou por confiança
+me dê a mão 
+porque estou
+morrendo de medo
+---
 3043
 
 Eu nunca soube falar largarto.
