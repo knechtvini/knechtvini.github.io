@@ -3,6 +3,16 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3040
+
+digitando...
+digitando...
+digitando...
+
+digitando...
+
+Não.
+---
 3039
 
 não quero que o café faça 
