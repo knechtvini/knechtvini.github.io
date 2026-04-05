@@ -3,6 +3,12 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3037
+
+eu não sei se sou eu
+ou se é você
+não cabe mais em mim...
+---
 3036
 
 Quero poder contar que não me vinguei em vida.
