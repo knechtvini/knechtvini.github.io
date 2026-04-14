@@ -3,6 +3,33 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3061
+
+você vendeu sua solidão
+a preço de custo
+para ficar sozinho sem ela
+---
+3060
+
+Eu nunca conhecerei a dor que me amou.
+---
+3059
+
+provavelmente 
+ninguém 
+vai apreciar sua arte 
+em vida
+aproveite esse momento
+---
+3058
+
+tradução exata 
+para estar sozinho com você
+To be alone with you.
+tradução exata 
+para não te amar
+Not knowing you.
+---
 3057
 
 quando eu voltar 
