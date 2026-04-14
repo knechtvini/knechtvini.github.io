@@ -3,6 +3,19 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3057
+
+quando eu voltar 
+para o inferno
+porque só pode ser de lá que saí
+---
+3056
+
+talvez a banda 
+queira mesmo
+ser mais filmada
+do que vista
+---
 3055
 
 a cura para essa gente é flor
