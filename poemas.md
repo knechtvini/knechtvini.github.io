@@ -3,6 +3,11 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3055
+
+a cura para essa gente é flor
+esta
+---
 3054
 
 vou ser fotógrafo 
