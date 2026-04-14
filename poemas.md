@@ -3,6 +3,21 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3050
+
+ninguém sairá feliz 
+desta história
+ninguém está feliz 
+nesta história
+ninguém foi feliz 
+nesta história
+porque a culpa será toda minha
+---
+3049
+
+mas eu era a criança 
+sob o mosquiteiro dos anos 90
+---
 3048
 
 estou olhando demais 
