@@ -3,6 +3,10 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3063
+
+Eu conhecerei a dor que me amou. 
+---
 3062
 
 é uma pena ele era tão esquisito
