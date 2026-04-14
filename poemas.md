@@ -3,6 +3,55 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3048
+
+estou olhando demais 
+você
+enquanto escrevo
+estou olhando demais 
+amigos 
+e famílias
+enquanto escrevo
+estou olhando demais 
+outros escritores
+enquanto escrevo
+estou olhando demais 
+o passarinho
+enquanto é isso que pesa
+---
+3047
+
+não suporto mais 
+ler o que escrevo
+não suporto mais 
+ser você
+estou apenas repetindo 
+o que já senti por 
+uma pessoa mais 
+menos 
+interessada
+---
+3046
+
+todo mundo 
+começa a estranhar e
+estou a ponto de 
+rejeitar minha poesia
+todo mundo 
+começa a estranhar e
+sempre quis 
+a simplicidade 
+que assusta e
+estou a ponto de 
+rejeitar esta poesia
+---
+3045
+
+quero um emprego
+simples
+em que eu seja 
+melhor e maior do que ele
+---
 3044
 
 não me dê a mão 
