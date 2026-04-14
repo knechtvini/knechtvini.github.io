@@ -3,6 +3,33 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3054
+
+vou ser fotógrafo 
+de inferno
+e ter os documentos 
+para retornar ao meu país 
+de origem
+---
+3053
+
+vou me entregar numa madrugada 
+de domingo
+e um papa morrerá na 
+segunda-feira
+---
+3052
+
+ainda tenho um poema 
+tentando me fazer 
+mudar de ideia
+nunca me ocorreu parar 
+de escrever se dizem que 
+não trabalho 
+escrevo mais mil poemas
+para provar 
+que não me incomodo com isso
+---
 3051
 
 meu amor por ti vai acabar 
