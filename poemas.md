@@ -3,6 +3,17 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3062
+
+é uma pena ele era tão esquisito
+e odiado por todos
+poderia ter tido a chance 
+de se expressar melhor
+se vestir melhor
+fazer algumas cirurgias
+é realmente uma grande perda 
+para os grandes críticos
+---
 3061
 
 você vendeu sua solidão
