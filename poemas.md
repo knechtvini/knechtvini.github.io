@@ -3,6 +3,15 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3051
+
+meu amor por ti vai acabar 
+comigo
+teu amor por ti 
+[uma rima com amado]
+continua a me desamar
+[continue me desamado]
+---
 3050
 
 ninguém sairá feliz 
