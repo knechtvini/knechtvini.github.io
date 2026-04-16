@@ -4,12 +4,6 @@ title: Links
 permalink: /links/
 ---
 
-Você sabia? 
-
-Em Amarelando Blue (2025), além das poesias, há também um romance construído no formato de roteiro de cinema. 
-
-A narrativa segue uma ordem cronológica, distribuída nas páginas 111, 190, 191, 287, 288, 289 e 290.
-
 Quer apoiar um artista independente? 
 
 PIX: 02106848013
@@ -27,3 +21,8 @@ Obras e trabalhos do autor:
 - [Pousada da Criança (2026) PDF](https://drive.google.com/drive/folders/1RboXv3EK3u5gn9HuiIPlS0bKuuCkvlZC?usp=sharing)
 - [Conto Pseudologia Fantástica (2026) PDF](https://drive.google.com/drive/folders/1aI456kPLB7gXkVz7SaTKVmjKedrRfZQ8?usp=drive_link)
 
+Você sabia? 
+
+Em Amarelando Blue (2025), além das poesias, há também um romance construído no formato de roteiro de cinema. 
+
+A narrativa segue uma ordem cronológica, distribuída nas páginas 111, 190, 191, 287, 288, 289 e 290.
