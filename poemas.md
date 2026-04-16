@@ -3,6 +3,30 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3067
+
+banco branco de sujeira
+porque havia palavras nele
+---
+3066
+
+me abasteça
+de dor comum
+e aditivada
+---
+3065
+
+numa autobiografia
+eu seria
+o pior escritor do mundo
+---
+3064
+
+estou escrevendo muito
+e com 39 de febre
+
+acho que é depressão
+---
 3063
 
 Eu conhecerei a dor que me amou. 
