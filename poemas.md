@@ -3,6 +3,21 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3068
+
+em algum lugar nesses olhos 
+um corpo é encontrado 
+acostumado a voltar 
+ao seu devido lugar 
+em algum lugar nesses olhos 
+uma nave se perde em mãos tristes 
+máquinas comunicam 
+um último verso em letras maiúsculas 
+assim como 
+a sua última fala 
+que se afogou 
+em algum lugar nesses olhos
+---
 3067
 
 banco branco de sujeira
