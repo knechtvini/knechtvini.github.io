@@ -20,3 +20,4 @@ Obras e trabalhos do autor:
 Quer apoiar um artista independente? 
 
 PIX: 02106848013
+Vinícius Knecht
