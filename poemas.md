@@ -3,6 +3,14 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3072
+
+EXPERIÊNCIA
+
+velho demais
+para errar isso
+de primeira
+---
 3071
 
 a marca já não importa
