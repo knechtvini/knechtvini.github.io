@@ -3,6 +3,13 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3071
+
+a marca já não importa
+só a durabilidade 
+
+— amores.
+---
 3070
 
 sem tempo de viver a coisa
