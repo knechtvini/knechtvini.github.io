@@ -16,7 +16,7 @@ de primeira
 a marca já não importa
 só a durabilidade 
 
-— amores.
+— amor   es.
 ---
 3070
 
