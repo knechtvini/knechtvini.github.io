@@ -3,6 +3,12 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3070
+
+sem tempo de viver a coisa
+não porque é impossível
+mas porque é específica demais
+---
 3069
 
 PERSONAGEM
