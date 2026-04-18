@@ -3,6 +3,22 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3069
+
+PERSONAGEM
+
+Por que vencer o amor
+não parece Vitória?
+Por que vencer outro amor
+não parece Vitória?
+Por que vencer a saudade
+não parece Vitória?
+Por que vencer a solidão
+não parece Vitória?
+Por que imobilizar alguém
+numa luta ainda assim
+não parece vitória?
+---
 3068
 
 em algum lugar nesses olhos 
