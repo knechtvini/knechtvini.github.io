@@ -3,6 +3,39 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+hoje
+é mais fácil sofrer um carrinho 
+do que receber um carinho
+
+---
+3077
+
+sobreviver com salário mínimo
+e ainda assim consumir arte
+ele mora numa cidade grande
+então fala com propriedade
+---
+3076
+
+sair sem rumo custa ônibus
+---
+3075
+
+então
+sempre foi fácil assim
+e eu só não tentava
+
+aquele questionamento 
+típico de psicólogo
+---
+3074
+
+por que você não acalma
+meu cachorro
+enquanto eu cuido dos negócios
+---
+3073
+
 PSEUDOLOGIA & ESTÓRIAS
 Quarto livro. 2026.
 
