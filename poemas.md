@@ -3,6 +3,23 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+PSEUDOLOGIA & ESTÓRIAS
+Quarto livro. 2026.
+
+SINOPSE
+
+vai completar mais de três semanas 
+que ninguém 
+nenhuma pessoa da família 
+ninguém 
+nenhum amigo 
+ninguém 
+nenhum conhecido 
+ninguém me manda 
+qualquer mensagem
+estou começando a me preocupar
+será que todos eles estão bem?
+---
 3072
 
 EXPERIÊNCIA
