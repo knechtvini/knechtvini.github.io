@@ -3,10 +3,11 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3078
+
 hoje
 é mais fácil sofrer um carrinho 
 do que receber um carinho
-
 ---
 3077
 
