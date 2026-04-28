@@ -3,6 +3,12 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3080
+
+na cama 
+como se estivesse doente
+como se não estivesse
+---
 3079
 
 não estou escrevendo melhor
