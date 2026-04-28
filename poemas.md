@@ -3,6 +3,11 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3081
+
+como você define a sua escrita?
+a economia funciona bem aqui
+---
 3080
 
 na cama 
