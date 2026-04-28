@@ -3,6 +3,11 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3079
+
+não estou escrevendo melhor
+me sinto mais criativo
+---
 3078
 
 hoje
