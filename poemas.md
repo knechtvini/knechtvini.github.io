@@ -21,16 +21,15 @@ me sinto mais criativo
 ---
 3078
 
-hoje
-é mais fácil sofrer um carrinho 
+mais fácil sofrer um carrinho 
 do que receber um carinho
 ---
 3077
 
 sobreviver com salário mínimo
-e ainda assim consumir arte
+ainda assim consumir arte
 ele mora numa cidade grande
-então fala com propriedade
+então ele fala com propriedade
 ---
 3076
 
@@ -38,12 +37,10 @@ sair sem rumo custa ônibus
 ---
 3075
 
-então
-sempre foi fácil assim
+então sempre foi fácil assim
 e eu só não tentava
-
-aquele questionamento 
-típico de psicólogo
+aquele questionamento típico 
+de psicólogo
 ---
 3074
 
