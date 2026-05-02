@@ -3,6 +3,21 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3083
+
+hoje aconteceu algo realmente novo
+tive vontade de chorar
+dentro de um sonho
+---
+3082
+
+hoje aconteceu algo realmente novo
+venci um prêmio literário
+e chorei
+dentro de um sonho
+
+e assim começa o meu livro
+---
 3081
 
 como você define a sua escrita?
