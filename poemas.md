@@ -3,6 +3,12 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3086
+
+cada vez mais mais pessoas se ofendem 
+com mais facilidade
+— o que tu quis dizer com isso?
+---
 3085
 
 qual é a principal história da tua vida?
