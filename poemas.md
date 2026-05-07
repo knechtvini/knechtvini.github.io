@@ -3,6 +3,15 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3085
+
+qual é a principal história da tua vida?
+---
+3084
+
+estou muito curioso para saber 
+o que vou escrever agora
+---
 3083
 
 hoje aconteceu algo realmente novo
