@@ -3,6 +3,22 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+SINOPSE 
+VINÍCIUS KNECHT NÃO É LITERATURA (2026)
+
+vai completar mais de três semanas
+ou bem mais
+que ninguém
+nenhuma pessoa
+da família
+nenhum amigo
+nenhum conhecido
+ninguém
+me manda qualquer mensagem
+estou começando
+a me preocupar
+será que todos eles estão bem?
+---
 3086
 
 cada vez mais mais pessoas se ofendem 
@@ -80,22 +96,8 @@ enquanto eu cuido dos negócios
 ---
 3073
 
-PSEUDOLOGIA & ESTÓRIAS
-Quarto livro. 2026.
-
-SINOPSE
-
-vai completar mais de três semanas 
-que ninguém 
-nenhuma pessoa da família 
-ninguém 
-nenhum amigo 
-ninguém 
-nenhum conhecido 
-ninguém me manda 
-qualquer mensagem
-estou começando a me preocupar
-será que todos eles estão bem?
+quer saber
+você me deu vontade de ler
 ---
 3072
 
