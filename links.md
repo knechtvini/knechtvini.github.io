@@ -16,6 +16,7 @@ Obras e trabalhos do autor:
 - [Conto Eu nunca li Machado de Assis (2026) PDF](https://drive.google.com/drive/folders/172fVH73Xx12_SUsrvHYikkzi6Z82BOrq?usp=drive_link)
 - [Pousada da Criança (2026) PDF](https://drive.google.com/drive/folders/1RboXv3EK3u5gn9HuiIPlS0bKuuCkvlZC?usp=sharing)
 - [Conto Pseudologia Fantástica (2026) PDF](https://drive.google.com/drive/folders/1aI456kPLB7gXkVz7SaTKVmjKedrRfZQ8?usp=drive_link)
+- [Vinícius Knecht não é literatura (2026)]
 
 Quer apoiar um artista independente? 
 
