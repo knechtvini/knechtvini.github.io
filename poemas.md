@@ -19,6 +19,99 @@ estou começando
 a me preocupar
 será que todos eles estão bem?
 ---
+3112
+
+discordo que 
+a violência 
+nunca vai acabar
+acredito que 
+um dia 
+todos serão 
+assassinados 
+e mortos
+---
+3111
+
+eu vou fazer 
+uma coisa 
+mas eu preciso 
+estar sozinho 
+em casa
+---
+3110
+
+sou homem porque 
+carrego muito 
+peso
+---
+3109
+
+ser odiado 
+de propósito 
+para que 
+me deixem em paz
+---
+3108
+
+após 900 páginas 
+do seu livro
+descobre que 
+não tem conteúdo 
+o suficiente
+---
+3107
+
+Bukowski como se fosse Shakespeare
+Shakespeare como se fosse Bukowski
+---
+3106
+
+corretor automático 
+corrigindo “Knecht”
+---
+3105
+
+mandou mude sem eu pedir
+---
+3104
+
+eu não quero 
+ter que me importar 
+com o seu elogio
+nem depender 
+da sua ofensa
+---
+3103
+
+infelizmente
+a minha imaginação 
+ainda não consegue
+me levar 
+até os destroços 
+do Titanic
+---
+3102
+
+roupa ficou 
+dia todo
+de 30 graus
+lá fora
+e não secou
+é assim que eu vejo a vida
+---
+3101
+
+vai ter medo de folha em branco 
+com essa idade?
+---
+3100
+
+sensação de que 
+tinha 
+rascunho pronto 
+ontem
+e ele sumiu
+---
 3099
 
 cada vez mais mais pessoas se ofendem 
