@@ -29,6 +29,117 @@ com mais facilidade
 
 qual é a principal história da tua vida?
 ---
+uma casa tão bonita
+e um jardim tão bonito
+sem nenhum susto
+e nenhuma surpresa
+tire-me daqui
+por um minuto lá
+eu me perdi
+você sabe onde você está
+chão desmoronando
+desabando, quicando
+e um dia eu vou criar asas
+uma reação química
+você sabe onde você está
+histérico e inútil
+tire-me daqui
+e você pode rir
+uma risada preguiçosa
+esperamos que suas regras
+e sabedoria
+o engasguem
+agora somos um só
+na paz eterna
+esperamos que você se engasgue
+que você se engasgue
+eu me perdi
+sem nenhum susto
+e nenhuma surpresa
+
+Adaptação de No Surprises / Karma Police 
+/ Let Down / Exit Music (For A Film) 
+de Radiohead
+---
+cadáver que veste Armani
+---
+assalto em um Banksy
+---
+interpretar sonhos 
+só que 
+em outra língua 
+que 
+desconheço
+---
+desapegar de tudo e 
+ir morar no mato
+mas a primeira coisa 
+da qual me desapego 
+é a mala
+---
+morar no ato
+---
+cinco mesas conversando 
+ao mesmo tempo
+casais grupos mulheres no celular
+vou até cada uma dessas
+perguntar o que estão falando
+exatamente 
+naquele momento
+digo que é para o meu livro
+todos concordam em participar
+alguém da cafeteria percebe
+e pede 
+para que eu me retire
+é assim que eu vejo a vida
+---
+um famoso 
+da sua cidade
+um famoso 
+do seu estado
+um famoso 
+do seu país
+e um famoso 
+conhecido no mundo inteiro
+se encontram em um bar
+---
+um lugar famoso 
+da sua cidade
+um lugar famoso 
+do seu estado
+um lugar famoso 
+do seu país
+e um lugar 
+conhecido no mundo inteiro
+se encontram pela primeira vez
+em um livro 
+em uma história
+---
+eu quero terminar o meu ia assim
+---
+a ideia de estar 
+se despedindo
+com todo o amor
+carinho
+das pessoas 
+que você ama
+sabendo que 
+são seus 
+últimos dias
+enquanto elas te tratam mal
+---
+joguei pedrinhas 
+na sua janela
+aqui do lado 
+de fora
+acabei quebrando 
+o vidro
+da janela 
+dos seus pais
+eu te amo muito
+---
+quais as maiores críticas da história?
+---
 3084
 
 estou muito curioso para saber 
