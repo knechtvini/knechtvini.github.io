@@ -19,16 +19,18 @@ estou começando
 a me preocupar
 será que todos eles estão bem?
 ---
-3086
+3099
 
 cada vez mais mais pessoas se ofendem 
 com mais facilidade
 — o que tu quis dizer com isso?
 ---
-3085
+3098
 
 qual é a principal história da tua vida?
 ---
+3097
+
 uma casa tão bonita
 e um jardim tão bonito
 sem nenhum susto
@@ -61,24 +63,36 @@ Adaptação de No Surprises / Karma Police
 / Let Down / Exit Music (For A Film) 
 de Radiohead
 ---
+3096
+
 cadáver que veste Armani
 ---
+3095
+
 assalto em um Banksy
 ---
+3094
+
 interpretar sonhos 
 só que 
 em outra língua 
 que 
 desconheço
 ---
+3093
+
 desapegar de tudo e 
 ir morar no mato
 mas a primeira coisa 
 da qual me desapego 
 é a mala
 ---
+3092
+
 morar no ato
 ---
+3091
+
 cinco mesas conversando 
 ao mesmo tempo
 casais grupos mulheres no celular
@@ -93,6 +107,8 @@ e pede
 para que eu me retire
 é assim que eu vejo a vida
 ---
+3090
+
 um famoso 
 da sua cidade
 um famoso 
@@ -103,6 +119,8 @@ e um famoso
 conhecido no mundo inteiro
 se encontram em um bar
 ---
+3089
+
 um lugar famoso 
 da sua cidade
 um lugar famoso 
@@ -115,8 +133,12 @@ se encontram pela primeira vez
 em um livro 
 em uma história
 ---
+3088
+
 eu quero terminar o meu ia assim
 ---
+3087
+
 a ideia de estar 
 se despedindo
 com todo o amor
@@ -128,6 +150,8 @@ são seus
 últimos dias
 enquanto elas te tratam mal
 ---
+3086
+
 joguei pedrinhas 
 na sua janela
 aqui do lado 
@@ -138,6 +162,8 @@ da janela
 dos seus pais
 eu te amo muito
 ---
+3085
+
 quais as maiores críticas da história?
 ---
 3084
