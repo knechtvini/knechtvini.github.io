@@ -4,7 +4,7 @@ layout: default
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
 SINOPSE 
-VINÍCIUS KNECHT NÃO É LITERATURA (2026)
+VINÍCIUS K. NÃO É LITERATURA (2026)
 
 vai completar mais de três semanas
 ou bem mais
