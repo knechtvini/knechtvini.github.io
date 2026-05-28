@@ -19,6 +19,23 @@ estou começando
 a me preocupar
 será que todos eles estão bem?
 ---
+3115
+
+o ovo
+se cair na frigideira
+tá frito
+---
+3114
+
+tatuagens elogiadas por 
+estranhos necessários
+---
+3113
+
+não é só medo da morte
+porque
+a morte nunca é só uma
+---
 3112
 
 discordo que 
@@ -28,6 +45,7 @@ acredito que
 um dia 
 todos serão 
 assassinados 
+
 e mortos
 ---
 3111
