@@ -19,6 +19,8 @@ estou começando
 a me preocupar
 será que todos eles estão bem?
 ---
+3123
+
 chego nervoso saio ansioso 
 fico na tua casa 
 mais uma noite
