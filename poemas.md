@@ -19,6 +19,55 @@ estou começando
 a me preocupar
 será que todos eles estão bem?
 ---
+chego nervoso saio ansioso 
+fico na tua casa 
+mais uma noite
+---
+3122
+
+Thom Yorke se apresenta no seu funeral
+---
+3121
+
+sorrir até 
+perder peso 
+só 
+com o sorriso
+---
+3120
+
+R$ VINÍCIUS KNECHT
+---
+3119
+
+risão em fragrância
+---
+3118
+
+acho que eu soube que 
+era poeta
+me certifiquei
+no dia em que
+na Praça da Alfândega 
+em Porto Alegre
+minha miopia 
+me 
+fez 
+ver
+num livro 
+uma arma
+não estou inventando nada
+ainda pensei
+“por que alguém colocaria 
+uma arma apontada
+para outro em um monumento 
+em plena
+praça pública?”
+tratava-se Carlos Drummond de Andrade 
+em pé 
+e Mario Quintana 
+sentado
+---
 3117
 
 tiveram o encontro perfeito
