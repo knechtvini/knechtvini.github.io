@@ -19,6 +19,21 @@ estou começando
 a me preocupar
 será que todos eles estão bem?
 ---
+3125
+
+quero esquecer o cheiro do café
+e o teu corpo
+quero esquecer a cor do céu
+e o teu corpo
+quero esquecer o horário das 23h
+e o teu corpo
+não quero acordar cedo amanhã
+quero o teu corpo
+quero o teu corpo
+e beber café na madrugada
+como se houvesse mesmo
+o amanhã
+---
 3124
 
 “é muita falta de ambição”
