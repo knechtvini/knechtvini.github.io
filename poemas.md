@@ -19,6 +19,26 @@ estou começando
 a me preocupar
 será que todos eles estão bem?
 ---
+3117
+
+tiveram o encontro perfeito
+mas encontro de vitrine
+aquilo poderia caber
+em outras pessoas
+sentir aquilo
+com outros corpos
+bonito enquanto exposto
+dispensável depois
+qualquer outro endereço
+até mesmo
+no mesmo apartamento
+---
+3116
+
+BOLETO
+
+A sua fratura chegou!
+---
 3115
 
 o ovo
