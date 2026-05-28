@@ -19,6 +19,16 @@ estou começando
 a me preocupar
 será que todos eles estão bem?
 ---
+3124
+
+“é muita falta de ambição”
+ela disse
+aquilo me ofendeu
+de um jeito...
+de um jeito que
+que eu fiquei rico
+tentando explicar aquilo
+---
 3123
 
 chego nervoso saio ansioso 
