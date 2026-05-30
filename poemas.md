@@ -19,6 +19,61 @@ estou começando
 a me preocupar
 será que todos eles estão bem?
 ---
+3132
+
+eu estou compondo 
+um disco dos Beatles
+
+pelo menos é o que eu posso 
+sentir agora
+
+veja bem esta faixa
+---
+3131
+
+qual a média de desrespeito 
+que você sofre por dia?
+---
+3130
+
+prestes a vivenciar aquilo
+eu vou me lembrar desse quarto
+
+mas principalmente dessa vista
+---
+3129
+
+detesto a maneira como muitos dos sinais
+que ela estava enviando
+eram imediatamente reconhecíveis para mim
+---
+3128
+
+eu gostaria que esta fosse a única prova 
+de que um dia existimos
+
+algo que só eu poderia criar
+uma bela maneira de chorar
+
+olhe o que está escrito no céu agora
+eu fiz para você
+
+você é o meu final preferido 
+e com certeza eu vou criar asas
+você sabe disso
+---
+3127
+
+eu esqueci de ser gentil comigo
+
+sem saber que era a última vez que eu poderia ser
+---
+3126
+
+porque não é só medo da morte
+
+porque a morte nunca é só uma
+---
 3125
 
 quero esquecer o cheiro do café
