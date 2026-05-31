@@ -3,8 +3,7 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
-SINOPSE 
-VINÍCIUS K. NÃO É LITERATURA (2026)
+3134
 
 vai completar mais de três semanas
 ou bem mais
