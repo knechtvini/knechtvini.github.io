@@ -3,6 +3,14 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3135
+
+se parar pra pensar
+
+a gente sempre decide
+quais serão 
+nossas últimas palavras
+---
 3134
 
 vai completar mais de três semanas
