@@ -3,7 +3,7 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
-3135
+3133
 
 se parar pra pensar
 
@@ -11,7 +11,7 @@ a gente sempre decide
 quais serão 
 nossas últimas palavras
 ---
-3134
+3132
 
 vai completar mais de três semanas
 ou bem mais
@@ -25,19 +25,6 @@ me manda qualquer mensagem
 estou começando
 a me preocupar
 será que todos eles estão bem?
----
-3133
-
-adolescentes cortando os impulsos 
-avó preparando o chá
-
-preciso salvar esta página
-
-a gente se prepara a vida toda 
-para ela
-
-com certeza eu vou criar asas
-você sabe que eu vou
 ---
 3132
 
@@ -203,9 +190,16 @@ estranhos necessários
 ---
 3113
 
-não é só medo da morte
-porque
-a morte nunca é só uma
+adolescentes cortando os impulsos 
+avó preparando o chá
+
+preciso salvar esta página
+
+a gente se prepara a vida toda 
+para ela
+
+com certeza eu vou criar asas
+você sabe que eu vou
 ---
 3112
 
