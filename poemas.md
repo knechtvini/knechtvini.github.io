@@ -3,6 +3,49 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3149
+
+encontrei esta carta
+ao lado do corpo dele
+é uma carta de despedida
+repare bem
+nesses erros de português
+não acredito que ele tenha feito isso
+---
+3148
+
+tentando a sorte
+de sair de casa 
+para a escola
+no mesmo horário
+em que as meninas 
+estão indo
+---
+3147
+
+até hoje falam 
+cochichando
+como se eu não 
+ouvisse
+e eu fico 
+quieto
+como se não ouvisse
+---
+3146
+
+eu sou muito famoso naquele porão
+---
+3145
+
+quando quebrei o braço direito 
+na escola
+inventaram que eu 
+o tinha quebrado
+por pegar um livro 
+muito pesado
+na biblioteca da escola
+hoje eu faço poesia com isso aí
+---
 3144
 
 “a guerra mais sangrenta da América deles”
