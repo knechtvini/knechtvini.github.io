@@ -3,6 +3,34 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3140
+
+— eu tenho FOMO mãe
+---
+3139
+
+não ter nada a dizer 
+e em seguida dizer algo maravilhoso
+eu trocaria de lugar com você agora
+---
+3138
+
+quem explica poesia é muito covarde
+---
+3137
+
+preciso te namorar de novo 
+dessa vez com caneta e papel
+---
+3136
+
+o que aconteceria se um papa 
+se suicidasse?
+---
+3135
+
+“temo vagas”
+---
 3134
 
 se parar pra pensar
