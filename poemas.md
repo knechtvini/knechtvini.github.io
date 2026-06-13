@@ -3,6 +3,41 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3144
+
+“a guerra mais sangrenta da América deles”
+---
+3143
+
+é tão 
+comovente 
+ver 
+a pessoa 
+sendo 
+humana
+se coçando 
+com o cabelo 
+desarrumado 
+dizendo não 
+saber 
+das coisas
+---
+3142
+
+se ao menos eu pudesse ser mais
+se ao menos eu tivesse potencial
+para perceber um potencial
+---
+3141
+
+a avó fala da neta criança
+a criança entrega
+tudo o que a avó omite
+coisas simples do tipo
+“agora ela estuda em outra escola
+porque é mais perto”
+“porque o pai achou muito caro lá”
+---
 3140
 
 — eu tenho FOMO mãe
