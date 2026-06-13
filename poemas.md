@@ -3,6 +3,31 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3153
+
+Será que vale a pena começar um
+---
+3152
+
+acordei todos os dias nesta semana
+---
+3151
+
+— você leu as regras?
+— eu li que é preciso seguir
+---
+3150
+
+— ok acho que podemos começar pela 
+pergunta mais importante
+— certo
+— aceita uma água?
+— aceito claro
+— ok então começamos pela pergunta mais importante
+e você aceitou a água
+— ok acho que não entendi
+— a água que você bebeu estava envenenada
+---
 3149
 
 encontrei esta carta
