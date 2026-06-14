@@ -5,7 +5,7 @@ layout: default
 ---
 3153
 
-Será que vale a pena começar um
+Será que ainda vale a pena começar um
 ---
 3152
 
