@@ -3,6 +3,55 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3159
+
+sabe o que é mais cruel 
+na vida de um deprimido?
+é o sentimento de ter que 
+provar para alguém
+que está sofrendo
+
+e o quanto está sofrendo
+
+“sei que pode parecer que não estou 
+passando por muita coisa 
+mas estou sim”
+---
+3158
+
+eu não vou escrever difícil porque 
+senão eu nunca vou entender
+---
+3157
+
+quem explica poesia é muito covarde
+---
+3156
+
+— me permite corrigir a sua obra de arte? 
+licencinha na verdade aqui 
+
+você quis dizer que
+
+e deveria ter escrito que
+---
+3155
+
+detesto a maneira como 
+muitos dos sinais
+que ela estava enviando eram 
+imediotamente 
+reconhecíveis para mim
+---
+3154
+
+é tão comovento ver a pessoa 
+sendo humana
+se coçando com o ca belo 
+desarrumado
+
+dizendo não saber das coisas
+---
 3153
 
 Será que ainda vale a pena começar um
@@ -48,13 +97,11 @@ estão indo
 ---
 3147
 
-até hoje falam 
-cochichando
-como se eu não 
-ouvisse
-e eu fico 
-quieto
-como se não ouvisse
+até hoje falam cochichando 
+como se eu não ouvisse
+e eu fico quieto 
+duvidando do que ouvi
+
 ---
 3146
 
