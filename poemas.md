@@ -3,6 +3,44 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3160
+
+há um sonho em uma criança em que os pais 
+adotam um macaquinho
+primeiro o macaco é como um inseto de papel
+tão pequeno que se perde num gramado
+mas ele cresce e logo está na casa da família
+onde a criança brinca com esse macaquinho 
+já adulto
+ele senta no ombro dela como se fosse 
+um pássaro
+a criança acorda desse sonho e está confusa porque
+percebe que não existe nenhum macaco 
+na sua casa
+a mãe que está na cozinha preparando 
+o almoço explica
+filha isso foi apenas um sonho
+mas a filha pede pelo macaco pergunta 
+onde ele está agora
+para onde aquele macaco que antes brincava 
+com ela foi
+e antes mesmo de ouvir a resposta já começa 
+a chorar
+dizendo que sente saudade do macaquinho
+a mãe diz que o macaco não existe
+a filha esquece aquilo porque está assistindo 
+Cidade dos Sonhos do Lynch na televisão
+a mãe está no caminho para o trabalho 
+e o ônibus para numa faixa de pedestres
+uma mulher para no meio da faixa e acende 
+um fósforo na própria cabeça
+a mulher se incendeia e continua atravessando 
+a rua em chamas
+logo em seguida vira cinza no asfalto
+e atrás dela atravessa um macaco 
+que entra em alguma das lojas
+a mãe vê tudo mas apenas pela janela
+---
 3159
 
 sabe o que é mais cruel 
