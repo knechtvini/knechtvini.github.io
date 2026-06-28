@@ -3,6 +3,29 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3161
+
+diziam que a avó guardava uma foto 
+do seu falecido numa gaveta
+e que por isso havia um fantasma 
+no quarto
+na verdade ele não lembra se 
+diziam isso ou se ele imaginou tudo
+uma foto de um morto na gaveta 
+do último quarto
+ele ia até lá porque queria solucionar 
+aquilo e não ver o fantasma
+abria o armário que ocupava toda 
+uma das paredes
+abria o armário porque dava medo 
+e porque não queria ver o fantasma
+todas as cobertas travesseiros lençóis 
+e roupas lhe davam muito medo
+ele nunca encontrou a foto em nenhuma 
+gaveta ele sente muita saudade da avó 
+que não responde mais desde que 
+ele faleceu
+---
 3160
 
 há um sonho em uma criança em que os pais 
