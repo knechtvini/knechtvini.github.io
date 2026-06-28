@@ -5,6 +5,16 @@ permalink: /fotografias/
 photos: 
   - url: https://lh3.googleusercontent.com/pw/AP1GczMohv6Y3zdxcCreDjBODwuPlNpb5dnz0XTsfFkPiWBN_QjEa0hEWFJqJA4J7hTIHtPvdkgEVUfEuy2W4BmD1iaib4pKqFJnWG2QRXZNg9Ipo2640gJz=w2400
   - url: https://lh3.googleusercontent.com/pw/AP1GczNaVnxNgoFaASVQ0rLbvw1oryWW4Z4aZapfx-uFEOLMx2f1N4E8CBEgha9hwtKvrhjFr5TJ090KgxF_Ar0TXEJ3CRkuZKIclBb_wGF-_L3b16PE_sDt=w2400
+  - url:https://lh3.googleusercontent.com/pw/AP1GczMcgdB_cfQdDNj_ZkapTsV9t_DBsKX9uFwuOZJ0DQ6m5e1UM_fRQj8DBEj7zgc1hpdsOb6I_puVxTBY5SmZDzAPi7WbqBUQXmjcejxh1zU7Fi3bb8Y6=w2400
+  - url: https://lh3.googleusercontent.com/pw/AP1GczO6tCRjiK1nyRYoXJZGiM4TpbpZ2T1SD0z7IUSqPCBGXVYrlEkEvoz-3_jehGnfiIOpoL4lq3cbCheaDdbr825ub_xngX1ambDMBT6X-ewkTWeB19XW=w2400
+  - url: https://lh3.googleusercontent.com/pw/AP1GczNWoqsvkEIxzg6BnEa4yNcL4-NyR9WifgnxbeA6hKf8sKHCgaiLnHpLqzL6HyUHk6koXMx_JZxKHgKsn9bG7enxCq31DezcG_q86XkOdzUJC6cKemMN=w2400
+  - url: https://lh3.googleusercontent.com/pw/AP1GczOpUN7zYHqdy2_9GtMoXdAfRGILPlY6W-Ige8o-pSw-c_FsDiLI4NQ4FzvtROf_5vHSA6RtfO-8FuuZMhWbI5YavsWbVWPme3oWF2Vn3ZLxNkRGGn1c=w2400
+  - url: https://lh3.googleusercontent.com/pw/AP1GczMLfECAYhxhLvSexu4cJpN1h5lOje2Q6og_oZJ1vZyqHXJR-EeISpFPqajs4PRNWGitGcvRiuFs0tbMUpzaz60vWsuOOPIZi535E_KpeWRDQn6dRG25=w2400
+  - url: https://lh3.googleusercontent.com/pw/AP1GczMNhVWqAfr47Hva-0ynr-yvfRnnfYc3QdaGLdvznu2hJTHulJCydFczZ3BpErff13QYk9WLH8W9OTT1vlfdCXfAGgAH7vyZtBYGHCh01VoGHj3rI_0l=w2400
+  - url: https://lh3.googleusercontent.com/pw/AP1GczONOxowIeowpio32tL1tcbqUrSzIgD2MLB6s1tQRjzji_as_487QjxFjaCaYsnQjjEHPPux8tFqe6WnfDTMheuwyMB5NwZ0P9eu-sB8s_AlgbOEij9W=w2400
+  - url: https://lh3.googleusercontent.com/pw/AP1GczPgXIsyQzkqXH3KTPMXYB--MZalfAwX3EdXx-0okgviaTxH8xJZjtuWyHHsRFqtSgwBS9ycBPVFGl7teXKlNy2Q1gRtGc62t_2kaMidUYvmmSmbjp9d=w2400
+  - url: https://lh3.googleusercontent.com/pw/AP1GczM2PkdbZNlp_MK_IhNR6wGr8b0_SksvFSRY4dG3uJKMP3qwLe6ikY26RFacw5U0djDMd0G8bhy6mz1cBm2QPWu_Peq9Ij1Sobh3j7z-w52j16Dmq3wE=w2400
+  - url: https://lh3.googleusercontent.com/pw/AP1GczMDk6S96soDERfa7PY4UmZLDOkOm4QAY3YJwjmbCkmwRjEKF-e0QfWzVpUgPHCiDsLG2sXuFJg2b2g1122hDvzi3bzRc1BiCwfdIKT0YCMt8NeocJyD=w2400
   - url: https://lh3.googleusercontent.com/pw/AP1GczNWiMzJliK7vAnH75SvurRlAoUcXH9unCKkeoHQ72fdXokwu9svkyGpYsxfQ4fq9-9ZNcJvPnl5fK7NjLtHahy9WMa1CcuZWqwLBsemkA9B7Q8qK7oC=w2400
   - url: https://lh3.googleusercontent.com/pw/AP1GczNuZ67yLV33za3rwLOfJbHOuYe4eNRWjn_SdW9nVW165dchl5xOaiQm6TMQd6P7BLbdQfELOGVA_W_DU8wp00r8ElDak9TcPCsXb5BGXhgz58yu-O5-=w2400
   - url: https://lh3.googleusercontent.com/pw/AP1GczNCG3Zi78vnBdIBHXWYdJUroGIzcPufqBKl09AxOg8n9ycjteY069YG3T5_XBZkABfW3Yd5BnT01ZCrhNVBxSqPi76VsS-NiuL6117AvgIypthg7_hG=w2400
