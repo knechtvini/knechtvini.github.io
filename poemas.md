@@ -3,6 +3,68 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3166
+
+se a minha arte exige que eu morra
+quem vai terminar a obra?
+---
+3165
+
+se você reler o meu livro 
+eu já estarei escrevendo sobre você
+---
+3164
+
+quando eu acho que mim
+você acha que mão
+---
+3163
+
+a vida 
+é uma
+lágrima 
+es
+cor
+ren
+do 
+a
+té 
+as 
+
+p
+
+
+artes 
+
+
+
+ínti
+
+
+
+
+
+mas
+---
+3162
+
+consigo ver a dor 
+nos olhos dele droga
+um vídeo gravado 
+e não cena dramática
+constrangimento impedindo 
+contato visual espasmos 
+mãos mexendo dedos 
+irrupção gradual 
+nas lágrimas
+não choro histérico 
+de produções de Hollywood
+
+vítima de Ser próprio 
+personagem
+
+nem todos os livros usam capas
+---
 3161
 
 diziam que a avó guardava uma foto 
