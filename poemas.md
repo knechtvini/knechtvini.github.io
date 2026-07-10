@@ -50,15 +50,17 @@ mas
 
 consigo ver a dor 
 nos olhos dele droga
-um vídeo gravado 
-e não cena dramática
+s
+vídeo gravado 
+não cena dramática
 constrangimento impedindo 
 contato visual espasmos 
 mãos mexendo dedos 
 irrupção gradual 
 nas lágrimas
 não choro histérico 
-de produções de Hollywood
+de produções de 
+Hollywood
 
 vítima de Ser próprio 
 personagem
