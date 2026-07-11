@@ -3,6 +3,11 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+VINÍCIUS K. NÃO É LITERATURA (2026)
+LANÇAMENTO DA VERSÃO ORIGINAL
+FORMATO DIGITAL DOWNLOAD GRATUITO
+26 - 07 - 2026
+---
 3166
 
 se a minha arte exige que eu morra
