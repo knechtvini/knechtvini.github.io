@@ -8,6 +8,27 @@ LANÇAMENTO DA VERSÃO ORIGINAL
 FORMATO DIGITAL DOWNLOAD GRATUITO
 26 - 07 - 2026
 ---
+3170
+
+venha fazer parte do 
+nosso time ataca de novo
+---
+3169
+
+o problema não é 
+seu joelho
+o problema é sua vida
+---
+3168
+
+você sabia que ele já 
+foi adulto um dia?
+---
+3167
+
+meu amor de recreio
+meu amor de classe
+---
 3166
 
 se a minha arte exige que eu morra
