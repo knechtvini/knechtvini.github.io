@@ -10,6 +10,27 @@ FORMATO DIGITAL DOWNLOAD GRATUITO
 
 26 - 07 - 2026<
 ---
+3174
+
+poema escrito sobre efeito
+
+tô tão bêbado que
+que escovei os dentes com pasta de dente
+e fiz a barba com
+
+com creme barbeador
+---
+3173
+
+manchete
+
+“influenciador é cancelado por 
+cancelar 
+influenciador 
+por engano”
+
+manchete supera sacada
+---
 3172
 
 ele postou um vídeo dele dançando
