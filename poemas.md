@@ -10,6 +10,14 @@ FORMATO DIGITAL DOWNLOAD GRATUITO
 
 26 - 07 - 2026<
 ---
+3172
+
+ele postou um vídeo dele dançando
+a legenda era "às terças, dançamos"
+poucas vezes senti esta tristeza
+
+por não ser mais terça-feira
+---
 3171
 
 eu fico triste
