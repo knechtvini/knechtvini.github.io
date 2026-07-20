@@ -5,8 +5,6 @@ layout: default
 ---
 3181
 
-a MINHA poesia
-
 estamos salvos neste beijo
 droga uma vida inteira 
 para isso
