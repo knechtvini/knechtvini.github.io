@@ -3,6 +3,54 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3181
+
+a MINHA poesia
+
+estamos salvos neste beijo
+droga uma vida inteira 
+para isso
+que sorte a nossa
+eu poder escrever por nós dois
+---
+3180
+
+tudo bem?
+acabei de comprar um Hyundai HB20
+e dei entrada
+num tratamento de implante capilar
+você gostaria de sair comigo
+desta vez?
+---
+3179
+
+“agora que o seu cabelo faria toda a diferença”
+---
+3178
+
+eu espero que você não 
+leia meu poema 
+esta noite
+vai parecer demais
+para você
+[e será
+?]
+---
+3177
+
+prazer, você
+---
+3176
+
+se eu não aprender a cantar agora
+não estou falando de hoje estou 
+fala
+ndo de agora quem vai cantar 
+no meu lugar
+do jeito que eu quero
+
+agora?
+---
 3175
 
 eu tenho muita facilidade
