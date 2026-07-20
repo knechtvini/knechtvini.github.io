@@ -3,6 +3,13 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3175
+
+eu tenho muita facilidade
+para fazer novos amigos
+o problema
+é que ninguém quer ser meu amigo
+---
 3174
 
 poema escrito sobre efeito
