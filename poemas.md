@@ -3,6 +3,33 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3184
+
+poema em linha reta 
+PARTE II
+
+os batimentos cardíacos de uma onda quebrada não diz nada
+linha reta canta ras ga da porrada não sei 
+na da da na tu reza e só
+descobri isso aos 
+quarenta e cinco do único tempo
+
+quem me dera descobrir mesmo
+tenho sido ridículo e nem pra ser traído
+---
+3183
+
+— aqui nesse livro por exemplo você diz que
+— como assim eu?
+---
+3182
+
+deixei de realizar um dos meus 
+maiores sonhos
+por causa de uma espinha
+
+no nariz
+---
 3181
 
 estamos salvos neste beijo
