@@ -31,8 +31,9 @@ leia meu poema
 esta noite
 vai parecer demais
 para você
-[e será
-?]
+e será
+
+?
 ---
 3177
 
