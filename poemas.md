@@ -40,7 +40,6 @@ eu poder escrever por nós dois
 ---
 3180
 
-tudo bem?
 acabei de comprar um Hyundai HB20
 e dei entrada
 num tratamento de implante capilar
