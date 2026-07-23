@@ -3,6 +3,27 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3188
+
+— os sensíveis afastam as pessoas?
+— sim principalmente as sensíveis
+---
+3187
+
+envelhecer
+
+julgar menos e
+ser mais crítico
+---
+3186
+
+relógio de pulso firme
+---
+3185
+
+pessoas que deixam a gente 
+com vontade de estudar
+---
 3184
 
 poema em linha reta 
