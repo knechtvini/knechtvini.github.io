@@ -13,7 +13,7 @@ Obras e trabalhos do autor:
 - [Comprar Amarelando Blue (2025) - Amazon](https://www.amazon.com.br/Amarelando-blue-Vin%C3%ADcius-Knecht/dp/6560561828)
 - [Coluna de Martha Medeiros (O GLOBO) sobre Amarelando Blue](https://oglobo.globo.com/ela/martha-medeiros/coluna/2025/11/conheca-amarelando-blue-livro-de-vinicius-knecht-que-e-um-frescor-diante-de-conteudos-copiados-da-internet.ghtml)
 - [Pousada da Criança (2026) PDF](https://drive.google.com/drive/folders/1RboXv3EK3u5gn9HuiIPlS0bKuuCkvlZC?usp=sharing)
-- [Prazer, você (2026)_PDF_VERSÃO_ORIGINAL](https://drive.google.com/drive/folders/1weEJ7KmgRLpqhMop7D3a6EYnYUmOuOjb?usp=drive_link)
+- [Prazer, você é (2026)_PDF_VERSÃO_ORIGINAL](https://drive.google.com/drive/folders/1weEJ7KmgRLpqhMop7D3a6EYnYUmOuOjb?usp=drive_link)
 
 Quer apoiar um artista independente? 
 
