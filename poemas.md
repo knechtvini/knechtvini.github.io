@@ -3,6 +3,14 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+LIVRO4444
+
+Prazer, você (2026)
+
+Versão original | PDF
+Download gratuito (Livros clique aqui)
+Disponível agora.
+---
 3206
 
 nos rios nos chamam de sujeira 
