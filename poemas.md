@@ -3,6 +3,29 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3200
+
+ninguém pensa em artista 
+de verdade querem artistas 
+de mentira nós vamos fazê-los 
+engolir essa verdade
+
+com as próprias salivas
+---
+3199
+
+você só vai saber 99% de quem 
+você é
+o 1% sou eu quem vai saber
+---
+3198
+
+já é o terceiro cardápio diferente
+---
+3197
+
+Tawana be yours
+---
 3196
 
 não é que é infinito
