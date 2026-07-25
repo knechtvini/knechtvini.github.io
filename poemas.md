@@ -3,6 +3,52 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3206
+
+nos rios nos chamam de sujeira 
+mas somos galhos de árvores
+---
+3205
+
+— o que você escreveria para o seu 
+eu do futuro?
+— eu te perdoo
+---
+3204
+
+eu vou chegar em casa 
+e vou escrever
+sobre as nossas conversas 
+por exemplo mas vou 
+exagerar 
+você tinha que ver 
+por exemplo a sua cara de assustada 
+neste momento
+---
+3203
+
+CURRICULUM VITAE
+
+Nome: VINÍCIUS KNECHT
+Nascimento: Não/tive/escolha
+Naturalidade: Melancólico
+Estado civil: Realista
+---
+3202
+
+não estou falando de hoje 
+estou falando de agora 
+---
+3201
+
+estamos ao vivo aqui na despedida deles
+diretamente do primeiro encontro deles
+pessoal vocês não estão entendendo 
+o que estamos presenciando
+o primeiro encontro foi o reencontro
+
+é a primeira vez em toda a história
+---
 3200
 
 ninguém pensa em artista 
