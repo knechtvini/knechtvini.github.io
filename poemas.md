@@ -3,6 +3,58 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
+3196
+
+não é que é infinito
+é que em uma vida não daria tempo 
+---
+3195
+
+talvez não seja tão poético na 
+ficção real
+talvez não seja tão poético 
+quanto as pessoas esperam
+mesmo que seja um pouco mais 
+verdadeiro
+
+e bela toda esta mentira
+---
+3194
+
+— eu tô nervosa
+— eu fico mais nervoso quando passa
+---
+3193
+
+você nunca vai saber se 
+realmente é você ou se 
+sou só eu
+---
+3192
+
+— eu queria sair para dançar
+— por que você não vai a calçada 
+ali está vazia
+---
+3191
+
+quando eu era criança eu tinha certeza 
+de tudo o que eu queria o que eu não 
+esperava tanto era ser adulto outra e 
+outra e outra vez
+---
+3190
+
+se você pedir para eu explicar 
+um poema
+eu vou pedir para você explicar 
+as pirâmides
+e o seu diagnóstico
+---
+3189
+
+te olhar foi confirmar
+---
 3188
 
 — os sensíveis afastam as pessoas?
@@ -30,7 +82,7 @@ poema em linha reta
 PARTE II
 
 os batimentos cardíacos de uma onda quebrada não diz nada
-linha reta canta ras ga da porrada não sei 
+canta ras ga da porrada não sei 
 na da da na tu reza e só
 descobri isso aos 
 quarenta e cinco do único tempo
