@@ -3,13 +3,13 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
-LIVRO4444
+LANÇAMENTO
 
-Prazer, você (2026)
+Prazer, você é (2026)
 
-Versão original | PDF
-Download gratuito (Livros clique aqui)
-Disponível agora.
+versão original | PDF
+download gratuito (Livros clique aqui)
+disponível agora
 ---
 3206
 
