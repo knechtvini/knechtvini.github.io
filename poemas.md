@@ -8,8 +8,10 @@ LANÇAMENTO
 Prazer, você é (2026)
 
 versão original | PDF
-download gratuito (Livros clique aqui)
+
+download gratuito
 disponível agora
+em Livros clique aqui
 ---
 3206
 
