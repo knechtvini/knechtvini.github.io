@@ -15,6 +15,7 @@ Obras e trabalhos do autor:
 - [Pousada da Criança (2026) PDF](https://drive.google.com/drive/folders/1RboXv3EK3u5gn9HuiIPlS0bKuuCkvlZC?usp=sharing)
 - [Livro Prazer, você é (2026) PDF versão original](https://drive.google.com/file/d/1sdEWmK-xGuBv1VRxypEpXQhMDmvduCIE/view?usp=drive_link
 )
+
 Quer apoiar um artista independente? 
 
 PIX: 02106848013
