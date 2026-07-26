@@ -3,7 +3,7 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
-LANÇAMENTO
+||| LANÇAMENTO
 
 Prazer, você é (2026)
 
