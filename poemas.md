@@ -1,7 +1,7 @@
 ---
 layout: default
 ---
-"VINÍCIUS KNECHT NÃO É LITERATURA."
+"VINÍCIUS KNECHT NÃO É LITERATURA"
 
 >>>>LANÇAMENTO
 
