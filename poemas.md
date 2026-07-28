@@ -3,14 +3,33 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
 ---
-> LANÇAMENTO
+>>>>LANÇAMENTO
 
 PRAZER, VOCÊ É (2026)
 
 versão original | PDF
 download gratuito
 disponível agora
-em Livros clique aqui
+>>>>em Livros clique aqui
+---
+3209
+
+não adianta você escrever se você não sente
+isso é
+ou você sente isso ou sente o contrário
+ou então nem escreve
+---
+3208
+
+no trânsito passou um carro
+não era um carro pegando fogo
+era um carro de fogo
+---
+3207
+
+na tanta escuridão
+já não pude mais enxergar a dor
+melhorei tanto desde então
 ---
 3206
 
