@@ -25,7 +25,7 @@ da população
 
 — o que você gostaria de dizer para 
 o seu eu do futuro?
-— ah, a gente vai se encontrando
+— ah a gente vai se encontrando
 ---
 3212
 
