@@ -2,7 +2,7 @@
 layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA."
----
+
 >>>>LANÇAMENTO
 
 PRAZER, VOCÊ É (2026)
@@ -11,6 +11,39 @@ versão original | PDF
 download gratuito
 disponível agora
 >>>>em Livros clique aqui
+---
+3214
+
+candidato confirma candidatura 
+ao governo
+e estado se torna inabitável
+pela primeira vez na história
+após “inexplicável” evacuação 
+da população
+---
+3213
+
+— o que você gostaria de dizer para 
+o seu eu do futuro?
+— ah, a gente vai se encontrando
+---
+3212
+
+hoje valeu a pena ter perdido o meu filho
+ele se tornou bilionário
+---
+3211
+
+sobre quem diz ser o melhor de todos
+pode até ser que seja
+mas provavelmente nunca será
+---
+3210
+
+ontem eu não conseguia 
+dormir
+e daí eu tô aqui 
+escrevendo esse poema
 ---
 3209
 
