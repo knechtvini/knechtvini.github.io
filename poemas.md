@@ -12,6 +12,21 @@ download gratuito
 disponível agora
 >>>>em LIVROS
 ---
+3222
+
+eu quero ser o novo álbum
+da sua bandinha
+preferida
+você entendeu
+como assim como assim cara
+você entendeu
+eu quero ser as novas fotos
+do seu passeio 
+favorito
+como assim como assim cara
+pera
+o que você entendeu
+---
 3221
 
 e a canção Für Elise do Beethoven 
