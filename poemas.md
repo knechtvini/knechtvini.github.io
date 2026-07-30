@@ -12,6 +12,30 @@ download gratuito
 disponível agora
 >>>>em LIVROS
 ---
+3219
+
+— você precisa tomar o seu remédio
+— eu tomo o que eu quiser
+---
+3218
+
+quando apagar é um alívio
+---
+3217
+
+quero aprender a cortar o seu cabelo
+e este laço
+---
+3216
+
+quero ser o lançamento 
+do novo álbum
+da sua banda preferida
+---
+3215
+
+quero gastar todo o meu dinheiro com o tempo
+---
 3214
 
 candidato confirma candidatura 
