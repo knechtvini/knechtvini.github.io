@@ -12,6 +12,35 @@ download gratuito
 disponível agora
 >>>>em LIVROS
 ---
+3227
+
+ir pelo caminho mais demorado
+só 
+para poder sair antes
+---
+3226
+
+o sorriso de Leonardo da Vinci
+---
+3225
+
+a última discussão do dia,
+a primeira discussão do dia.
+
+a última discussão da vida,
+a primeira discussão da vida.
+---
+3224
+
+eu conheci uma pessoa incrível.
+ela tem dois namorados.
+---
+3223
+
+está tudo tão barato e fácil.
+está sobrando demais.
+eu não sei onde isso vai dar.
+---
 3222
 
 eu quero ser o novo álbum
