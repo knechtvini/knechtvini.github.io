@@ -24,6 +24,8 @@ eu quero ser as novas fotos
 do seu passeio 
 favorito
 como assim como assim cara
+música é o auge das artes
+você é o refrão
 pera
 o que você entendeu
 ---
