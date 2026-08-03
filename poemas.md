@@ -3,6 +3,10 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA"
 ---
+3228
+
+nada me inspira tanto quanto o bloqueio criativo
+---
 3227
 
 ir pelo caminho mais demorado
