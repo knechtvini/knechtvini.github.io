@@ -5,6 +5,8 @@ layout: default
 ---
 3228
 
+nd m nspr tnt qnt o bloqueio criativo
+
 nada me inspira tanto quanto o bloqueio criativo
 ---
 3227
