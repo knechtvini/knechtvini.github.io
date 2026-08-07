@@ -3,6 +3,29 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA"
 ---
+3231
+
+uma dessas Sheilas abre um álbum 
+de fotos na Grécia
+e se declara
+“estou apaixonada”
+---
+3230
+
+então passei por uma creche 
+creche de “criança”
+ouvi choros
+tenho quase certeza que eram sapos
+do paul thomas anderson
+---
+3229
+
+confundo abba com bee gees 
+julianne moore com drew barrymore
+arte com amor
+poema com poesia
+palhaço com fantasia
+---
 3228
 
 nd m nspr tnt qnt o bloqueio criativo
