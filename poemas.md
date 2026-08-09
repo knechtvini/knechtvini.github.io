@@ -3,6 +3,8 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA"
 ---
+R$ VINÍCIUS KNECHT
+---
 3231
 
 uma dessas Sheilas abre um álbum 
