@@ -5,6 +5,29 @@ layout: default
 ---
 R$ VINÍCIUS KNECHT
 ---
+3235
+
+Hoje, eu e Kieran Culkin decidiremos
+ quem será o próximo presidente dos EUA.
+---
+3234
+
+Contemporâneo
+
+“Hitler foi tão ruim assim mesmo?
+Conheça sua infância e sua trajetória.”
+---
+3233
+
+Quase tudo em ti é contagiante
+porque eu não conheço tudo.
+---
+3232
+
+o mundo acabando
+e Mick Jagger dançando
+tá tudo perfeito
+---
 3231
 
 uma dessas Sheilas abre um álbum 
