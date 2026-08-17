@@ -5,6 +5,12 @@ layout: default
 ---
 R$ VINÍCIUS KNECHT
 ---
+3238
+
+para ser mais junto todos terão 
+o mesmo peso
+e ninguém vai ter cabelo
+---
 3237
 
 eu vou escrever em espanhol 
