@@ -5,6 +5,12 @@ layout: default
 ---
 R$ VINÍCIUS KNECHT
 ---
+3239
+
+não é a arte que provoca o cancelamento
+é o autor
+tentando explicá-la
+---
 3238
 
 para ser mais junto todos terão 
