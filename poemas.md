@@ -9,7 +9,7 @@ R$ VINÍCIUS KNECHT
 
 para ser mais junto todos terão 
 o mesmo peso
-e ninguém vai ter cabelo
+e ninguém terá cabelo
 ---
 3237
 
