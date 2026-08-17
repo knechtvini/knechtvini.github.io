@@ -5,6 +5,33 @@ layout: default
 ---
 R$ VINÍCIUS KNECHT
 ---
+3237
+
+eu vou escrever em espanhol 
+para que ninguém entenda
+tengo muchos amigos a los 
+que simplemente odio
+los odio porque son unos 
+putos narcisistas
+---
+3236
+
+a última dança
+a últim dança
+a últim aça
+a últi aça
+a úli aça
+a úli nça
+a li nça
+aliança
+a li nça
+a úli nça
+a úli aça
+a últi aça
+a últim aça
+a últim dança
+a última dança
+---
 3235
 
 Hoje, eu e Kieran Culkin decidiremos
