@@ -13,7 +13,7 @@ tentando explicá-la
 ---
 3238
 
-para ser mais junto todos terão 
+para ser mais justo todos terão 
 o mesmo peso
 e ninguém terá cabelo
 ---
