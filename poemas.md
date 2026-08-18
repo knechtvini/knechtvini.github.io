@@ -5,19 +5,19 @@ layout: default
 ---
 R$ VINÍCIUS KNECHT
 ---
-3240
+3239
 
 não é a arte que provoca o cancelamento
 é o autor
 tentando explicá-la
 ---
-3239
+3238
 
 para ser mais justo todos terão 
 o mesmo peso
 e ninguém terá cabelo
 ---
-3238
+3237
 
 eu vou escrever em espanhol 
 para que ninguém entenda
@@ -25,31 +25,6 @@ tengo muchos amigos a los
 que simplemente odio
 los odio porque son unos 
 putos narcisistas
----
-3237
-
-o último suspiro
-o último suspiro
-o último suspiro
-o último suspiro
-o último suspiro
-o último suspiro
-o últi suspiro
-o últi suspiro
-o últi suro
-o últi uro
-o últi ouro
-o li ouro
-o ouro
-ouro
-o ouro
-o li ouro
-o últi ouro
-o últi uro
-o últi suro
-o últi suspiro
-o último suspiro
-o último suspiro
 ---
 3236
 
