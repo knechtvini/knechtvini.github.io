@@ -18,6 +18,7 @@ e publicar o máximo de livros
 que conseguirem
 e detalhe
 um detalhe importante:
+
 o gênero deverá ser poesia.
 ---
 3240
@@ -42,6 +43,7 @@ tentando explicá-la
 
 para ser mais justo todos terão 
 o mesmo peso
+
 e ninguém terá cabelo
 ---
 3237
@@ -92,7 +94,7 @@ porque eu não conheço tudo.
 
 o mundo acabando
 e Mick Jagger dançando
-tá tudo perfeito
+está tudo tão perfeito
 ---
 3231
 
@@ -107,12 +109,12 @@ então passei por uma creche
 creche de “criança”
 ouvi choros
 tenho quase certeza que eram sapos
-do paul thomas anderson
+do Paul Thomas Anderson
 ---
 3229
 
-confundo abba com bee gees 
-julianne moore com drew barrymore
+confundo Abba com Bee Gees 
+Julianne Moore com Drew Barrymore
 arte com amor
 poema com poesia
 palhaço com fantasia
@@ -135,22 +137,25 @@ o sorriso de Leonardo da Vinci
 ---
 3225
 
-a última discussão do dia,
-a primeira discussão do dia.
+a última discussão do dia
+a primeira discussão do dia
 
-a última discussão da vida,
-a primeira discussão da vida.
+a última discussão da vida
+a primeira discussão da vida
+
+a última discussão do dia
+a primeira discussão do dia
 ---
 3224
 
-eu conheci uma pessoa incrível.
-ela tem dois namorados.
+eu conheci uma pessoa incrível
+ela tem dois namorados
 ---
 3223
 
-está tudo tão barato e fácil.
-está sobrando demais.
-eu não sei onde isso vai dar.
+está tudo tão barato e fácil
+está sobrando demais
+eu não sei onde isso vai dar
 ---
 3222
 
@@ -214,9 +219,12 @@ e este laço
 ---
 3216
 
-quero ser o lançamento 
-do novo álbum
-da sua banda preferida
+estouro no Renault Sandero prata 
+que o vizinho deixou estacionado 
+na rua naquela justa noite. 
+alarme escandaloso tocando. 
+no mínimo deve ter se jogado 
+do oitavo andar.
 ---
 3215
 
@@ -250,15 +258,14 @@ mas provavelmente nunca será
 ---
 3210
 
-ontem eu não conseguia 
-dormir
-e daí eu tô aqui 
+ontem eu não conseguia dormir
+e daí estou aqui 
 escrevendo esse poema
 ---
 3209
 
 não adianta você escrever se você não sente
-isso é
+isto é isso é
 ou você sente isso ou sente o contrário
 ou então nem escreve
 ---
@@ -337,7 +344,7 @@ o 1% sou eu quem vai saber
 ---
 3198
 
-já é o terceiro cardápio diferente
+já é o quinto cardápio diferente e continua tudo tão caro
 ---
 3197
 
@@ -362,13 +369,12 @@ e bela toda esta mentira
 3194
 
 — eu tô nervosa
-— eu fico mais nervoso quando passa
+— eu fico nervoso quando tudo passa
 ---
 3193
 
 você nunca vai saber se 
-realmente é você ou se 
-sou só eu
+realmente é você ou se sou só eu
 ---
 3192
 
@@ -388,8 +394,7 @@ outra e outra vez
 se você pedir para eu explicar 
 um poema
 eu vou pedir para você explicar 
-as pirâmides
-e o seu diagnóstico
+as pirâmides e Donnie Darko
 ---
 3189
 
@@ -448,6 +453,7 @@ no nariz
 estamos salvos neste beijo
 droga uma vida inteira 
 para isso
+
 que sorte a nossa
 eu poder escrever por nós dois
 ---
@@ -472,7 +478,7 @@ vai parecer demais
 para você
 e será
 
-?
+?(?)
 ---
 3177
 
@@ -491,19 +497,22 @@ agora?
 ---
 3175
 
-eu tenho muita facilidade
-para fazer novos amigos
-o problema
-é que ninguém quer ser meu amigo
+eu tenho muita facilidade 
+para fazer 
+novos amigos 
+o problema é que 
+ninguém quer ser meu amigo
 ---
 3174
 
 poema escrito sobre efeito
 
 tô tão bêbado que
-que escovei os dentes com pasta de dente
-e fiz a barba com
-
+que escovei 
+os dentes com 
+pasta de dente 
+e fiz 
+a barba com
 com creme barbeador
 ---
 3173
@@ -528,8 +537,8 @@ por não ser mais terça-feira
 3171
 
 eu fico triste
-que as pessoas gostem
-
+que as pessoas 
+gostem
 dos meus primeiros livros
 ---
 3170
@@ -539,8 +548,7 @@ nosso time ataca de novo
 ---
 3169
 
-o problema não é 
-seu joelho
+o problema não é seu joelho
 o problema é sua vida
 ---
 3168
@@ -560,8 +568,10 @@ quem vai terminar a obra?
 ---
 3165
 
-se você reler o meu livro 
-eu já estarei escrevendo sobre você
+se você reler 
+o meu livro 
+eu já estarei escrevendo 
+sobre você
 ---
 3164
 
