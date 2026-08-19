@@ -5,6 +5,21 @@ layout: default
 ---
 R$ VINÍCIUS KNECHT
 ---
+3241
+
+bom, hoje a prova 
+será de resistência
+isso mesmo
+prova de resistência
+e consistirá em:
+vocês deverão 
+permanecer artistas
+e publicar o máximo de livros 
+que conseguirem
+e detalhe
+um detalhe importante:
+o gênero deverá ser poesia.
+---
 3240
 
 para mim 
