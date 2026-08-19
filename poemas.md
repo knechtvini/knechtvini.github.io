@@ -5,6 +5,18 @@ layout: default
 ---
 R$ VINÍCIUS KNECHT
 ---
+3240
+
+para mim 
+pessoalmente
+neste quarto branco 
+e vazio
+é humanamente 
+impossível
+matar 
+esta barata
+estando nu
+---
 3239
 
 não é a arte que provoca o cancelamento
