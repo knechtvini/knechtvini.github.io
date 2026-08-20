@@ -1,8 +1,6 @@
 ---
 layout: default
 ---
-Foi um poeta gaúcho.
----
 "VINÍCIUS KNECHT NÃO É LITERATURA"
 ---
 3242
