@@ -3,6 +3,13 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA"
 ---
+3244
+
+já matei três 
+baratas nas últimas 
+duas horas 
+fiz mais que Kafka e Clarice
+---
 3243
 
 Richard Linklater, 
