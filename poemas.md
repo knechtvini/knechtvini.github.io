@@ -3,12 +3,18 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA"
 ---
-3244
+3245
 
 já matei três 
 baratas nas últimas 
 duas horas 
 fiz mais que Kafka e Clarice
+---
+3244
+
+o que você escreveria na sua lápide?
+eu não quero pensar nisso você está louco
+nossa... eu simplesmente amei
 ---
 3243
 
