@@ -3,12 +3,19 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA"
 ---
-3245
+3246
 
 já matei três 
 baratas nas últimas 
 duas horas 
 fiz mais que Kafka e Clarice
+---
+3245
+
+TOC, TOC, TOC
+quem é?
+o transtorno obsessivo-compulsivo
+óbvio
 ---
 3244
 
