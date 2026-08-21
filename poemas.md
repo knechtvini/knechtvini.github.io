@@ -3,6 +3,11 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA"
 ---
+3243
+
+Richard Linklater, 
+nós precisamos ter mais diálogo.
+---
 3242
 
 R$ VINÍCIUS KNECHT
