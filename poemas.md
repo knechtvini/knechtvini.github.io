@@ -26,7 +26,7 @@ nossa... eu simplesmente amei
 3243
 
 Richard Linklater, 
-nós precisamos ter mais diálogo.
+nós precisamos ter mais diálogo
 ---
 3242
 
@@ -44,7 +44,7 @@ permanecer artistas
 e publicar o máximo de livros 
 que conseguirem
 e detalhe
-um detalhe importante:
+um detalhe muito importante:
 
 o gênero deverá ser poesia.
 ---
@@ -62,14 +62,15 @@ estando nu
 ---
 3239
 
-não é a arte que provoca o cancelamento
+não é a arte 
+que provoca o cancelamento
 é o autor
 tentando explicá-la
 ---
 3238
 
-para ser mais justo todos terão 
-o mesmo peso
+para ser mais justo 
+todos terão o mesmo peso
 
 e ninguém terá cabelo
 ---
@@ -77,6 +78,7 @@ e ninguém terá cabelo
 
 eu vou escrever em espanhol 
 para que ninguém entenda
+
 tengo muchos amigos a los 
 que simplemente odio
 los odio porque son unos 
@@ -103,31 +105,30 @@ a última dança
 3235
 
 Hoje, eu e Kieran Culkin decidiremos
- quem será o próximo presidente dos EUA.
+quem será o próximo presidente dos EUA.
 ---
 3234
 
 Contemporâneo
 
 “Hitler foi tão ruim assim mesmo?
-Conheça sua infância e sua trajetória.”
+Conheça sua infância e sua trajetória”
 ---
 3233
 
 Quase tudo em ti é contagiante
-porque eu não conheço tudo.
+porque eu não conheço tudo
 ---
 3232
 
-o mundo acabando
+mundo acabando
 e Mick Jagger dançando
 está tudo tão perfeito
 ---
 3231
 
 uma dessas Sheilas abre um álbum 
-de fotos na Grécia
-e se declara
+de fotos na Grécia e se declara
 “estou apaixonada”
 ---
 3230
@@ -148,9 +149,11 @@ palhaço com fantasia
 ---
 3228
 
-nd m nspr tnt qnt o bloqueio criativo
+nd m nspr tnt qnt 
+o bloqueio criativo
 
-nada me inspira tanto quanto o bloqueio criativo
+nada me inspira tanto quanto 
+o bloqueio criativo
 ---
 3227
 
@@ -196,8 +199,8 @@ eu quero ser as novas fotos
 do seu passeio 
 favorito
 como assim como assim cara
-pera
-o que você entendeu
+espera
+
 música é o auge das artes
 você é o refrão
 ---
@@ -205,15 +208,14 @@ você é o refrão
 
 e a canção Für Elise do Beethoven 
 diz exatamente isso sabe
-
 que eu preciso de alguém para
-que seja testemunho que
-de que eu me perdoo
+que seja testemunho de que eu 
+me perdoo
 espero que você tenha um incrível 
 resto de dia
-tanto quanto a dioneia 
+tanto quanto 
+a dioneia 
 que agora engole um ser humano
-
 entre 
 o ver melh o lar anja mar elo
 amarelando
@@ -226,14 +228,13 @@ levo meus mini cactos fofos
 todos os dias
 para pegar um solzinho
 e o solzinho aparece
-todos os dias
-tô me fodendo
+todos os dias tô me fodendo
 para a opinião dos outros
 ---
 3219
 
-— você precisa tomar o seu remédio
-— eu tomo o que eu quiser
+você precisa tomar o seu remédio
+eu tomo o que eu quiser
 ---
 3218
 
@@ -248,10 +249,10 @@ e este laço
 
 estouro no Renault Sandero prata 
 que o vizinho deixou estacionado 
-na rua naquela justa noite. 
-alarme escandaloso tocando. 
+na rua naquela justa noite
+alarme escandaloso tocando
 no mínimo deve ter se jogado 
-do oitavo andar.
+do oitavo andar
 ---
 3215
 
@@ -268,9 +269,9 @@ da população
 ---
 3213
 
-— o que você gostaria de dizer para 
+o que você gostaria de dizer para 
 o seu eu do futuro?
-— ah a gente vai se encontrando
+a gente vai se encontrando...
 ---
 3212
 
@@ -291,22 +292,27 @@ escrevendo esse poema
 ---
 3209
 
-não adianta você escrever se você não sente
-isto é isso é
-ou você sente isso ou sente o contrário
+não adianta você 
+escrever 
+se você não sente
+ou você sente 
+isso 
+ou sente 
+o contrário
 ou então nem escreve
 ---
 3208
 
 no trânsito passou um carro
-não era um carro pegando fogo
+não era um carro 
+pegando fogo
 era um carro de fogo
 ---
 3207
 
-na tanta escuridão
+na escuridão do fundo do poço
 já não pude mais enxergar a dor
-melhorei tanto desde então
+melhorei desde que percebi
 ---
 3206
 
@@ -315,20 +321,19 @@ mas somos galhos de árvores
 ---
 3205
 
-— o que você escreveria para o seu 
+o que você escreveria para o seu 
 eu do futuro?
-— eu te perdoo
+eu te perdoo
 ---
 3204
 
 eu vou chegar em casa 
 e vou escrever
-sobre as nossas conversas 
-por exemplo mas vou 
-exagerar 
+sobre a nossa conversa
+por exemplo mas vou exagerar 
 você tinha que ver 
-por exemplo a sua cara de assustada 
-neste momento
+por exemplo a sua cara 
+de assustada neste momento
 ---
 3203
 
@@ -349,15 +354,15 @@ estou falando de agora
 estamos ao vivo aqui na despedida deles
 diretamente do primeiro encontro deles
 pessoal vocês não estão entendendo 
-o que estamos presenciando
-o primeiro encontro foi o reencontro
+o que estamos presenciando aqui
+o primeiro encontro o reencontro
 
 é a primeira vez em toda a história
 ---
 3200
 
-ninguém pensa em artista 
-de verdade querem artistas 
+ninguém pensa em artista de verdade 
+querem artistas 
 de mentira nós vamos fazê-los 
 engolir essa verdade
 
@@ -365,13 +370,13 @@ com as próprias salivas
 ---
 3199
 
-você só vai saber 99% de quem 
-você é
-o 1% sou eu quem vai saber
+você só vai saber 99% de quem você é
+o 1% restante sou eu quem vai saber
 ---
 3198
 
-já é o quinto cardápio diferente e continua tudo tão caro
+já é o quinto cardápio diferente 
+e continua caro
 ---
 3197
 
@@ -380,7 +385,8 @@ Tawana be yours
 3196
 
 não é que é infinito
-é que em uma vida não daria tempo 
+é que em uma vida 
+não daria tempo 
 ---
 3195
 
@@ -390,23 +396,30 @@ talvez não seja tão poético
 quanto as pessoas esperam
 mesmo que seja um pouco mais 
 verdadeiro
-
 e bela toda esta mentira
 ---
 3194
 
-— eu tô nervosa
-— eu fico nervoso quando tudo passa
+eu tô nervosa
+eu fico nervoso quando passa
 ---
 3193
 
-você nunca vai saber se 
-realmente é você ou se sou só eu
+você 
+nunca 
+vai 
+saber 
+se 
+realmente 
+é você 
+ou se 
+sou 
+só eu
 ---
 3192
 
-— eu queria sair para dançar
-— por que você não vai a calçada 
+eu queria sair para dançar
+por que você não vai a calçada 
 ali está vazia
 ---
 3191
@@ -429,14 +442,13 @@ te olhar foi confirmar
 ---
 3188
 
-— os sensíveis afastam as pessoas?
-— sim principalmente as sensíveis
+os sensíveis afastam as pessoas?
+sim principalmente as sensíveis
 ---
 3187
 
 envelhecer
-
-julgar menos e
+julgar menos
 ser mais crítico
 ---
 3186
@@ -445,7 +457,8 @@ relógio de pulso firme
 ---
 3185
 
-pessoas que deixam a gente 
+ela é o tipo de amor 
+que deixa a gente 
 com vontade de estudar
 ---
 3184
@@ -453,26 +466,27 @@ com vontade de estudar
 poema em linha reta 
 PARTE II
 
-os batimentos cardíacos de uma onda quebrada não diz nada
+os batimentos cardíacos de uma onda 
+quebrada não diz nada
 canta ras ga da porrada não sei 
 na da da na tu reza e só
 descobri isso aos 
 quarenta e cinco do único tempo
 
 quem me dera descobrir mesmo
-tenho sido ridículo e nem pra ser traído
+tenho sido ridículo 
+e nem pra ser traído
 ---
 3183
 
-— aqui nesse livro por exemplo você diz que
-— como assim eu?
+aqui nesse livro por exemplo você diz que
+como assim eu?
 ---
 3182
 
 deixei de realizar um dos meus 
 maiores sonhos
 por causa de uma espinha
-
 no nariz
 ---
 3181
@@ -480,7 +494,6 @@ no nariz
 estamos salvos neste beijo
 droga uma vida inteira 
 para isso
-
 que sorte a nossa
 eu poder escrever por nós dois
 ---
@@ -494,17 +507,19 @@ desta vez?
 ---
 3179
 
-“agora que o seu cabelo faria toda a diferença”
+agora que o seu cabelo 
+faria toda a diferença
 ---
 3178
 
-eu espero que você não 
+eu espero que você 
+não 
 leia meu poema 
 esta noite
-vai parecer demais
+vai parecer 
+demais
 para você
 e será
-
 ?(?)
 ---
 3177
@@ -513,13 +528,16 @@ prazer, você
 ---
 3176
 
-se eu não aprender a cantar agora
-não estou falando de hoje estou 
+se eu não aprender 
+a cantar agora
+não estou falando 
+de hoje estou 
 fala
-ndo de agora quem vai cantar 
+ndo de agora 
+quem vai cantar 
 no meu lugar
-do jeito que eu quero
-
+do jeito que 
+eu quero
 agora?
 ---
 3175
