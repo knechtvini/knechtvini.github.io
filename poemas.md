@@ -3,6 +3,11 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA"
 ---
+3247
+
+rico no celular 
+pobre no castelo
+---
 3246
 
 já matei três 
