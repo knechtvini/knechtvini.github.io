@@ -3,6 +3,10 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA"
 ---
+3248
+
+saudades de quando eu escrevia "menha"
+---
 3247
 
 rico no celular 
