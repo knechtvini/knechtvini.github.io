@@ -3,9 +3,59 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA"
 ---
+3253
+
+Em busca de sentido
+
+Auschwitz & Hiroshima & 
+Ele me bloqueou no Instagram
+---
+3252
+
+artista é a espécie 
+humana 
+de maior duração 
+destemidos 
+dóceis alguns coletores 
+de plantas 
+cannabis
+---
+3251
+
+cadáver que veste
+Armani
+
+assalto em um Banksy
+
+e Basquiat
+
+a mando de uma Mandonna
+---
+3250
+
+por que você atirou no coleguinha?
+
+porque ele roubou minha caneta
+
+mas precisava ter matado?
+---
+3249
+
+o constrangimento 
+de um fantoche
+a expressão 
+do boneco 
+o homem escondido
+atrás daquele sofá 
+
+segurando 
+
+toda sua trajetória emocional 
+detendo sua estupidez humana
+---
 3248
 
-saudades de quando eu escrevia "menha"
+saudades de quando eu escrevia menha
 ---
 3247
 
