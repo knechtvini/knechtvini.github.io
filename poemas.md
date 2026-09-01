@@ -3,6 +3,41 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA"
 ---
+3258
+
+TALK SHOW HOST
+
+eu não tenho que ficar pensando
+tanto, eu
+tenho que ficar me entrevistando
+e, mas
+quem eu sou?
+o entrevistador ou aquele
+que responde?...
+---
+3257
+
+você está preparada para ser 
+um clássico da literatura?
+esperar o que parece perfeito
+para lançar? você não sabe 
+o que é paixão
+lançar para descobrir que não 
+foi perfeito? você sabe o que é 
+o amor não sabe
+---
+3256
+
+o final do livro será tatuado 
+no corpo do autor do livro
+o autor do livro, é claro, morre
+mas ainda está vivo.
+---
+3255
+
+ELE É ARTISTA
+TEM TEMPO, NÉ
+---
 3254
 
 Domingo
