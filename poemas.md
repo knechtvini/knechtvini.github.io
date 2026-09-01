@@ -3,6 +3,14 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA"
 ---
+3259
+
+14 anos sem lançar um álbum
+artista volta com nova canção 
+em letra que diz “porque 
+ultimamente ando 
+solitário”
+---
 3258
 
 TALK SHOW HOST
