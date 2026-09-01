@@ -3,6 +3,25 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA"
 ---
+3254
+
+Domingo
+Me matei
+Segunda-feira
+Lembrei de sábado à noite e
+acho que finalmente acordei pra vida
+Terça-feira
+Visitei o comércio
+Quarta-feira
+Fotografei meu rosto 243 vezes
+e postei uma foto de 5 anos atrás
+Quinta-feira
+Assisti Anora pela segunda vez
+Sexta-feira
+Pensei no sábado
+Sábado
+Jac terminou comigo de novo
+---
 3253
 
 Em busca de sentido
