@@ -3,6 +3,14 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA"
 ---
+3261
+
+esse aqui não é Jesus
+esse aqui é Gabriel
+ele tem barba olhos azuis
+e cabelos longos
+e está num show do Oasis
+---
 3260
 
 o corpo já está lá
