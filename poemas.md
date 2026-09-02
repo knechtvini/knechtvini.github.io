@@ -3,6 +3,24 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA"
 ---
+3260
+
+o corpo já está lá
+acabara de ser
+devidamente enterrado
+respeitando todos os 
+protocolos
+o morto se posiciona
+do jeito que pode
+único jeito que pode
+e começa a relaxar
+em paz
+
+o toque de notificações
+do celular
+começa a surgir
+de um dos bolsos
+---
 3259
 
 14 anos sem lançar um álbum
