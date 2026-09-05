@@ -3,6 +3,12 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA"
 ---
+3263
+
+hoje mesmo a gente estava brincando 
+imagina se ele inventa de publicar 
+esse livro 
+---
 3262
 
 ela não estava acostumada 
