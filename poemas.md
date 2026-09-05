@@ -3,6 +3,19 @@ layout: default
 ---
 "VINÍCIUS KNECHT NÃO É LITERATURA"
 ---
+3262
+
+ela não estava acostumada 
+com cartas e bombas
+
+ao retomar a consciência
+percebeu que era arte
+
+qual a cor do tapa-olho 
+que este anjo usa no olho esquerdo?
+
+fica a resposta
+---
 3261
 
 esse aqui não é Jesus
