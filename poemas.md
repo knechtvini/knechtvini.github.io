@@ -1,7 +1,11 @@
 ---
 layout: default
 ---
-"VINÍCIUS KNECHT NÃO É LITERATURA"
+VINÍCIUS K. NÃO É LITERATURA
+Vinícius Knecht
+Editora Bestiário · 2026
+
+EM BREVE.
 ---
 3263
 
