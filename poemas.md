@@ -7,6 +7,11 @@ Editora Bestiário · 2026
 
 EM BREVE.
 ---
+não acho que eu seja subestimado
+acho que para um escritor
+ser subestimado ele precisa 
+pelo menos ser lido
+---
 3271
 
 quando eu era criança
