@@ -7,6 +7,49 @@ Editora Bestiário · 2026
 
 EM BREVE.
 ---
+3271
+
+quando eu era criança
+eu chorava que nem adulto
+porque hoje sou adulto
+e choro que nem criança
+---
+3270
+
+Cauê ofereceu terapia 
+de eletrochoque
+---
+3269
+
+por que todas as pessoas estão na praia?
+você não vai vir?
+---
+3268
+
+acabei de voltar de uma consulta 
+com a cardiologista 
+Luciana
+lembrei de você
+---
+3267
+
+teus olhares são naturais?
+---
+3266
+
+tem poesia minha 
+que o Vinícius Knecht 
+jamais 
+seria capaz de escrever
+---
+3265
+
+nunca é arte demais para começar
+---
+3264
+
+VINÍCIUS VIROU ABOBRINHA
+---
 3263
 
 hoje mesmo a gente estava brincando 
