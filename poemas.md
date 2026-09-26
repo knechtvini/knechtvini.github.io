@@ -7,6 +7,20 @@ Editora Bestiário · 2026
 
 EM BREVE.
 ---
+3275
+
+nem eu leio meus rascunhos
+
+imagine você
+aqui
+---
+3274
+
+que que você quer com reconhecimento?
+você está culpando a sociedade
+
+você está culpando a sua solidão
+---
 3273
 
 written by Franz Kafka 
