@@ -7,6 +7,11 @@ Editora Bestiário · 2026
 
 EM BREVE.
 ---
+3273
+
+written by Franz Kafka 
+and directed by Yorgos Lanthimos
+---
 3272
 
 não acho que eu seja subestimado
