@@ -5,7 +5,7 @@ VINÍCIUS K. NÃO É LITERATURA
 Vinícius Knecht
 Editora Bestiário · 2026
 
-EM BREVE.
+EM NOVEMBRO
 ---
 3275
 
