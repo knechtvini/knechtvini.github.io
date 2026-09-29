@@ -7,6 +7,12 @@ Editora Bestiário · 2026
 
 EM NOVEMBRO
 ---
+3276
+
+eu sempre achei os peixes
+os mais injustiçados,
+na terra
+---
 3275
 
 nem eu leio meus rascunhos
