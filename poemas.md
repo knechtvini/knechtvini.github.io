@@ -7,6 +7,13 @@ Editora Bestiário · 2026
 
 EM NOVEMBRO
 ---
+3278
+
+se você salvar o mundo
+ainda assim
+vai ter gente questionando
+em quem você vota
+---
 3277
 
 eróptico
