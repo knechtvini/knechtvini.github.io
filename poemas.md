@@ -7,6 +7,14 @@ Editora Bestiário · 2026
 
 EM NOVEMBRO
 ---
+3277
+
+eróptico
+
+existe uma água
+capaz de apagar
+um fogo
+---
 3276
 
 eu sempre achei os peixes
