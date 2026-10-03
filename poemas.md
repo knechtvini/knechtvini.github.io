@@ -18,8 +18,11 @@ em quem você vota
 
 eróptico
 
-existe uma água
+existe 
+especialmente
+uma água
 capaz de apagar
+especialmente
 um fogo
 ---
 3276
