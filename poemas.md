@@ -7,6 +7,59 @@ Editora Bestiário · 2026
 
 EM NOVEMBRO
 ---
+3284
+
+o ator Anton Yelchin morreu
+prensado pelo próprio carro
+na entrada da casa dele
+
+eu também vejo o “sucesso” aí
+
+então "tá tudo bem"
+---
+3283
+
+quebrado mas inquieto
+cansado mas melancólico
+nunca fui fã da felicidade
+por causa da tristeza
+que vem depois dela
+
+essa eu nunca suportei
+---
+3282
+
+eu escrevi um novo livro
+e vou lançá-lo até o final deste ano
+
+trabalhei duro nele
+e tenho certeza de que será um best-seller
+
+
+creio que será o último
+
+pois sou péssimo nisso
+---
+3281
+
+muita coisa não aconteceu
+ou
+
+muita coisa acontece mais do que deveria
+---
+3280
+
+por favor me atenda com simpatia
+não seja grosseira
+
+não tenho amigos nem o seu emprego
+---
+3279
+
+eu aaaaaa
+
+jornalista escreveu uma notícia e vazou
+---
 3278
 
 se você salvar o mundo
