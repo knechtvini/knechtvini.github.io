@@ -14,7 +14,6 @@ prensado pelo próprio carro
 na entrada da casa dele
 
 eu também vejo o “sucesso” aí
-
 então "tá tudo bem"
 ---
 3283
