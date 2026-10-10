@@ -10,7 +10,7 @@ EM NOVEMBRO
 3285
 
 Longe de mim querer ser 
-ou ser 
+ou ser de fato
 o centro das atenções 
 ou o centro do universo
 mas vocês já se perguntaram 
