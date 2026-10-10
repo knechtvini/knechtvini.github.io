@@ -7,6 +7,17 @@ Editora Bestiário · 2026
 
 EM NOVEMBRO
 ---
+3285
+
+Longe de mim querer ser 
+ou ser 
+o centro das atenções 
+ou o centro do universo
+mas vocês já se perguntaram 
+por que os pássaros 
+formam a primeira letra do meu nome 
+quando voam?
+---
 3284
 
 o ator Anton Yelchin morreu
