@@ -7,6 +7,12 @@ Editora Bestiário · 2026
 
 EM NOVEMBRO
 ---
+3289
+
+Bilhete
+
+ACHOU LEVE? NÃO É SEU
+---
 3288
 
 marca o horário
