@@ -22,8 +22,8 @@ o dia eu adivinho
 
 já acabou? eu ainda não gozei
 com o Fernando posso dar um pulo
-depois eu volto eu ainda não
-prometo
+depois eu volto eu não prometo
+ainda
 ---
 3286
 
