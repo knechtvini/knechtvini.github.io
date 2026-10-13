@@ -7,6 +7,24 @@ Editora Bestiário · 2026
 
 EM NOVEMBRO
 ---
+3288
+
+marca o horário
+o dia eu adivinho
+---
+3287
+
+já acabou? eu ainda não gozei
+com o Fernando posso dar um pulo
+depois eu volto eu ainda não
+prometo
+---
+3286
+
+Sabe o que é engraçado
+Não tem a mínima
+Graciliano Ramos
+---
 3285
 
 Longe de mim querer ser 
