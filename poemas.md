@@ -14,6 +14,50 @@ SEGUNDO ANDAR
 CENTRO ESTRELA 
 15H ÀS 18H30
 ---
+3297
+
+TÔ QUE TÔ
+TU QUE TU
+QUE TU QUÉ
+TU QUE TU
+TÔ QUE TÔ
+---
+3296
+
+"A SAFRA DA
+
+deu certo?
+dei"
+---
+3295
+
+ele vive me dando buquê de cebolas
+---
+3294
+
+passei o cafezinho
+fica para a próxima...
+---
+3293
+
+eu não tinha medo eu tinha certeza
+alguém i r ia toc ar os m eus p és
+---
+3292
+
+se eu me matar aqui ninguém percebe
+---
+3291
+
+Como dizer não para uma Thereza com h e z
+---
+3290
+
+eu não acho 
+que você seja 
+de fato
+a mulher mais linda do mundo
+---
 3289
 
 Bilhete
