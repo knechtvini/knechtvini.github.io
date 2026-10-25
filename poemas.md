@@ -14,13 +14,28 @@ SEGUNDO ANDAR
 CENTRO ESTRELA 
 15H ÀS 18H30
 ---
+3299
+
+você costuma dizer 
+que não sabe
+de alguma coisa 
+só para ouvir 
+o outro 
+explicá-la conforme 
+aquilo que ele 
+acredita 
+ter entendido?
+---
+3298
+
+NOTA DEZ
+
+nona garganta
+---
 3297
 
 TÔ QUE TÔ
 TU QUE TU
-QUE TU QUÉ
-TU QUE TU
-TÔ QUE TÔ
 ---
 3296
 
@@ -31,17 +46,19 @@ dei"
 ---
 3295
 
-ele vive me dando buquê de cebolas
+ele vive me dando buquê de 
+cebolas
 ---
 3294
 
 passei o cafezinho
-fica para a próxima...
+fica para a próxima
 ---
 3293
 
-eu não tinha medo eu tinha certeza
-alguém i r ia toc ar os m eus p és
+discursando para uma pequena plateia
+a minha cabeça explode
+e minhas mãos continuam gesticulando
 ---
 3292
 
