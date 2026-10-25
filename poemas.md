@@ -14,6 +14,16 @@ SEGUNDO ANDAR
 CENTRO ESTRELA 
 15H ÀS 18H30
 ---
+3301
+
+parei de falar com ele porque 
+ele é muito sentimental e 
+artista
+praei de flaar com eele poqrue
+elee é miuto setnimenatl e 
+atrsita
+pessoas assim confundem as coisas
+---
 3300
 
 essa sensação de querer 
