@@ -14,6 +14,24 @@ SEGUNDO ANDAR
 CENTRO ESTRELA 
 15H ÀS 18H30
 ---
+3300
+
+essa sensação de querer 
+aprender tudo e 
+encontrar todas as 
+respostas 
+em um único dia
+ainda vai me matar mas 
+essa vontade de não 
+querer saber de 
+nada e de não precisar ter 
+resposta 
+alguma ainda vai me fazer 
+levantar 
+do sofá e 
+
+viver
+---
 3299
 
 você costuma dizer 
