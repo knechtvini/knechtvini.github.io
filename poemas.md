@@ -16,7 +16,7 @@ CENTRO ESTRELA
 ---
 3303
 
-a porta do apartamento dela estava arrombada. não sentiu falta de nada, mas, sim, de uma presença. de um bilhete deixado na escrivaninha, junto à pintura que ela havia feito para ele dois anos antes. ela tirou o bilhete da mesa e escreveu outro, no qual dizia: “eu te amo. desculpa pelo estrago” trocou os bilhetes. não havia ponto no final
+a porta do apartamento estava arrombada. não sentiu falta de nada, mas de uma presença. um bilhete deixado na escrivaninha, junto à pintura que ela havia feito para ele dois anos antes. tirou o bilhete da mesa e escreveu outro, no qual dizia: “te amo. desculpa pelo estrago” trocou os bilhetes. não havia ponto no final
 ---
 3302
 
