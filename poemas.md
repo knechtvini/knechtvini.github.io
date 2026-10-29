@@ -16,11 +16,23 @@ CENTRO ESTRELA
 ---
 3303
 
-a porta do apartamento estava arrombada. não sentiu falta de nada, mas de uma presença. um bilhete deixado na escrivaninha, junto à pintura que ela havia feito para ele dois anos antes. tirou o bilhete da mesa e escreveu outro, no qual dizia: “te amo. desculpa pelo estrago” trocou os bilhetes. não havia ponto no final
+a porta do apartamento estava arrombada não sentiu falta 
+de nada mas de uma presença um bilhete deixado na escrivaninha 
+junto à pintura que ela havia feito para ele dois anos antes 
+tirou o bilhete da mesa e escreveu outro no qual dizia "te amo 
+desculpa pelo estrago." trocou os bilhetes não havia ponto 
+no final
 ---
 3302
 
-eu vou ser bem direto. no lugar do coelho, me deram um hamster, e ele se chama Rato. o Rato é tão pequenininho que cabe nu mamão. tô tão feliz com a vida dele. não vou ser tão direto, mas o Rato mora na nossa casa e sumiu. nunca deixamos nada aberto. o rato simplesmente desapareceu dentro de casa. mas, com um detalhe: ele continua entre nós. porque está comendo a comida que deixamos para ele. todos os dias. ele deixa o prato vazio e some. já cheguei a explodir o nosso sofá para ver se ele estava lá dentro
+eu vou ser bem direto no lugar do coelho me deram um hamster 
+e ele se chama Rato o Rato é tão pequenininho que cabe nu mamão 
+tô tão feliz com a vida dele não vou ser tão direto mas o Rato 
+mora na nossa casa e sumiu nunca deixamos nada aberto o Rato 
+simplesmente desapareceu dentro de casa mas com um detalhe ele 
+continua entre nós porque está comendo a comida que deixamos para 
+ele todos os dias ele deixa o prato vazio e some já cheguei a 
+explodir o nosso sofá para ver se ele estava lá dentro
 ---
 3301
 
