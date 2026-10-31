@@ -4,9 +4,7 @@ title: Sobre
 permalink: /sobre/
 ---
 
-Vinícius Knecht (Estrela, RS, 1992) é escritor, poeta, roteirista, fotógrafo e músico. 
-Sua produção artística transita entre a literatura, o cinema, a fotografia e a música, 
-explorando as contradições da existência humana por meio da melancolia, da ironia e do humor. 
+Vinícius Knecht (Estrela, RS, 1992) é escritor, poeta, roteirista, fotógrafo e músico.
 É autor de quatro livros: No mínimo rir, no máximo chorar (2019) e Tristeza que dá inveja (2021), 
 publicados pela Chiado Books; Amarelando Blue (2025) e Vinícius K. não é literatura (2026), 
 publicados pela Editora Bestiário.
