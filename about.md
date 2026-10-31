@@ -18,7 +18,7 @@ e elementos visuais em uma experiência que ultrapassava os limites convencionai
 Em 2025, publicou Amarelando Blue, obra que combina poesia e narrativa cinematográfica, 
 desenvolvida a partir de três temas recorrentes em sua produção: amor, dor e humor. 
 O livro recebeu destaque em uma coluna da escritora Martha Medeiros, publicada 
-no jornal O Globo e reproduzida em GZH. No mesmo ano, participou da 71ª Feira do Livro de Porto Alegre.
+no jornal O Globo e em GZH. No mesmo ano, participou da 71ª Feira do Livro de Porto Alegre.
 
 Em 2026, lançou seu quarto livro, Vinícius K. não é literatura, uma obra de caráter fragmentário, 
 autobiográfico e experimental, que questiona os limites entre literatura, memória, ficção e identidade.
