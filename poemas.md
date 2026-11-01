@@ -14,6 +14,37 @@ SEGUNDO ANDAR
 CENTRO ESTRELA 
 15H ÀS 18H30
 ---
+3307
+
+desconfio que toda a minha arte
+vaia ca bar
+sendo motivo de piada.
+pelo menos é autoral
+---
+3306
+
+UPER EROI
+
+boneco inflável que ganha vida
+e vai para as ruas combater o mal.
+
+mas qual é o superpoder?
+
+ganhar vida e ter a coragem 
+de ir para as ruas combater o mal.
+---
+3305
+
+— só preciso da receita
+— todos precisam, não é mesmo?
+---
+3304
+
+Tudo o que eu tenho é um papel em branco. 
+Um papel em branco. 
+É só isso que tenho na minha vida. 
+E é tudo para mim.
+---
 3303
 
 a porta do apartamento estava arrombada não sentiu falta 
