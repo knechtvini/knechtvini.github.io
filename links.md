@@ -12,7 +12,7 @@ Obras e trabalhos do autor:
 - [Comprar Amarelando Blue (2025) Editora Bestiário](https://www.bestiario.com.br/livros/amarelando.html)
 - [Comprar Amarelando Blue (2025) - Amazon](https://www.amazon.com.br/Amarelando-blue-Vin%C3%ADcius-Knecht/dp/6560561828)
 - [Coluna de Martha Medeiros (O GLOBO) sobre Amarelando Blue](https://oglobo.globo.com/ela/martha-medeiros/coluna/2025/11/conheca-amarelando-blue-livro-de-vinicius-knecht-que-e-um-frescor-diante-de-conteudos-copiados-da-internet.ghtml)
-- Vinícius K. não é literatura (2026) - EM NOVEMBRO
+- [Vinícius K. não é literatura (2026) PDF](https://drive.google.com/drive/folders/1wzYaekyt-gw0m5yt7Y8ASxlR8B3ErvEF?usp=sharing)
 
 Quer apoiar um artista independente? 
 
