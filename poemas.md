@@ -14,11 +14,38 @@ SEGUNDO ANDAR
 CENTRO ESTRELA 
 15H ÀS 18H30
 ---
+3308
+
+POEMA SOFIA
+
+por trás do seu... estúdio apresenta
+hoje voltaria a usar drogas por você 
+tu dá água na boca e nos dedos escrevo 
+figo pombo toma medicamentos atrasados 
+em 2h no meu funeral vou sussurrar 
+no seu ouvido que também te amo
+a não ser que você seja a Cláudia
+biscoito frequentemente pombo sonha 
+que ganhou 1 milhão e a preocupação 
+é o banco queria poder apontar para 
+você e dizer eu namoro alguma delas
+hoje voltaria a usar drogas por você
+mesa dos amantes olha os olhos dele olha 
+os olhos dela são eles deles
+pombo lembra recaída durante entrevista 
+e acaba tendo recaída na entrevista ao 
+cheirar cocaína pombo voltar a usar drogas 
+por você quatro olhos pra me conquistar
+é óbvio que eu ainda não te amo
+ainnn a distância blablabla designer e 
+ilustradora coração caveira é óbvio 
+que você permanece quem dera fisgar
+---
 3307
 
 desconfio que toda a minha arte
 vaia ca bar
-sendo motivo de piada.
+sendo motivo de piada
 pelo menos é autoral
 ---
 3306
