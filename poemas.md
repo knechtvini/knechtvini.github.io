@@ -1,6 +1,14 @@
 ---
 layout: default
 ---
+3310
+
+Tão próximos de mim, agora...
+Stanley, Xiaomi, Fine Line, Rocco, 
+Cetech, LG, Samsung, Philips, JBL, HP, 
+Adidas, Nike, Nestlé, Tramontina, 
+Panasonic e Canon...
+---
 3309
 
 “VINÍCIUS K. NÃO É LITERATURA” POR VINÍCIUS KNECHT
