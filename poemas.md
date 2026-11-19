@@ -3,11 +3,31 @@ layout: default
 ---
 3310
 
-Tão próximos de mim, agora...
+ODE IO 
+PARTE I
+
+no início dia nte dos má cacos
+na transform ação da human idade
+ossos para o alto na des coberta 
+de uma inteligên cia supe ri or
+na experiên cia final de Bow man
+bateria por favor, Fab
+vou escre ver o que tenho em mente 
+depois vou embora e me sentir mal
+só estava entediado toc ando violão
+quando ela volta ele está no celular
+tão próximos de mim agora...
 Stanley, Xiaomi, Fine Line, Rocco, 
 Cetech, LG, Samsung, Philips, JBL, HP, 
 Adidas, Nike, Nestlé, Tramontina, 
-Panasonic e Canon...
+Panasonic e Canon... ChatGPT...
+a evolução não terminou
+a morte é transformação
+humanidade não compreende aquilo 
+que está descobrindo
+Bow man morre mas não é exatamente 
+o fim o ciclo evolutivo recomeça afinal
+o que Kubrick quer dizer?
 ---
 3309
 
