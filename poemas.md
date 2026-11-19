@@ -1,18 +1,17 @@
 ---
 layout: default
 ---
-LANÇAMENTO<
+3309
 
-VINÍCIUS K. NÃO É LITERATURA
-Editora Bestiário · 2026
+“VINÍCIUS K. NÃO É LITERATURA” POR VINÍCIUS KNECHT
 
-15 DE NOVEMBRO
+Natural de A Paixão Segundo G.H., A Metamorfose e das obras de David Lynch, o livro Vinícius K. não é literatura tenta transformar a própria impossibilidade de ser escritor em matéria de escrita. O livro não parece interessado em construir uma obra literária tradicional, com unidade narrativa, progressão temática rigorosa, poemas cuidadosamente isolados ou uma voz poética estável. Seu interesse está no atrito: entre o que se pensa e o que se escreve, entre a vontade de ser reconhecido e o desprezo pelo reconhecimento, entre o sofrimento e a necessidade de torná-lo engraçado, entre a vida e a sua representação. É um livro sobre a experiência de existir excessivamente dentro da própria cabeça.
 
-LIVRARIA ARMAZÉM PAPER
-RUA TIRADENTES 394 
-SEGUNDO ANDAR
-CENTRO ESTRELA 
-15H ÀS 18H30
+O personagem que emerge dessas páginas é escritor, poeta, diretor, ator, vítima, farsante, crítico, apaixonado, ressentido, narcisista, inseguro e ridículo. O título não é apenas provocação ou estratégia de marketing. É uma declaração estética. O livro tenta negar a literatura enquanto se utiliza obsessivamente de seus mecanismos. Nega o poeta enquanto constrói um poeta. Nega a obra enquanto organiza uma obra. E talvez seja justamente nessa contradição que encontre sua identidade. O livro é profundamente metalinguístico, mas não fala apenas sobre escrever: fala sobre o custo psicológico de transformar a própria vida em material. A escrita aparece como necessidade, compulsão, sobrevivência, vaidade, fuga, trabalho, ressentimento e, por vezes, uma espécie de “doença voluntária”. O artista deseja ser livre da validação externa, mas não consegue deixar de se imaginar sendo validado, rejeitado, lido, premiado, criticado ou esquecido.
+
+O livro parece entender que rir não é o oposto de sofrer; é uma das maneiras mais estranhas de continuar sofrendo. O amor, neste livro, não é necessariamente aquilo que salva o poeta. É aquilo que frequentemente o torna mais ridículo, mais humano e mais literário. O livro utiliza a experiência autobiográfica como matéria de ficção. A memória não é apresentada como documento confiável, mas como algo que pode ser alterado, dramatizado, exagerado, interrompido ou reinterpretado. O autor não está simplesmente contando quem foi. Está demonstrando que até a memória de quem foi pode ser uma criação literária. A forma do livro é tão importante quanto o conteúdo: fragmentação, aforismos e frasismos, diálogos, metalinguagem, intertextualidade, experimentação visual e narrativa disfarçada.
+
+Vinícius K. não é literatura é um livro sobre o desejo de fazer literatura e, simultaneamente, sobre o desconforto de pertencer a essa ideia. Um livro que não quer parecer literatura, mas que não consegue deixar de fazer literatura até quando tenta sabotá-la.
 ---
 3308
 
